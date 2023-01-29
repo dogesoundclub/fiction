@@ -1,30 +1,30 @@
-# 도지사운드클럽 픽션
-캐릭터, 세계관 설정들을 정리하는 곳입니다.
-아직 내용이 많지 않으므로 본 단일 파일에 모두 기재합니다.
+# Doge Sound Club (Fiction)
+This is where characters and worldview settings are organized.
+There isn't much yet, so I'll list them all in this single file.
 
 DESCRIPTIONS
-- 메이트 
-: 지구의 원주민들. 남자, 여자, 토끼, 원숭이, 호랑이, 로봇으로 구성되어 있음. 
-메이트들은 현실 세상이 가짜이고, 모두 시뮬레이션이다라는 생각을 가지고 있음. 
-세상이 시뮬레이션이다라는 것을 증명하기 위해 시뮬레이션의 버그를 촉발하는 이상 언행(개소리), 이상 행동을 고의적으로 함. 
-고차원적인 개소리를 하기 위해 잘 마시지도 못하는 맥주를 종종 마심.
+- Mate (Character Type)
+: indigenous people of the earth. It consists of a man, woman, rabbit, monkey, tiger and robot.
+Mates have the idea that the real world is fake and everything is a simulation. 
+To prove that the world is a simulation, intentionally doing nonsensical jokes or behaviors that trigger a bug in the simulation. 
+Mate often drinks beer that they don't even drink well to do high-level jokes.
 
 
-- 이메이트
-: 아이야스라는 다른 차원에서 온 이계인. 
-차원 이동 포탈 작동 이상으로 지구에 불시착함. 
-지능이 매우 높음. 
-차원이동 포탈을 열 수 있음.
-지능이 너무 높아서 개소리, 뻘짓을 못함. 때문에 메이트와 달리 시뮬레이션 버그를 일으킬 수 없음.
+- e-Mate  (Character Type)
+: An alien from another dimension called AYIAS.
+Crash landed on Earth due to abnormal dimension movement portal operation.
+e-Mate have very high intelligence.
+e-Mate can open a dimension shift portal.
+e-Mate's intelligence is so high that e-Mate can't talk nonsensical jokes and weird behaviors that e-Mate cannot cause simulation bugs unlike mate.
 
 
-- 크로니움
-: 시뮬레이션의 가디언.
-시뮬레이션 버그를 자꾸 촉발시키는 메이트들을 매우 싫어함.
+- Chronium (Character Type)
+: Guardian of Simulation.
+Chronium hate Mates that keep triggering simulation bugs.
 
 
-- 바이어스
-: 크로니움의 계략으로 잠에 들어 100년만에 깨어난 메이트들.
+- Bias  (Character Type)
+: Mates woke up after 100 years after falling asleep due to Chronium's trick.
 
-- 믹스 코인
-: 이메이트들은 차원이동 포탈을 만들 수 있지만 이를 가동하려면 가동 지점에서 버그가 일어나서 시뮬레이션에 균열이 일어나야함. 그런데 이메이트들은 버그를 일으킬 수 없고, 메이트들에게 버그가 일어날 수 있도록 1년동안의 지속적인 이상 언행, 개소리를 부탁했음. 대신에 믹스 코인을 줄테니 지금은 가치가 없지만 다시 돌아와서 믹스 코인 1개당 금 1g과 교환을 해준다고함. 이메이트들의 대장 믹스캣은 꼭 약속을 지킬 것이라며 믹스 코인에 자신의 얼굴을 새겨 놓았음. 2100만개의 믹스 코인이 이 때 제작되었음.
+- MIX (Currency)
+: e-Mates can create dimension shifting portals, but in order to activate them, a bug must occur at the point of operation, causing cracks in the simulation. However, the e-Mates could not cause bugs, and they asked the Mates for a year of continuous nonsencial jokes and weird behaviors so that the bugs could occur. Instead, e-Mates will give Mates a mix coin, but it is worthless now, but they will come back and exchange it for 1g of gold per mix coin. Mix Cat, the leader of the e-Mates, has his face engraved on the Mix Coin, saying he will keep his promise. 21 million mix coins were produced at this time.

@@ -4,7 +4,7 @@ There isn't much yet, so I'll list them all in this single file.
 
 DESCRIPTIONS
 - Mate (Character Type)
-: indigenous people of the earth. It consists of a man, woman, rabbit, monkey, tiger and robot.
+: earthlings. It consists of a human, rabbit, monkey, tiger and robot.
 Mates have the idea that the real world is fake and everything is a simulation. 
 To prove that the world is a simulation, intentionally doing nonsensical jokes or behaviors that trigger a bug in the simulation. 
 Mate often drinks beer that they don't even drink well to do high-level jokes.

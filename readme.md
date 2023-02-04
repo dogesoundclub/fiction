@@ -1,4 +1,4 @@
-# Doge Sound Club (Fiction)
+# Fiction: Doge Sound Club
 This is where characters and worldview settings are organized.
 There isn't much yet, so I'll list them all in this single file.
 

@@ -2,7 +2,7 @@
 
 이곳은 도지사운드클럽의 공식 세계관 [ALERTS : DBE]를 작성하는 레포입니다.
 NFT 소유 여부와 상관없이 누구나 참여할 수 있습니다.
-깃허브 사용이 처음이라면 아래 링크를 열어, 글을 기고하는 방법을 확인해보세요.
+깃허브 사용이 처음이라면 다음 링크를 열어, 글을 기고하는 방법을 확인해보세요.
 https://t.ly/plLh
 
 This is where characters and worldview settings are organized.

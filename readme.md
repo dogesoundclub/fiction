@@ -2,8 +2,8 @@
 
 이곳은 도지사운드클럽의 세계관 'ALERTS : DBE'를 작성하는 레포입니다.
 NFT 소유 여부와 상관없이 누구나 참여할 수 있습니다.
-CC BY-SA 라이센스를 따르며, 누구나 2차 창작하여 내용을 영리적으로 활용할 수 있습니다.
-자세한 내용은 본 REPO의 LICENSE 파일을 참조하십시오.
+깃허브 사용이 처음이라면 아래 링크를 열어, 글을 기고하는 방법을 확인해보세요.
+https://t.ly/plLh
 
 This is where characters and worldview settings are organized.
 There isn't much yet, so I'll list them all in this single file.

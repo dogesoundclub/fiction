@@ -35,3 +35,8 @@ Chronium hate Mates that keep triggering simulation bugs.
 - MIX (Currency)
 :e-Mates can create dimension shifting portals, but in order to activate them, a bug must occur causing cracks in the simulation. However, the e-Mates cannot say jokes to cause bugs so they asked the Mates for a year of continuous nonsencial jokes for the bugs. 
 If then, e-Mates says, will give Mates a mix coin which is worthless as of now but they will come back later and exchange it for 1g of gold per mix coin. Mix Cat, the leader of the e-Mates, has his face engraved on the Mix Coin, saying he will keep his promise. 21 million mix coins were produced at this time.
+
+<a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a><br />This work is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a>.
+
+Attribution : DSC LABEL inc.; abitofdots;
+

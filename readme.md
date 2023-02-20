@@ -14,7 +14,7 @@ https://t.ly/plLh
 다음은 픽션 DSC의 공식 설정들입니다. 자유롭게 작성하되, 공식 설정과 크게 어긋나지 않도록 작성 부탁드립니다. 
 
 ## OFFICIAL SETTINGS
-- 픽션 DSC는 기본적으로 현대를 배경으로한 판타지입니다. (이를 도시 판타지라고 하더군요.) 하지만 반드시 이를 지켜야하는 것은 아닙니다. 인류의 기원 등 고대를 배경으로 작성하셔도 됩니다.
+- 픽션 DSC는 기본적으로 현대를 배경으로한 판타지입니다. (이를 도시 판타지라고 하더군요.) 하지만 반드시 이를 지켜야하는 것은 아닙니다. 필요에 따라 픽션 DSC의 배경을 고대로 두고 작성을 하셔도 됩니다.
 
 - Mate (Character Type)
 : earthlings. It consists of a human, rabbit, monkey, tiger and robot.

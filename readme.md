@@ -1,4 +1,4 @@
-# Fiction, Doge Sound Club.
+# Doge Sound Club. (Fiction)
 
 이곳은 도지사운드클럽의 공식 세계관을 작성하는 레포입니다.
 NFT 소유 여부와 상관없이 누구나 참여할 수 있습니다.

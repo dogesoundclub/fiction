@@ -6,7 +6,7 @@ NFT 소유 여부와 상관없이 누구나 참여할 수 있습니다.
 https://t.ly/plLh
 
 ## OFFICIAL SETTINGS
-- 픽션 DSC는 도시 판타지입니다.
+- 픽션 DSC는 기본적으로 현대를 배경으로한 판타지(도시 판타지.)입니다. 하지만 반드시 이를 지켜야하는 것은 아닙니다. 인류의 기원 등 고대를 배경으로 작성하셔도 됩니다.
 
 - Mate (Character Type)
 : earthlings. It consists of a human, rabbit, monkey, tiger and robot.

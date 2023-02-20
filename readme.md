@@ -5,7 +5,7 @@ NFT 소유 여부와 상관없이 누구나 참여할 수 있습니다.
 깃허브 사용이 처음이라면 다음 링크를 열어, 글을 기고하는 방법을 확인해보세요.
 https://t.ly/plLh
 
-## SETTINGS
+## OFFICIAL SETTINGS
 - Mate (Character Type)
 : earthlings. It consists of a human, rabbit, monkey, tiger and robot.
 Mates have the idea that the real world is fake and everything is a simulation. 

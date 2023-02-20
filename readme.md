@@ -1,4 +1,4 @@
-# Doge Sound Club. (Fiction)
+# Doge Sound Club (Fiction)
 
 이곳은 컴퓨터 코드가 아닌 일반 텍스트로 작성된 도지사운드클럽의 공식 세계관 저장소입니다.
 NFT 소유 여부와 상관없이 누구나 참여할 수 있습니다.
@@ -6,6 +6,8 @@ NFT 소유 여부와 상관없이 누구나 참여할 수 있습니다.
 https://t.ly/plLh
 
 ## OFFICIAL SETTINGS
+- 픽션 DSC는 도시 판타지입니다.
+
 - Mate (Character Type)
 : earthlings. It consists of a human, rabbit, monkey, tiger and robot.
 Mates have the idea that the real world is fake and everything is a simulation. 

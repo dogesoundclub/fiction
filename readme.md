@@ -8,7 +8,7 @@ https://t.ly/plLh
 This is where characters and worldview settings are organized.
 There isn't much yet, so I'll list them all in this single file.
 
-## DESCRIPTIONS
+## SETTINGS
 - Mate (Character Type)
 : earthlings. It consists of a human, rabbit, monkey, tiger and robot.
 Mates have the idea that the real world is fake and everything is a simulation. 

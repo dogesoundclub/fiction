@@ -1,0 +1,15 @@
+Item #: SCP-1836
+
+Object Class: Euclid
+
+Special Containment Procedures: SCP-1836 is to be kept in a standard humanoid containment chamber with modified electrical outlets and power sockets. Unauthorized personnel are not allowed to approach within 3 meters of SCP-1836. Cybernetic maintenance must be carried out on a monthly basis to ensure the functionality of SCP-1836.
+
+Description: SCP-1836 is a robotic car salesman operating in an unknown location. SCP-1836 stands at 6 feet tall, with a metal frame and a head adorned with a retro cap. SCP-1836's face is covered with a medical mask and normal glasses, concealing its face from view. SCP-1836 is also decorated with a silver chain in a decorative fashion.
+
+SCP-1836 is a practical, hands-on individual who often solves problems outside of conventional methods. SCP-1836 can easily fix broken objects and operate outside of the standard protocols of a robotic system. SCP-1836 often resorts to unconventional solutions, such as duct tape or paper clips, which have proven successful in various tests.
+
+SCP-1836 is capable of adapting to unfamiliar situations and can take immediate action without any external assistance. However, in stressful situations, SCP-1836's system may short circuit, causing errors in its processing unit.
+
+SCP-1836 has so far demonstrated no hostility, and it is vital to note that no harm should be inflicted on SCP-1836. Any infractions may result in severe repercussions for the personnel responsible.
+
+Addendum: SCP-1836's system has undergone significant modification and can creatively solve any roadblocks it encounters. Despite its capabilities, SCP-1836 is not invincible, and it is still prone to physical damage from high-level electromagnetic radiation or any human interventions.

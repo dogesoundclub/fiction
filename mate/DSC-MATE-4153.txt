@@ -1,0 +1,11 @@
+Item #: 4153
+
+Object Class: Safe
+
+Special Containment Procedures: Subject 4153 must be provided with a spacious, clean and sterilized cell, equipped with basic amenities. Any request made by the subject must be examined by Foundation staff before approval is granted. Direct interaction with any technology beyond the provided equipment for programming is prohibited. Testing on ability of the subject has been approved as long as execution does not jeopardize the containment procedures.
+
+Description: Subject 4153 is a male human of unknown age identified during a supposed "brute force" hacking attempt on Foundation servers. The subject presents physical characteristics that set him apart from average humans. He wears a doge hat and has light brown skin with several brown spots on his face which appear like coffee stains. Subject claims that the spots are natural and do not otherwise compromise his health. Additionally, he frequently accessorizes, wearing a gold chain even while sleeping and often be found with a candy stick in his mouth. 
+
+Subject 4153 is a skilled programmer with vast capabilities in software engineering. His mental faculties have been explored through conversation and evaluation. While being a creative individual with a vivid imagination, his anomalies can occasionally blur the lines between reality and fiction, resulting in the emergence of odd behaviors and preferences for eccentric hobbies. Subject 4153 tends to indulge in activities like writing poetry, crafting cosplay outfits, and accumulating strange objects. Interviews with 4153 suggests a desire to be praised for his accomplishments, mostly in the fields of technology and innovation.
+
+Addendum 4153-1: Testing within the parameters of the containment procedures commenced on request of the subject. During recreation breaks, 4153 is permitted to play games and conduct creative activities. Upon examination, it was revealed that subject 4153 had encoded peculiar encrypted files on the devices provided to him, requiring intricate decryption methods. Investigation is still ongoing to uncover the message contained by the files, as the complexity and intricacy of the encryption keys suggest a high level of professional computer knowledge devoted to conceal the contents of the files.

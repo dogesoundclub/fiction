@@ -1,0 +1,7 @@
+Subject 7433, also known as "Officer Purple Lips", is a traffic officer employed by the local police department. While she may appear to be a normal human, her appearance certainly is not. Her most distinguishing feature is a bright purple lipstick that she wears, which is said to be unnervingly vibrant - almost as if it were glowing. Her glasses appear to be just standard prescription lenses, but it is said that wearing them allows her to see things that other people cannot.
+
+Despite her unusual appearance, Officer Purple Lips is respected by her peers for her professionalism and her ability to keep her cool in even the most dangerous situations. That being said, she has been known to have a dry, and often acerbic, wit that catches people off guard. Though she is not a fan of small talk, if she does enter into a conversation, it is almost always to deliver a deadpan joke that leaves others bewildered.
+
+It is rumored that Officer Purple Lips is a member of the Green Cross, an organization that is dedicated to investigating paranormal activity in the area. However, this has yet to be confirmed. What is known is that she wears a silver chain around her neck, which is said to have protective properties.
+
+In conclusion, Officer Purple Lips is a curious and enigmatic figure. Whether or not she is involved in supernatural activities remains to be seen, but one thing is for sure - her presence on the streets is both reassuring and unsettling.

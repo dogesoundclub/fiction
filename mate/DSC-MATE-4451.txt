@@ -1,0 +1,15 @@
+Item #: SCP-4451
+
+Object Class: Euclid
+
+Special Containment Procedures: SCP-4451 is to be housed in a specialized garage located at Site-██. The garage must be equipped with a rail system that leads directly to a testing facility. Access to SCP-4451 is to be granted only to Level 3 personnel and must be monitored at all times during testing.
+
+SCP-4451 is to be fueled with specialized electromagnetic batteries provided by Site-██'s engineering department. Under no circumstance is SCP-4451 to receive gasoline or diesel fuel, as it may result in anomalous behavior.
+
+Description: SCP-4451 is a robotic humanoid measuring 2.3 meters in height and weighing approximately 1,100 kilograms. SCP-4451 bears striking resemblance to a train conductor, complete with a bucket hat, a red scarf, and a whistle. SCP-4451's most notable feature is its green cyclops eye, which serves as its primary visual sensor. SCP-4451's mouth is in a permanent state of fright.
+
+SCP-4451 is capable of autonomous locomotion on its robot wheels, but can also be controlled remotely by Foundation personnel. SCP-4451 is powered by a specialized electromagnetic battery, which provides an indefinite energy source. SCP-4451 has not required any maintenance since its acquisition by the Foundation.
+
+SCP-4451's personality has been classified as nurturing and caring. It has been observed to anthropomorphize objects around it, such as naming its testing track or having conversations with nearby equipment. SCP-4451 has also shown a tendency to worry about the well-being of the objects around it, even those that do not possess sentient behavior.
+
+Addendum: SCP-4451 has shown anomalous behavior during testing when fueled with gasoline or diesel fuel. SCP-4451 will disregard instructions and attempt to leave the testing area while emitting a low-frequency hum. Once SCP-4451 is refueled with electromagnetic batteries, it returns to its normal behavior. Investigation into this behavior is ongoing.

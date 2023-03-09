@@ -1,0 +1,13 @@
+Item #: SCP-3944
+
+Object Class: Safe
+
+Special Containment Procedures: SCP-3944 is to be kept in a standard humanoid containment chamber at all times. Communication with SCP-3944 is permitted only with prior approval from at least two Level 2 personnel. SCP-3944's electrical manipulation abilities must be monitored at all times, and any unexpected surges or fluctuations in power should be immediately reported to on-site electrical engineers.
+
+Description: SCP-3944 is a female human of undetermined age and origin. SCP-3944 possesses the unique ability to manipulate electrical currents and charges, and has demonstrated an exceptional proficiency in the field of electrical engineering. SCP-3944's physical appearance is notable for its distinctive orange-striped face and matching eyebrow, as well as its short, witch-like hairstyle. 
+
+SCP-3944 possesses a highly analytical and logical personality, frequently engaging in debates and arguments with those around it. It has been known to become particularly passionate about seemingly trivial topics, often to the amusement of those observing it. Despite its penchant for debate, SCP-3944 has exhibited a cooperative and compliant nature during its containment.
+
+SCP-3944's electrical manipulation abilities have been studied extensively by Foundation researchers, with numerous experiments conducted to better understand the limitations and capacities of its powers. These experiments have revealed the extent of SCP-3944's control over electricity, including the ability to create electrical fields, generate and absorb energy, and manipulate the properties of conductive materials. 
+
+Although SCP-3944's abilities can be highly valuable for various projects and operations, they also present a significant risk of electrical accidents and potential meltdowns. As such, great care must be taken in handling and containing SCP-3944 to prevent any unforeseen complications.

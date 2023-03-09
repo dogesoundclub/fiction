@@ -1,0 +1,13 @@
+Item #: SCP-3659
+
+Object Class: Euclid
+
+Special Containment Procedures: SCP-3659 is to be contained in a soundproofed room with reinforced walls made of non-conductive materials. Any repairs or maintenance must be performed by a specialized team trained in robotic engineering. SCP-3659 must not be exposed to any electromagnetic fields exceeding 5 gauss, as this can cause severe damage to its circuitry. Any communication with SCP-3659 must be done through a specialized intercom system.
+
+Description: SCP-3659 is a robotic entity resembling a humanoid figure with a green Cyclops eye as its main facial feature. Its head is adorned with a retro cap, accessorized with a ski goggle as an eye patch and a red cross earring on each ear. SCP-3659 has a silver chain around its neck as an additional accessory.
+
+SCP-3659 is identified as an electrician of unknown origins. Its capabilities surpass those of conventional robots, exhibiting an ability to manipulate electric fields at will. SCP-3659 also displays an advanced level of cognitive processing, allowing it to engage in introspective behavior and daydreaming, activities typically exclusive to living beings.
+
+SCP-3659's personality is marked by a curious and analytical nature, with a tendency to become lost in thought for extended periods. This behavior can lead to hazardous situations, demonstrating a lack of concern for its physical well-being. Despite this, SCP-3659 is cooperative with Foundation personnel and demonstrates no malicious intent.
+
+Addendum: Due to the unpredictability of SCP-3659's introspective behavior, it is under consideration for reclassification as Keter. Further testing is required before a final determination is made.

@@ -1,0 +1,7 @@
+Subject 7451, codenamed "The Reporter," is a human male with a distinct appearance. He bears spots across his face, which may or may not be natural, and sports a Doge hat atop his head. His eyes are a glowing jade color, thanks to VR LED implants that are said to enhance his perception and investigative skills. It is unknown if he acquired these implants through legal means, or if he has connections to the underground cybernetics market.
+
+The Reporter is often seen wearing a medical mask, perhaps as a cautionary measure due to his risky lifestyle. He enjoys exploring unknown territories and taking chances in life, a trait that often leads him into humorous and dangerous circumstances. He is known to wear a gold chain around his neck and a gold earring in his ear, which suggest a certain level of wealth and exclusivity.
+
+Despite his eccentricities, The Reporter is a skilled journalist and investigator, with a knack for uncovering secrets and uncovering the truth. His love for adventure and exploration may make him reckless at times, but it has also led him to uncover some of the most important stories of our time.
+
+Caution should be exercised when dealing with The Reporter, as his connections and information-gathering skills make him a valuable asset in the urban fantasy world. However, his love for danger and risk-taking makes it difficult to predict his actions, and he should be approached with caution.

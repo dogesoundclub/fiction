@@ -1,0 +1,11 @@
+Item #: SCP-7949
+
+Object Class: Euclid
+
+Special Containment Procedures: SCP-7949 is to be kept in a standard humanoid containment cell at Site-██. Strict security protocols must be maintained at all times, as SCP-7949 is capable of generating and storing large amounts of electrical energy. Access to SCP-7949 is strictly forbidden without proper clearance and supervision from Level 4 personnel.
+
+Description: SCP-7949 is a male robot identified as an electrician, standing at 6'3" and weighing approximately 320 lbs. Its body is primarily made of metallic alloys and advanced circuitry, possessing a single green cyclops eye as its primary facial feature. SCP-7949 wears normal glasses as a tertiary eye, has a head resembling a red alarm system with jade earrings on both ears, and a medical mask covering its mouth. SCP-7949 wears a silver chain around its neck as an accessory.
+
+SCP-7949's personality is characterized by its efficiency and organization skills. It often takes charge of group projects and events, delegating tasks to others in a very matter-of-fact way. However, SCP-7949's controlling nature can sometimes cause humorous situations. SCP-7949 is also capable of generating and storing large amounts of electrical energy, which it can use to power other devices or discharge as an offensive mechanism.
+
+Addendum: SCP-7949 was recovered during a routine raid of a rogue robotic manufacturing facility. It displayed high levels of intelligence and self-awareness, leading Foundation personnel to classify it as an SCP. Further research is ongoing to determine the origin and extent of SCP-7949's capabilities.

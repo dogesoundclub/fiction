@@ -1,0 +1,7 @@
+Subject 8654, also known as "The Tiger Boss", is a rare specimen in our world of urban fantasy. He is a member of the feline species, more specifically a tiger, and should not be taken lightly. With his piercing eyes framed by thick nerd glasses, he exudes intelligence and wit that is unparalleled by most of his peers. 
+
+His gold earring, which glimmers under the light of the mafia's hideouts, is a testament to his status as a powerful leader in the underground world of organized crime. Always with a cigarette in hand, The Tiger Boss is a commanding presence commanding the attention of everyone around him. With him present, no one dares to make a scene, lest they be on the receiving end of his ferocious roar. 
+
+Though his temper is known to be short, The Tiger Boss is also known to have a playful side. He possesses a quick wit and sharp tongue that keeps those around him on their toes, with humorous arguments and debates being common occurrences in his company. If you can manage to earn his respect, The Tiger Boss can be a loyal and protective ally to have in one's corner. 
+
+In summary, Subject 8654 is not just a tiger, he is also a force to be reckoned with. A mafia boss that exudes intellect and power, yet still possesses a playful disposition, he is not to be underestimated. Approach with caution.

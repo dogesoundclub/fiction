@@ -1,0 +1,7 @@
+Subject 6796 is a human female who goes by the title of "Reporter". Her appearance is quite unique compared to the common human anatomy. Her face is marked with spots and a wide, infectious smile that seems to draw the attention of all in her vicinity. Her eyes are cybernetic implants that create a dynamic rainbow LED display. This causes her sight to be different from other humans, giving her a unique perspective over the world around her.
+
+The subject's head is adorned with two braided pigtails, seemingly inspired by anime characters. Her ears are pierced with a green cross earring which appears to be her favorite accessory. However, her most striking feature is her LED gas mask that almost entirely covers her face. Its vivid green, blue, and red glow makes it appear as if she is constantly breathing neon vapor.
+
+Although Subject 6796's appearance may seem intimidating or strange, her personality is quite the opposite. She exudes positive energy and cheerfulness, always finding ways to spark joy in those around her. Her enthusiasm for life often results in humorous situations, as she can become overly excited about things that others find mundane.
+
+It is crucial to note that despite her bubbly demeanor, Subject 6796 may prove to be a valuable asset when it comes to gathering intel or investigating events. Her cybernetic implants and unique perspective give her the ability to sense things that others cannot. She is a rare subject that needs to be kept under constant observation for utmost safety and protection.

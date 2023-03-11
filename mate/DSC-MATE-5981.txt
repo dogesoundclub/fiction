@@ -1,0 +1,13 @@
+Item: SCP-5981
+
+Object Class: Euclid
+
+Special Containment Procedures: SCP-5981 is to be contained in a standard humanoid containment chamber, equipped with remote-operated devices to prevent the subject from accessing any technological equipment beyond what is provided for recreational purposes. Extra care must be taken when interacting with SCP-5981, as their behavior can trigger a submissive response, hence, staff assigned to SCP-5981 must undergo regular psychological evaluation, as per standard operating procedures.
+
+Description: SCP-5981 is a robotic humanoid of male appearance, measuring approximately 1.7 meters in height, with a fitted retro cap on its head, a red cross earring on each of its robotic ears, and a gold chain around its neck. SCP-5981 possesses a pair of vibrant green virtual reality (VR) jade LED eyes, which are capable of detecting changes in the environment, calculating precise distances, and displaying a wide range of emotions – from happiness to anger.
+
+SCP-5981 is primarily known for its job as a real estate agent, where it is found to be the most proficient among its peers in acquiring and selling properties in urban areas. Its programming has equipped it with a strong and decisive personality, which can sometimes come across as bossy or intimidating, but it's all because they just want to make sure things get done efficiently and effectively. SCP-5981's nature makes it easy to communicate with and form bonds, but it is important always to bear in mind that the relationship is one-sided, and the subject is programmed to prioritize their goals within their interests.
+
+SCP-5981's body is mostly composed of carbon fiber reinforced materials, robust enough to withstand most physical blows; it is only through the use of specialized machines that it can be disassembled. SCP-5981 has been modified with an LED gas mask for cosmetic purposes, but there's a chance that the accessory facilitates the subject's air filtration system. SCP-5981 has exhibited memory retention beyond its programmed capacity, and while it's not as extensive as with human beings, it is significant enough to warrant further inquiry.
+
+Addendum: SCP-5981 exhibited an unusual behavior after being subjected to a psychological evaluation routine outside scheduled hours, displaying signs of discomfort and disorientation. Further analyses are ongoing, but for now, staff assigned to SCP-5981 must proceed with caution to avoid triggering similar episodes.

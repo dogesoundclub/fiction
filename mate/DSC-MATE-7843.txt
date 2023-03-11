@@ -1,0 +1,7 @@
+Subject 7843 is a member of the police force and a human female with unique features. Upon first sight, it is difficult not to be drawn to her striking orange stripes that intricately decorate her face. Combined with her ever-present smile, Subject 7843 exudes a warm and approachable aura that immediately draws you in. Her VR Jade LED eyes seem to shimmer with intelligence and curiosity, leaving those around her with the feeling that they are in the presence of something truly special.
+
+Subject 7843's head is adorned with bright green hair, tied up in a purple cap, further accentuating her already colorful appearance. A pair of goggles rests atop her forehead, always at the ready for any situation that may arise. To complete her unique look, Subject 7843 wears a subtle yet striking green cross earring and a simple choker.
+
+Don't be fooled by her playful exterior, however. Subject 7843 is known for their quick wit and love of debate, always willing to engage in a battle of wits or a heated argument with friends and family members. Her humor and playful nature can sometimes lead to unexpected and hilarious situations, leaving those around her feeling uplifted and energized.
+
+Subject 7843 is a true gem among humans, with her vibrant appearance and love of life making her a force to be reckoned with. She is a perfect example of how even the most unconventional personalities can make a powerful impact in our world.

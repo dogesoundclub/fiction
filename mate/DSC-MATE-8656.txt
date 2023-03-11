@@ -1,0 +1,9 @@
+Item #: 8656
+
+Object Class: Safe
+
+Special Containment Procedures: Subject 8656 is to be allowed to live in the general populace, avoiding any direct contact with anomalous individuals or properties. Should any such contact occur, it is to be immediately reported to the appropriate Foundation authorities. Subject 8656 is not to share any knowledge of the Foundation's existence or of the anomalous with others. Regular psychological evaluations and medical check-ups are to be performed on Subject 8656 to ensure continued mental stability and physical health.
+
+Description: Subject 8656 appears to be a human female with an unusual appearance. They are a beautician by trade, with years of experience in managing hair, nails, and other cosmetic enhancements. Their skin features spots that have varied in size and shape since they were first encountered by the Foundation. Subject 8656 wears a purple cap with a headset, and a medical mask to cover their mouth. Their eyes have a distinct red appearance, reminiscent of clown makeup, which can be unsettling to those who meet them. A two-color band can be found across their forehead, and they wear a green cross earring in one ear.
+
+Personality: Subject 8656 is known to be intuitive and can predict events before they occur. They possess an innate sense of empathy, being attuned to the emotions of others, which can be both impressive and uncanny. They have been observed to detect when someone is in distress or hiding something significant. As a result, the Foundation has limited their interaction with others so that Subject 8656's abilities are not exploited or exposed.

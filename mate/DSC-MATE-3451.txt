@@ -1,0 +1,11 @@
+Item #: SCP-3451
+
+Object Class: Safe
+
+Special Containment Procedures: SCP-3451 is to be kept in a standard humanoid containment chamber with access to basic amenities. The silver chain and normal gas mask are to be remained on the subject at all times. Any attempts to remove either item are to be met with swift disciplinary action. Access to technological devices is prohibited within SCP-3451's chamber, as their VR rainbow LED eyes have shown potential to cause information breaches.
+
+Description: SCP-3451 is a humanoid entity standing at 5'11 and weighing approximately 165 pounds. Despite its anomalous appearance, SCP-3451 is classified as a human for all intents and purposes. Its face displays orange stripes that appear to change in size and position at random intervals. A feature that adds to its constant state of fear is its perpetually frightened mouth. Its eyes are VR rainbow LED that emit a low humming sound during periods of heightened anxiety. SCP-3451 is often seen wearing a red beanie and a gas mask with goggles propped upon the forehead. Upon retrieval, SCP-3451 was discovered to hold the position of an electrician before its unexpected manifestation.
+
+Personality: SCP-3451 is highly adaptable and shows a great sense of humor, often making attempts to make light of its situation. It enjoys making others laugh and is proficient at telling funny stories and impersonations. However, SCP-3451 is highly suspicious and shows extreme anxiety any time it feels its safety is compromised. Subject shows inconsistent responses to stressors, suggesting the presence of deeper emotional/psychological instability. 
+
+Addendum 3451-A: SCP-3451 attempted to remove the silver chain during rotation, leading to a visible spike in anxiety and behavioral instability. Subject displayed higher levels of aggression and manic tendencies, leading to the loss of one Class D personnel. Access to SCP-3451's containment chamber is now limited to Level 3 clearance and above.

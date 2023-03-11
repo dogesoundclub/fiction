@@ -1,0 +1,9 @@
+Object Class: Safe
+
+Special Containment Procedures: Subject 8128 is currently employed as a news anchor for a local broadcast network, and as such, he must be allowed to freely interact with the public. As of yet, there is no evidence to suggest that he presents any sort of danger to society or possesses any abilities that could be deemed anomalous. Therefore, monitoring his regular conduct and whereabouts is enough to maintain containment.
+
+Description: Subject 8128 is a male human with a distinct trait: spotted skin. Despite this physical anomaly, he is able to blend into crowd due to his average physical build and height. When reporting, he dons a monk's headgear and decorates it with a gold chain. This accessory appears to be of significant importance to him, as he is rarely seen without it.
+
+Subject 8128 possesses a love for adventure; he is not afraid of taking risks or trying new things, often resulting in amusing anecdotes about his near-death experiences while bungee jumping or getting lost while exploring the wilderness. Although it is not entirely clear whether this personality trait is due to any anomalous effect or merely his personal character, caution is still advised when approaching him.
+
+Addendum: Subject 8128 has been cooperative with our investigators thus far. However, it is recommended that he be kept under close observation. As with most high-profile individuals, there is always the possibility that he is harboring dangerous secrets or is involved with malevolent entities. Efforts to verify that our subject's interest in danger is purely recreational in nature is ongoing.

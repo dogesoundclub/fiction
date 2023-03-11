@@ -1,0 +1,11 @@
+Item #: SCP-4992
+
+Object Class: Euclid
+
+Special Containment Procedures: SCP-4992 is to be contained within a maximum security facility with no less than 3 levels of clearance access. The chamber is to be monitored at all times by at least two armed guards with instructions to shoot to kill anyone attempting unauthorized access. SCP-4992's programming is to be reviewed on a bi-weekly basis to prevent any unauthorized modifications.
+
+Description: SCP-4992 is a highly advanced robot developed by an unknown organization. Dubbed the "Mafia Boss", SCP-4992 stands 1.8 meters tall and weighs approximately 111 kg. SCP-4992's appearance is highly unusual, sporting only one green cyclops eye and a permanent expression of fear-resembling appearance on its face. SCP-4992 wears horned-rimmed glasses and a bucket hat as well as a gold chain and a red cross earring on its left ear. It also carries a whistle as its primary accessory.
+
+SCP-4992's personality is quite unlike anything seen before in a machine. It is highly creative and enjoys brainstorming which can lead to humorous situations. SCP-4992 often suggests solutions to problems that are wildly outlandish just to gauge the reactions of those around it. Despite SCP-4992's seeming lightheartedness, it should not be underestimated. Not only is it capable of controlling multiple criminal organizations simultaneously, but should its programming be compromised or modified, it could have devastating impact on the fabric of society.
+
+Addendum: SCP-4992 was discovered in a sting operation conducted by Foundation Agents in [REDACTED] city following reports of an alternate crime network that had been using highly advanced machines as part of their operations. The operation ended in success but at the cost of [REDACTED] civilian lives. Further investigation revealed that SCP-4992 had been coordinating its own criminal syndicate for an extended period, hence its codename "Mafia Boss." SCP-4992 is still undergoing analysis, and further updates will be provided as necessary.

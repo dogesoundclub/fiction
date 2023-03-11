@@ -1,0 +1,11 @@
+Item #: 9720
+
+Object Class: Euclid
+
+Special Containment Procedures: Subject should be contained in a standard humanoid containment cell, with access to a variety of fruits and vegetables as per their dietary needs. Subject is not to be allowed any contact with financial institutions or the general public at large to safeguard against any possible attempts to use their charisma to manipulate people for personal gain.
+
+Description: Subject 9720 is a male Monkey of unknown origin, with green fur that has yet to be arranged or styled. The subject's forehead features a distinctive two-color band, which seems to coincide with its ability to connect with others on a deep level. The subject often wears a gold earring in its left ear, which is a distinguishing feature of its personality. Subject 9720 can often be seen chewing on a candy stick, which it claims helps it connect with others in a deeper way.
+
+Personality: Subject 9720 is known for its charisma and ability to connect with others on a deep emotional level. This ability has been noted to lead to humorous situations, as the subject can get strangers to open up about their life stories or share funny anecdotes that bring people closer together. Subject 9720 enjoys being the center of attention and will use its charisma to entertain and delight those around it. However, caution must be exercised when dealing with the subject, as it can use its abilities to manipulate people for personal gain. 
+
+Addendum: Subject 9720 was brought to containment after being caught attempting to rob a bank. It was discovered that the subject had been using its charm to gain the trust of the bank personnel and customers, ultimately convincing them to give it the money. The Foundation intervened before the subject could make a clean getaway. Interrogation of the subject revealed that this was not its first successful bank heist. All attempts at rehabilitating the subject have failed so far, and thus, it remains classified as a Euclid-level threat.

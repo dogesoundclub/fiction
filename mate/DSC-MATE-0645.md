@@ -1,0 +1,7 @@
+DSC-MATE-645 is a humanoid creature with striking features. The subject's head boasts a unique mohawk with two-colored bands that make it stand out. The face is covered with spots, and the mouth consistently retains a frightened expression, as if permanently unsettled. DSC-MATE-645's ears are adorned with a jade earring, and the mouth is often covered by a medical mask.
+ 
+DSC-MATE-645's personality is defined by a steadfast sense of duty and responsibility. The subject is known to take on particularly challenging tasks and often tries to shoulder more than they can handle. This can result in some amusing situations where DSC-MATE-645 attempts to achieve a large array of tasks within a single day or tries to balance multiple things at once.
+
+DSC-MATE-645's profession is that of a veterinarian, and it handles animals with an unprecedented level of care and dedication. The subject's responsibility extends beyond animal care, and they express interest in assisting human beings to the best of their abilities.    
+
+The Foundation recognizes DSC-MATE-645's unique abilities and strengths, and it has been recruited as a valuable asset in managing anomalous animal specimens. However, a caution around the subject is advised, as overwork and stress may result in erratic and unpredictable behavioral patterns.

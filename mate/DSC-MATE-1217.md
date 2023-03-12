@@ -1,0 +1,7 @@
+DSC-MATE-1217 is a humanoid rabbit of unknown origin, serving as a security guard in Site-██. The anomalous creature is distinguishable by its VR Rainbow LED eyes and its signature Retro Cap that it wears over its furry head. DSC-MATE-1217 also sports a Red Scarf as an accessory that seems to add to its level of competence and alertness.
+
+Despite the appearance of the DSC-MATE-1217, its personality is said to be wildly entertaining. They have a love for adventure and are not scared of taking risks or trying new things, even if it means risking their life. The rabbit's exciting nature has led to some humorous stories, such as surviving a near-death experience while bungee jumping, or accidentally getting lost in the wilderness.
+
+Despite the DSC-MATE-1217's jolly disposition, the Foundation has kept close watch on the creature, concerned about possible breaches or threats to its secrecy. As an DSC, the rabbit has been subjected to thorough examinations, interviews and scientific studies, which have all confirmed its anomalous nature. Nevertheless, its adventurous nature keeps the researchers on their toes, always keeping them guessing about what DSC-MATE-1217's next daring move could be.
+
+DSC-MATE-1217 is installed as an essential member of Site-██'s security team and has proved to be a valuable asset to the Foundation. Despite its quirks, the Foundation values DSC-MATE-1217’s dedication and courage, which make it one of the most popular and curious anomalies in their captivity.

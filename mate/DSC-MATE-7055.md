@@ -1,0 +1,7 @@
+DSC-MATE-7055 is a mysterious human with striking features. Their pink parted hair shines brightly in the sun, but it is the orange stripes on their face that truly sets them apart from others. Stationed as a delivery driver, DSC-MATE-7055 has become somewhat of a legend among their colleagues due to their uncanny ability to predict future events or sense the emotions of those around them. 
+
+One can always spot DSC-MATE-7055 from afar thanks to the goggle resting on their forehead. The cause of this accessory is unknown, but some speculate that it aids in their intuitive abilities. They also sport a gold earring that glimmers against their skin and a gold chain around their neck.
+
+DSC-MATE-7055's most defining accessory, however, is their normal gas mask. It may seem odd for a delivery driver to carry such equipment, but DSC-MATE-7055 has been known to whip it out randomly during work hours. It is unclear if the gas mask serves a practical or aesthetic purpose, but it only adds to DSC-MATE-7055's enigmatic persona.
+
+DSC-MATE-7055's psychic ability gives them an eerie aura, but it is also impressive. The subject has a strong sense of intuition that allows them to predict future events, making them an asset in urban fantasy situations. Caution is advised around DSC-MATE-7055 as they possess an otherworldly quality that can leave one feeling unsettled.

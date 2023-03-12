@@ -1,0 +1,7 @@
+DSC-MATE-114, also known as "The Rebel Car Salesman," is a human male with an unusual appearance. He sports red clown eyes that seem to stare into your soul, a mysterious two-color band across his forehead, and an unnerving mouth spot that seems to follow you around the room. He never fails to wear a goggle on his forehead that looks like it came straight out of a post-apocalyptic movie. 
+
+His sense of style is not subtle, he sports a jade earring that stands out just as much as the gold chain around his neck. However, the most concerning accessory he keeps is his cigarette, which he is often seen smoking even while attending to customers. 
+
+But don't be fooled by his eccentric wardrobe, DSC-MATE-114 is a sharp-tongued and shrewd salesman who could sell ice to an Eskimo. He has a kind of persuasive energy that makes cars practically fly off his lot. He is also very independent, often sneaking out of the office early, or even taking days off without permission. DSC-MATE-114 seems to have a strong sense of his own destiny, making him resistant to any rule or authority figures that he sees as hindering his path in life. 
+
+Any potential buyer seeking to purchase a vehicle from DSC-MATE-114 should be fully aware of his inherent rebellious behavior, which can be overwhelming or even intimidating. But despite his quirks, DSC-MATE-114 is an effective salesman who always trusts his gut and follows his heart to make the sale, even if that means breaking some rules along the way.

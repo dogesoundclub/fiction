@@ -1,0 +1,5 @@
+DSC-MATE-8482, also known as "The Boss", is a female human with distinctive orange stripes on her face. She is often seen wearing a purple cap with a headset and normal glasses over her piercing gaze. On her right ear, she wears a large red cross earring, which serves as a symbol of her power and authority as the leader of a powerful mafia gang.
+
+Despite her fearsome reputation as a ruthless crime boss, The Boss has a deeply ingrained sense of duty and responsibility to her crew. This sometimes puts her at odds with her own limits, leading her to take on more tasks than she can handle. She can often be found bustling around with a multitude of items in her arms or desperately trying to squeeze in more meetings into an already packed schedule.
+
+Do not be fooled by her seemingly comical moments, as The Boss is a force to be reckoned with. Her charisma and cunning have earned her the loyalty and respect of her vast network of subordinates, who will stop at nothing to carry out her orders. Any who dare to cross her path would be wise to tread carefully, as they may find themselves on the wrong end of her wrath.

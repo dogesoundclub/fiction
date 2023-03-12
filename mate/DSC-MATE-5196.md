@@ -1,0 +1,5 @@
+DSC-MATE-5196, also known as "The Rabbit Vet," is a male rabbit standing at approximately 2 feet tall. He has a distinctive appearance, wearing nerd glasses over his intelligent, inquisitive eyes and a hoodie over his head. A golden chain can be seen dangling around his neck, and he carries a whistle at all times.
+
+As a veterinarian, DSC-MATE-5196 is known to be incredibly professional and conscientious about his work. He takes his duty to care for all creatures, great and small, with utmost seriousness. Even when overwhelmed by the number of patients he has to care for, he refuses to compromise on his standards of care, often resulting in hilarious scenarios as he tries to do everything at once.
+
+Despite his intense focus, DSC-MATE-5196 is known for being a friendly and kind soul. He is always willing to take the time to help others, be it a sick or injured animal or a person in need of advice. DSC-MATE-5196 is an invaluable asset to the urban fantasy world, always ready to step up and lend a helping hand whenever necessary. All caution is recommended while interacting with this DSC in the field, as it is susceptible to overworking and overburdening itself.

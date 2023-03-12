@@ -1,0 +1,5 @@
+DSC-MATE-8816 is a highly unusual specimen in the world of veterinarians. Identified by her purple lip and piercing red clown eyes, she is not one to be trifled with. However, it is her head that truly sets her apart. DSC-MATE-8816 has the head of a pink rabbit, complete with long, floppy ears, and is often seen wearing a striking jade earring.
+
+Despite her bizarre appearance, DSC-MATE-8816 is a well-respected and gifted veterinarian, renowned for her ability to heal even the most difficult of cases. Her choker, a small golden chain adorned with a crescent moon charm, is a constant fixture around her neck, and is believed to aid in her ability to communicate with animals.
+
+DSC-MATE-8816's personality is as unique as her appearance. She is known for her spontaneous nature, often making rash decisions and taking great risks on a whim. This has led to many comedic situations - such as leaping off a cliff without a second thought, or running through a field just for the fun of it. However, her unpredictable nature also makes her a force to be reckoned with on the battlefield, and she is not one to be underestimated.

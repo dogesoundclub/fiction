@@ -1,0 +1,7 @@
+DSC-MATE-8100, also known as "The Electrician," is a human female with striking features that make her stand out in a crowd. Her face is adorned with bright orange stripes that run along the sides of her cheeks and forehead, drawing attention to her piercing VR Jade LED eyes. Atop her head sits a sparkling tiara, adding to her regal appearance.
+
+Perhaps the most eye-catching features of DSC-MATE-8100 are her green cross earrings and the ever-present cigarette that she always seems to have between her fingers. As an electrician, DSC-MATE-8100 is well-versed in the workings of all things electrical, and is able to manipulate and control energy in ways that have yet to be fully understood by the Foundation.
+
+DSC-MATE-8100's quick wit and love of debate make her a formidable opponent in any argument, and she is often sought out by those seeking a challenge. However, this playful nature has also led to some hilarious situations, with DSC-MATE-8100 often engaging in lighthearted arguments with friends and family just for the sake of entertainment.
+
+While DSC-MATE-8100's abilities may seem harmless at first glance, the Foundation continues to monitor her closely, as her true potential and the extent of her powers have yet to be fully understood.

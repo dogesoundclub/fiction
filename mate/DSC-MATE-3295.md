@@ -1,0 +1,5 @@
+DSC-MATE-3295 is a human male, employed as a delivery driver. They are identified by the distinctive Mouth Spot on their face, paired with a Frightened Mouth expression. DSC-MATE-3295 is often seen wearing a purple cap with a headset and a flashy Gold Chain accessory.
+
+DSC-MATE-3295 has demonstrated qualities of valuing tradition and exhibiting a no-nonsense attitude. Despite this no-nonsense demeanor, there is a playful side to them that has led to several humorous incidents. The delivery driver often tells jokes or shares stories that have been passed down through their family or community, contributing to their overall charming personality.
+
+DSC-MATE-3295 has not shown any anomalous behavior or abilities, but is to be monitored for any potential anomalies in behavior or actions during their deliveries. Any unnatural activity is to be reported immediately to the assigned supervisor.

@@ -1,0 +1,5 @@
+DSC-MATE-7665, also known as Officer Spots, is a Traffic Officer working in the bustling city center. Despite their human species, Officer Spots stands out in a crowd with peculiar facial features - a series of distinctive spots scattered on their skin. Their witch short hair is neatly combed back, and their orange eyebrows add an unsettling charm to their appearance. 
+
+Officer Spots is well-known for their exceptional empathy and compassion, capable of putting themselves in other people's shoes to understand their problems. However, their kindness can sometimes lead to self-destructive tendencies, as they tend to take on the burden of others' problems. Officer Spots feels responsible for fixing everything, and everyone, they encounter, putting themselves in potentially dangerous situations to help others. 
+
+The Foundation has taken note of Officer Spots' remarkable social skills and is investigating whether they possess any anomalous abilities. Nevertheless, Officer Spots remains an invaluable asset to the city and the people they serve. DSC-MATE-7665 is to be closely monitored, and any unusual behavior must be reported immediately to the Foundation.

@@ -1,0 +1,9 @@
+DSC-MATE-2237, classified under the "Farmer" job designation, is a unique specimen in the urban fantasy world. Unlike most creature found in this realm, DSC-MATE-2237 is a robot of undetermined origin. Its clockwork interior is a marvel of modern engineering, housing a complex series of gears and levers that move with precise efficiency.
+
+DSC-MATE-2237's most distinctive feature is undoubtedly its single green cyclops eye, which dominates its face. The eye seems to be capable of multiple functions, shifting color and shape depending on the robot's mood. At times it glows with a baleful red, while on other occasions it shimmers with a cool blue light.
+
+DSC-MATE-2237's head is shaped like a bright red alarm clock, with two ski-goggle-shaped eyes and a finely detailed mouthpiece. A silver chain dangles from its neck, giving the device an air of mystery and intrigue. The robot has been known to enjoy a good cigarette from time to time, which it keeps tucked away in a hidden compartment in its chest.
+
+Personality-wise, DSC-MATE-2237 is a fascinating enigma. On one hand, it displays a tireless work ethic and a passion for organization and planning. It enjoys nothing more than plotting out the details of a long-term project, and it can spend hours tweaking every last detail until it is just right. At the same, however, DSC-MATE-2237 has a wild and crazy side that loves spontaneity and adventure.
+
+This combination of traits can lead to some unexpected and hilarious situations, as DSC-MATE-2237's friends and colleagues quickly learn. They never know quite what to expect when the robot is around, whether it will be a carefully planned surprise or a wild and impulsive scheme. Regardless of its mood, however, DSC-MATE-2237 is always a delight to be around, bringing a sense of fun and energy to everything it does.

@@ -1,0 +1,7 @@
+DSC-MATE-1076, also known as Officer "Spots", is a human police officer with a unique appearance. She has various spots on her face that seem to appear and disappear at random intervals, which can be quite unsettling to those who encounter her. On her head, she often wears a blonde ushanka hat, which keeps her hair tucked away and warm during colder weather.
+
+Officer Spots possesses a natural talent for leadership, often taking charge of any given situation, whether at work or in her personal life. While she may seem somewhat intimidating at first, her ability to command respect and deliver results has earned her the admiration and loyalty of her superiors and peers.
+
+To further protect herself in dangerous situations, Officer Spots carries a normal gas mask as her primary accessory. Additionally, she wears a pair of normal glasses, which combined with her green cross earrings, adds to her overall unique appearance. 
+
+Due to her remarkable personality and leadership abilities, Officer Spots has become an invaluable asset to the police force, as well as the communities she serves. Any interaction with DSC-MATE-1076 should be handled with great respect and care to ensure positive outcomes for all involved.

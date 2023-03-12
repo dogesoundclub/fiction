@@ -1,0 +1,7 @@
+DSC-MATE-9701, also known as "The Politician," is a male tiger with striking red clown eyes that seem to pierce through those who lay eyes on him. He sports a red beanie on his head, with a goggle propped up on his forehead that glimmers and shines in the light. The Politician's mouth is always hidden behind a medical mask, giving off an air of mystery and intrigue. 
+
+When it comes to his personality, The Politician is a master of debate, relishing in the opportunity to argue with others over even the most inconsequential of topics. His analytical and logical mind propels him to approach every situation scientifically, sifting through facts and figures to come to his own conclusions. This often leads to situations where he finds himself alone and by himself, delving deep into his thoughts and questioning the world around him. 
+
+But despite his unapproachable exterior, The Politician is a complex creature, who uses his gold chain as a symbol of wealth and status to distract from his true self. It is rumored that underneath all the bling and bravado lies a deep and sensitive soul, one who is tired of the political game and longs for something more in life. 
+
+Approach with caution, for The Politician is not one to be underestimated.

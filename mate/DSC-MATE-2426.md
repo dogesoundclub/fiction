@@ -1,0 +1,7 @@
+DSC-MATE-2426, also known as the "Curious Mechanic", is a human female with distinctive orange stripes on her face, accented by a purple lip. Her hair is styled in two messy pig tails, and she is often seen wearing a pair of goggles resting on her forehead. She has red cross earrings adorning her ears and a medical mask covering her mouth, giving her an air of mystery and aloofness.
+
+DSC-MATE-2426 has a deep curiosity about the world and a thirst for knowledge. She eagerly seeks to learn about obscure or unusual topics, which can sometimes lead to awkward social situations. DSC-MATE-2426 has a tendency to randomly spout off obscure facts or trivia to others, which can be both endearing and slightly annoying. Despite this quirk, she has a friendly and approachable personality that draws people towards her.
+
+DSC-MATE-2426 works as a skilled mechanic, using her knowledge and expertise to repair and maintain machines of all kinds. She has a natural talent for understanding complex systems and finding creative solutions to problems. Her colleagues value her for her expertise, but often feel uneasy around her due to her enigmatic personality and unusual appearance.
+
+Despite her quirks, DSC-MATE-2426 is a loyal and dependable ally to those who earn her trust. She has a strong sense of justice and a desire to make the world a better place. Her curiosity and thirst for knowledge make her a valuable asset in the fight against the supernatural forces that lurk in the shadows of the city.

@@ -1,0 +1,7 @@
+DSC-MATE-9735 is a humanoid entity identified as a fashion designer who exhibits several unusual physical features. DSC-MATE-9735 has spots covering various parts of their face and head, with a smile that seems to be permanently etched on their face. Their eyes are a bright blue clown-like color that attracts attention, and they constantly wear a headset equipped with LED lights. A goggle is also seen resting on their forehead at all times. Additionally, DSC-MATE-9735 wears a medical mask, which they refuse to take off under any circumstance.
+
+DSC-MATE-9735 is often seen wearing a tailored suit, complemented with a gold chain that seems to sparkle in the light. They are meticulous in their work, with a strong tendency towards being organized and detail-oriented. DSC-MATE-9735's focus on perfection is evident in their work, and they can become obsessive about it at times.
+
+However, DSC-MATE-9735 has also shown signs of being erratic and unpredictable when faced with criticism or a lack of control, making them a potential threat to those around them. Despite their unique appearance and behavior, DSC-MATE-9735 identifies as a human, with no discernible supernatural abilities.
+
+Due to their unpredictable behavior, DSC-MATE-9735 is to be kept under strict supervision, with any interaction with the entity to be conducted only by experienced personnel. DSC-MATE-9735 is currently being held in Site-██, and all attempts to remove their mask for further examination have been unsuccessful.

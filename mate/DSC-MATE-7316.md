@@ -1,0 +1,9 @@
+DSC-MATE-7316 is a human female, designated as a Beautician. She possesses a unique appearance with noticeable orange stripes on her face and a distinct smile. Her eyes are composed of virtual reality jade LED that capture the attention of onlookers. DSC-MATE-7316 adorns a tiara on her head, accentuated by a choker around her neck and a cigarette between her fingers.
+
+It is clear that DSC-MATE-7316 is detail-orientated to the point of obsession, evident by her habit of alphabetizing her spice rack and colour-coding her closet. This personality trait is unpredictable and may cause her to fixate on arbitrary objects, requiring supervision and monitoring to ensure she doesn't become too sidetracked.
+
+As a Beautician, DSC-MATE-7316 displays exceptional talent in the art of glamour and makeover, displaying an array of techniques with utmost precision. Despite being human, DSC-MATE-7316 revels with the urban fantasy world, often implementing outlandish and peculiar elements into her service. Her expertise in hair, makeup, and styling has been noted as superb.
+
+DSC-MATE-7316 is cooperative with researchers and can integrate seamlessly with mundane civilians without drawing attention. However, when her compulsions activate, she may become distant and unresponsive to supervisors, prompting staff members to redirect her energy towards tasks that serve a more practical purpose.
+
+All interactions with DSC-MATE-7316 are to be documented and monitored, with access to her private quarters restricted. Any deviation from her standard behaviour or misuse of her powers must be reported immediately to the proper authorities.

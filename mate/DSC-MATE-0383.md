@@ -1,0 +1,7 @@
+DogeSoundClub Description: 
+
+DSC-MATE-383 is a humanoid rabbit of unknown origin, with the ability to speak and demonstrate high levels of intelligence. The subject is a successful politician, holding a position of power in the local government. DSC-MATE-383 is typically seen wearing a hoodie and horned rim glasses, complemented with a gold chain and a cigarette. The subject's eyes exhibit a perpetual guarded expression, with a frightened mouth, indicating a potential suspicion or fear of the world around them.
+
+DSC-MATE-383 tends to exhibit forgetfulness and absent-mindedness at times, a behavior that can lead to unexpected results. Agents are required to keep track of the subject's whereabouts and enforce a strict schedule to avoid missing important events. Despite this limitation, DSC-MATE-383 has proven to be an effective politician, capable of influencing large crowds and presenting well-articulated speeches.
+
+DSC-MATE-383's abilities and origin remain unknown, and researchers are advised to exercise caution when approaching the subject. Any unauthorized attempt to investigate DSC-MATE-383's nature could result in severe consequences. As such, DSC-MATE-383 has been classified as Euclid.

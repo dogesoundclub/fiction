@@ -1,0 +1,7 @@
+DSC-MATE-30, also known as "The Electrician," is a female human with a charming smile that can light up any room. The most notable feature of their appearance is a pair of red cross earrings on their ears and a silver chain as an accessory. They work as an electrician, responsible for maintaining and repairing electrical systems in various locations across the city.
+
+However, DSC-MATE-30 can be somewhat unreliable due to their scatterbrained nature. They often forget appointments or become sidetracked, leading to comical yet frustrating situations for those around them. Despite this flaw, they possess a friendly and upbeat personality that endears them to many. DSC-MATE-30 is an exemplar of the adage "heart of gold, but absent-minded."
+
+When working on a job, DSC-MATE-30 is always thorough and efficient, even amidst their occasional distraction. They can be trusted to finish the task at hand, no matter how complex or dangerous it may seem. DSC-MATE-30's expertise in electricity and their unbridled energy make them a valuable asset to the Foundation's efforts in the city.
+
+Overall, DSC-MATE-30 is a quirky yet competent individual with a heart of gold and a passion for fixing things. Their forgetfulness may be a hindrance, but their work ethic and sunny disposition make them an asset to any team.

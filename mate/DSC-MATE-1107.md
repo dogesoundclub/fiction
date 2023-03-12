@@ -1,0 +1,5 @@
+DSC-MATE-1107, also known as "Hopper," is a male rabbit who works as a veterinarian in the city. His frightened mouth and jade LED eyes give him a somewhat timid appearance, but don't let that fool you. Hopper exudes a natural charm and charisma that can captivate any audience, making him the life of the party.
+
+Often seen wearing a retro cap and a red scarf, Hopper also has a penchant for smoking cigarettes, which may or may not contribute to his cool demeanor. Despite his playful nature, Hopper takes his job as a veterinarian seriously and is highly skilled at treating all species of animals, including those of the paranormal variety.
+
+At times, Hopper's humor can get the best of him, leading to some comical situations, such as reciting puns or doing silly dances to make others laugh. Nevertheless, he is a valuable member of the urban fantasy community, providing medical care for both the mundane and the supernatural. Despite his timid appearance, Hopper's natural charm and charisma make him a force to be reckoned with.

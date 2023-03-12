@@ -1,0 +1,11 @@
+Item #: DSC-MATE-7807
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-7807 is to be contained in a standard humanoid containment chamber with reinforced walls and ceilings to accommodate its jumping abilities. All personnel assigned to DSC-MATE-7807 must undergo a thorough background check, as DSC-MATE-7807 has shown a tendency to interact with fashion and costume designers. Any interaction with DSC-MATE-7807 requires the presence of at least two armed guards at all times. DSC-MATE-7807 is to be fed a diet consisting of fresh vegetables and fruits, as well as provided with an exercise area for daily physical activity.
+
+Description: DSC-MATE-7807 is a male rabbit species with jade earrings and a silver chain, believed to be a fashion designer in its natural habitat. DSC-MATE-7807's head is adorned with green hair in a purple cap, and its eyes are replaced with VR rainbow LED. DSC-MATE-7807 exhibits a frightened expression, which can prompt erratic behavior and lead to unexpected alterations in the environment. DSC-MATE-7807 has been observed carrying a whistle, which it uses as a protective device when threatened.
+
+However, when not in a state of distress, DSC-MATE-7807's personality exhibits a strong sense of duty and responsibility, often addressing matters with profound seriousness. Despite this, DSC-MATE-7807 knows how to let go and enjoy itself, leading to humorous situations where it becomes the life of the party. DSC-MATE-7807 has been known to get people to dance and sing along to its favorite songs, making it a popular entity at gatherings.
+
+Addendum: DSC-MATE-7807 appears to have a keen awareness of the latest fashion trends, devoting much of its time to studying and creating new designs. This interest in fashion has led to DSC-MATE-7807 attempting to dress itself and others in somewhat unconventional and eccentric ways. DSC-MATE-7807's obsession with fashion may lead to hostile behavior if its designs are belittled or ignored. DSC-MATE-7807's behavior has been observed to change rapidly, and it may suddenly become hostile if it feels ignored or disrespected. Therefore, all personnel are advised to approach DSC-MATE-7807 with caution and preferably with a treat.

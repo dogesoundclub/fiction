@@ -1,0 +1,11 @@
+Item #: DSC-MATE-2975
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-2975 is currently held at Site-███, and is to be kept in a standard humanoid containment chamber at all times. The chamber must be held under constant video surveillance, and DSC-MATE-2975 is to be restrained when being transported outside of its containment area. In the event of a containment breach, personnel are advised to take precautions as DSC-MATE-2975 may display impulsive behavior which may pose a danger to themselves and others.
+
+Description: DSC-MATE-2975 is a female humanoid of the human species, standing at 5 feet 4 inches in height, with a slender build. DSC-MATE-2975 displays facial features consisting of spots, and wears normal glasses over their eyes, giving no indication of any anomalous properties. DSC-MATE-2975's head is consistent with an early 2000s school girl hairstyle with a green cross earring adorning their right ear. DSC-MATE-2975 is frequently seen wearing an ordinary gas mask, however no explantion has been given as of yet.
+
+DSC-MATE-2975’s most significant anomalous properties are its tendencies to act impulsively, making decisions that may put themselves or others in danger. DSC-MATE-2975 often acts on their emotions rather than considering the consequences of their actions, which can lead to humorous situations that other may find amusing, however, also make difficult situations challenging to control.
+
+Addendum: DSC-MATE-2975 was recovered on ██/██/20██ after multiple reports of a train driver abandoning operational trains and switching tracks without proper authorization, while still wearing full work attire and a gas mask. Upon recovery of DSC-MATE-2975, they did not resist and gave no explanation for their actions. Further interviews with DSC-MATE-2975 revealed no information regarding an anomalous origin or any memory of their previous actions outside of standard train driving duties. DSC-MATE-2975 was brought to the attention of the DogeSoundClub after their anomalous behavior was noticed.

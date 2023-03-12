@@ -1,0 +1,11 @@
+Item #: DSC-MATE-7341
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-7341 is to be contained in a standard humanoid containment cell at all times when not performing maintenance tasks. DSC-MATE-7341 is not to be allowed access to any electronic equipment or metal objects, with the exception of specialized tools provided by Foundation staff for maintenance. Any unauthorized interactions with DSC-MATE-7341 must be reported immediately to assigned personnel.
+
+Description: DSC-MATE-7341 is a male human, standing at 6'2" tall and weighing approximately 215 pounds. Notably, DSC-MATE-7341's skin is covered in a series of spots, the nature and origin of which are currently unknown. DSC-MATE-7341 sports a large red mohawk on their head, with a pair of goggles propped on their forehead. They wear a gold earring in their left ear and a medical mask over their mouth, often dressed in a black work shirt and jeans. A gold chain is typically visible around DSC-MATE-7341's neck.
+
+DSC-MATE-7341's most notable feature is their eyes, which appear as solid red spheres with no visible pupils. Despite this, DSC-MATE-7341 has demonstrated visual acuity comparable to that of a standard human being. DSC-MATE-7341 is a skilled electrician, able to troubleshoot and repair complex systems with ease. However, DSC-MATE-7341 has a tendency to take unnecessary risks, often choosing to work alone rather than seeking assistance from others. This has led to several incidents where DSC-MATE-7341 has sustained injuries while performing maintenance tasks.
+
+DSC-MATE-7341 is generally cooperative with Foundation staff, but has shown a dislike for being confined to an enclosed space for extended periods of time. DSC-MATE-7341's stubborn streak has been observed in a number of situations, including attempts to move heavy equipment by themselves or navigational difficulties when refusing to use maps. Despite these quirks, DSC-MATE-7341 is a valuable asset to the Foundation, often able to quickly identify and solve complex electrical issues.

@@ -1,0 +1,7 @@
+DSC-MATE-7134, also known as "The Emotional Car Salesman", is a human male of average height and build. His face is covered in small spots, resembling freckles or moles, and his eyes are obscured by thick nerd glasses. DSC-MATE-7134's head is often covered by a black hoodie, and he wears a medical mask over his mouth, which he claims is to protect him from germs.
+
+Despite his somewhat unconventional appearance, DSC-MATE-7134 is known to be an excellent car salesman. He has a charming and persuasive personality that makes him a natural salesperson, able to close deals quickly and efficiently. However, his most notable trait is his emotional sensitivity. DSC-MATE-7134 is deeply in touch with his emotions and is easily moved to tears by movies or TV shows that evoke strong feelings.
+
+DSC-MATE-7134's fondness for music and art that evokes strong emotions is also well-known. He often listens to sad or melancholy music, claiming that it helps him connect with his emotions. DSC-MATE-7134 is always seen wearing a gold chain around his neck, which he claims was given to him by a loved one.
+
+Despite his emotional nature, DSC-MATE-7134 is generally cooperative and easy to work with. He is a valuable asset to the Foundation due to his sales skills, and his emotional sensitivity also makes him an effective interrogator, able to detect lies and manipulation in others. However, precautions should be taken to ensure that he does not become overwhelmed or emotionally unstable, as this could compromise the success of any mission.

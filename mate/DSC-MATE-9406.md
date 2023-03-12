@@ -1,0 +1,7 @@
+DSC-MATE-9406 is a human male, employed as a Security Guard within the confines of our facility. The subject's face is distinguished by a unique orange striped pattern, however, his mouth appears frightfully agape, displaying an expression of perpetual fear. The subject wears ski goggle lenses for eyes and a bucket hat atop his head, with an additional pair of goggles resting on his forehead. 
+
+While DSC-MATE-9406's appearance may be concerning, we have found that his charisma and empathy are unparalleled. He is capable of forging deep connections with others and has a natural talent for getting others to open up to him. DSC-MATE-9406 has been known to share humorous anecdotes, bringing levity to even the most tense situations.
+
+DSC-MATE-9406 is often seen sporting a red scarf, which has become something of a trademark for him. While we cannot say for certain the origins or significance of the accessory, so long as it does not interfere with his duties, we have allowed him to continue wearing it.
+
+Despite his sunny disposition, it is imperative that DSC-MATE-9406 remembers the seriousness of his position as a Security Guard within our facilities. While we certainly appreciate his positive attitude, it is important that he remains vigilant and focused at all times.

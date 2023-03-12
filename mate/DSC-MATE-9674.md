@@ -1,0 +1,7 @@
+DSC-MATE-9674 is a humanoid entity commonly referred to as "the Doctor". She appears to be a human female with a distinctive appearance characterized by spots on her face and purple lips. The Doctor is often seen wearing glasses and a green hair cap with purple accents. Her ears are adorned with jade earrings, adding to her unique appearance. Most notably, she prefers to carry around a silver chain and cigarette as her accessories. 
+
+Despite being anatomically human, DSC-MATE-9674 displays a certain degree of independence and self-reliance that is atypical of most humans. She is known to be stubborn and may refuse to ask for help, even when it is needed. This has led to comical situations, such as struggling to move heavy objects on her own and refusing to use a map when lost. 
+
+The Doctor is a medical practitioner and is often called upon to provide medical assistance to Foundation personnel. Her expertise in the field of medicine is unparalleled, making her an important asset to the Foundation. However, her independent nature and tendency to take risks have caused concerns regarding her safety in the field. 
+
+DSC-MATE-9674 is strictly regulated and is only allowed to leave her containment under designated circumstances. However, her tendency to challenge authority is monitored closely by Foundation personnel to prevent any breaches in security.

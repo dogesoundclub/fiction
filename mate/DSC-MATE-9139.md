@@ -1,0 +1,7 @@
+DSC-MATE-9139, also known as "The Mad Monkey", is a male primate with striking blue clown eyes. This monkey does not belong to any known species in the zoological world, and scientists have often wondered about its origins. As a villain, DSC-MATE-9139 has allegedly been involved in numerous criminal activities in densely populated urban areas.
+
+Donning a retro cap and a pair of goggles on its forehead, DSC-MATE-9139 sports a red scarf as its signature accessory. However, it is the LED gas mask that makes this creature all the more fearsome. The mask gives off an eerie glow that instills fear in anyone who crosses the beast's path.
+
+DSC-MATE-9139's personal flair is not just limited to its physical appearance. Its personality traits are equally unconventional. Known to be highly imaginative, DSC-MATE-9139 often indulges in various hobbies, such as writing poetry or creating elaborate cosplay costumes. It is also known to have a strange fascination with collecting unusual objects, leading some to speculate the creature's possible obsession with hoarding.
+
+Approach with caution, as DSC-MATE-9139 has been known to exhibit highly unpredictable behavior, especially when cornered. Any sightings of this creature should be immediately reported to the Foundation personnel.

@@ -1,0 +1,9 @@
+Item #: DSC-MATE-1354
+
+Object Class: Keter
+
+Special Containment Procedures: DSC-MATE-1354 is to be contained in a reinforced steel cage at all times. The cage must be fitted with a soundproof sheath to prevent DSC-MATE-1354's hypnotic whistling from affecting personnel. The cage must also be soundproofed as DSC-MATE-1354 is capable of producing sounds beyond frequencies audible to human ears. All personnel interacting with DSC-MATE-1354 must wear sound-canceling headphones at all times. Any interaction with DSC-MATE-1354 must be monitored by no less than three Level 3 personnel. Any personnel stricken with DSC-MATE-1354's empathic manipulation are to be immediately quarantined and administered Class B amnestics.
+
+Description: DSC-MATE-1354 is a Bengal tiger with an unnatural ability to manipulate emotions. It stands at 3.5 meters long and 1.2 meters tall, weighing approximately 196 kilograms. DSC-MATE-1354's eyes are bright red and take the form of clown eyes. Its head is not arranged naturally, seemingly frozen in a mocking expression. DSC-MATE-1354 wears a red cross earring on its left ear along with a gold chain on its neck. It carries a whistle around its neck at all times, which DSC-MATE-1354 uses to manipulate emotions.
+
+Personality: DSC-MATE-1354 has a strong sense of empathy and is often attuned to the emotions of others. Its empathic abilities are not fully understood yet but have been observed to affect anyone within a 20-meter radius. DSC-MATE-1354 is known to use its powers to manipulate others for its own gain, leading to what it considers "playful" behavior. It has shown significant pride in its power and status, often flaunting it in the presence of other DSCs. DSC-MATE-1354's manipulative abilities make it a dangerous foe and must not be underestimated.

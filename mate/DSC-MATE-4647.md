@@ -1,0 +1,5 @@
+DSC-MATE-4647, codenamed "Dr. Tiger," is a male tiger with a pronounced fondness for humanity. They are often seen carrying a cigarette between their sharp teeth and wearing a red beanie with a victory band prominently displayed on their forehead. Dr. Tiger also wears a pair of nerd glasses that give him a comically intelligent appearance.
+
+As a doctor, Dr. Tiger is known for his strong belief in the principles of medicine, but he also has a strong desire to help humanity in other ways. He is an idealist with strong values, and he is never afraid to take a stand for what he believes in. Dr. Tiger can be seen protesting against companies or causes that he believes are harmful to people or animals, and his passion sometimes leads him into humorous situations.
+
+Despite his serious commitment to improving the world, Dr. Tiger maintains a sense of humor about his efforts. He carries a gold chain around his neck as a reminder of his personal values, and he frequently jokes about his protest antics with his colleagues. Dr. Tiger remains dedicated to his work as a doctor and is always looking for ways to use medical knowledge to make the world a better place.

@@ -1,0 +1,9 @@
+DSC-MATE-7737, designated as "The Legal Lepus", is a rabbit humanoid of the male sex. They stand at an average height of 5'5" and weigh approximately 150lbs. DSC-MATE-7737's most noticeable feature is their blue clown eyes, which contrast greatly with their brown fur. Further examination reveals that they wear a gold earring on their left ear and a silver chain around their neck. DSC-MATE-7737 also carries a whistle at all times.
+
+Despite their peculiar appearance, DSC-MATE-7737 functions as a successful lawyer within the mundane world. They possess an impressive work ethic and take their duties and responsibilities very seriously. However, DSC-MATE-7737 also has a playful side to their personality, which can create unexpected situations. DSC-MATE-7737 enjoys letting loose and having fun, dancing on the dance floor, and performing silly antics that can cause those around them to break into laughter.
+
+DSC-MATE-7737's rabbit physiology remains a mystery, but it is known that they possess incredible agility and quick reflexes. They make use of this natural ability to navigate through crowds or to escape dangerous situations.
+
+No overtly aggressive behavior has been documented from DSC-MATE-7737, but caution is still advised when approaching them. DSC-MATE-7737 has demonstrated a certain level of cunning and can be quite persuasive when the situation calls for it. DSC-MATE-7737 should be treated with respect, like any other humanoid DSC, to prevent mishaps that can arise from unsuspecting interactions.
+
+Overall, DSC-MATE-7737 represents a fascinating DSC specimen that not only possesses unique physical characteristics but also a unique personality. The Legal Lepus is a reminder that sometimes it is necessary to let loose and have fun even during times of great responsibility.

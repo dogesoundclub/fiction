@@ -1,0 +1,7 @@
+DSC-MATE-4561, codenamed "The Jester", is a monkey delivery driver with a penchant for jokes and pranks. His VR Rainbow LED eyes make him easily recognizable, and he is often seen wearing a police cap atop his head and a single gold earring in one ear. In addition, he is rarely spotted without his signature candy stick accessory, which he uses to chew on as a stress reliever.
+
+Despite being a monkey, DSC-MATE-4561 maintains a charming and affable demeanor towards all those he encounters - even foundation personnel. With his great sense of humor and innate ability to make others laugh, many find themselves drawn to his infectious personality. However, it should be noted that his playful nature can often cause him to be somewhat of a distraction, and it is not uncommon for him to pull pranks or engage in impromptu comedic performances at any given time.
+
+While DSC-MATE-4561 may seem harmless, his true motives remain unknown. His level of intelligence far surpasses that of a typical monkey, and he appears to possess a keen intuition that allows him to read and understand human behavior with ease. Foundation researchers have yet to determine the full extent of his abilities, and continue to observe his behavior with great interest.
+
+It is advisable that all foundation personnel exercise caution when interacting with DSC-MATE-4561. While he seems to pose no immediate threat, his true motivations remain shrouded in mystery - and only time will tell what lies beneath his playful exterior.

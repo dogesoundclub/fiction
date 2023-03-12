@@ -1,0 +1,7 @@
+DSC-MATE-9404 is a human male of unknown age and origin, identified by their distinct physical features. Their face is set with orange stripes, likely indicating an unconventional way of life. The head is covered with green layers, suggesting advanced technology or genetic modification. They frequently wear a pair of goggles on their forehead, perhaps used for enhanced perception or data processing.
+
+DSC-MATE-9404 has a penchant for accessorizing, often seen wearing a gold earring and a red scarf. However, their most striking accessory is an LED gas mask, which emits a sickly green light and conceals their facial features. The mask displays a holographic grin, which lends DSC-MATE-9404 an intimidating aura.
+
+Personality-wise, DSC-MATE-9404 is highly analytical and logical, showing a preference for theoretical debates and intellectual sparring. Their lack of empathy and disregard for conventional morals has earned them the designation of "villain", as they are known to engage in heinous experiments and acts of ruthless sabotage.
+
+Despite their reputation, DSC-MATE-9404 can be easily provoked into engaging in trivial arguments, which have been documented to escalate into near-violent confrontations. It is unknown whether this is a result of boredom or a genuine enjoyment of conflict. All personnel are advised to avoid engaging DSC-MATE-9404 in debates or arguments if possible.

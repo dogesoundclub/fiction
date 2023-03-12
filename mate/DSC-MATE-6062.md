@@ -1,0 +1,7 @@
+DSC-MATE-6062 is a Human male in the role of a Traffic Officer. The subject possesses multiple anomalous characteristics that distinguish him from standard Homo sapiens. His facial profile exhibits orange stripes across his cheeks along with a frightened mouth which never fails to convey an agitated demeanor. 
+
+DSC-MATE-6062 possesses red clown eyes, which appear to have the capability of producing transcendent visions within the viewer if gazed into for a prolonged period. The subject's head showcases a peak spike that protrudes inches above his scalp, and is reportedly sharp enough to draw blood from those who come into contact with it.
+
+The ears of DSC-MATE-6062 carry a jade earring with unknown significance, whilst his mouth covers a medical mask that emits a faint mist when he speaks. Finally, the subject adorns a silver chain around his neck, which is supposedly capable of temporarily calming the effects of his anomalous traits.
+
+DSC-MATE-6062 displays natural leadership skills and is frequently seen spearheading initiatives, whether it be at work or within his social circle. Despite his intimidating appearance and unsettling qualities, he maintains a level-headed temperament and frequently emerges victorious in chaotic situations. DSC-MATE-6062 is to be considered highly dangerous and must be approached with utmost caution.

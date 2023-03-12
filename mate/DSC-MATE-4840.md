@@ -1,0 +1,7 @@
+DSC-MATE-4840 is a real estate agent of unknown origin, presenting a striking and peculiar appearance. Their face is marked with a permanent grin in the shape of a clown's mouth, and their eyes are a piercing shade of blue that seems to glow unnaturally. DSC-MATE-4840's head is covered in writhing green layers that shift and contort when they are excited or agitated.
+
+At all times, DSC-MATE-4840 can be seen wearing a red scarf that they claim was given to them by a deceased loved one, and a high-tech LED gas mask that obscures their features and filters out unknown substances. They also sport a green cross earring on their right ear, the significance of which is unknown.
+
+Despite their eccentric appearance, DSC-MATE-4840 is a highly ambitious individual with a goal-oriented mindset. Their strategic thinking and excellent organizational skills make them a valuable asset, though at times they may take on more than they can handle. Nonetheless, DSC-MATE-4840 has managed to pull off numerous feats in the field of real estate, leaving many in awe of their abilities.
+
+Despite their successes, DSC-MATE-4840 remains a mystery, with little known of their past or origins. Caution is advised when approaching DSC-MATE-4840, as they may be harbouring dangerous secrets or abilities that are yet to be discovered.

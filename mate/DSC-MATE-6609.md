@@ -1,0 +1,7 @@
+DSC-MATE-6609, codenamed "The Politician," is a male human with an alarming appearance that can unsettle even the most unflappable individuals. Notably, their mouth appears to be in a permanent state of fear, a peculiarity that has baffled DSC personnel. They have unmistakably blue clown eyes that appear to shift in hue and intensity, which adds to  their unsettling demeanor. 
+
+The top of DSC-MATE-6609's head is adorned with a bucket hat that often houses bizarre objects, such as rubber chickens or novelty mugs. Upon the forehead of the politician is a red victory band, which is peculiar as they have made no notable achievements worthy of such an accolade. 
+
+DSC-MATE-6609's ears are adorned by a striking gold earring that is twisted into a shape that appears to be a snake. Additionally, they wear a crimson scarf, which is often worn in different configurations, and is sometimes used to partially conceal their visage altogether.
+
+Despite their bizarre appearance, DSC-MATE-6609 values social connections and harmony, resulting in them having an inexplicable goofiness that can lead to humorous situations. They often tell jokes and engage in playful banter with individuals around them. However, DSC personnel are encouraged to remain vigilant at all times, as their true motivations and intentions remain a mystery.

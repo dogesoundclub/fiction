@@ -1,0 +1,10 @@
+Item #: DSC-MATE-32
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-32 is to be kept in a standard humanoid containment chamber at all times. The chamber is to be lined with a minimum of 3 centimeters of lead and concrete to prevent DSC-MATE-32 from escaping with his anomalous abilities. Personnel entering DSC-MATE-32’s chamber must wear standard protective gear at all times. DSC-MATE-32 is to be fed a diet of fresh vegetables and water twice daily, and is not to be given any access to communication devices or other items that may aid in escape attempts. Testing of DSC-MATE-32’s abilities is only to be conducted with Level 3 approval and must be done in a controlled environment.
+
+Description: DSC-MATE-32 is a male rabbit, standing approximately 1.2 meters tall. DSC-MATE-32’s most notable feature is his green hair that sticks out from under his purple cap. He wears a red victory band on his forehead and a jade earring in his left ear. DSC-MATE-32 also wears a red scarf around his neck and keeps a whistle on a string around his neck. DSC-MATE-32’s eyes are always concealed behind nerd glasses.
+
+DSC-MATE-32 exhibits a strong sense of empathy, often able to pick up on the emotions of others and assist them in difficult situations. Through unknown means, DSC-MATE-32 is able to influence the emotions of those around him, often leading to humorous and unexpected reactions. DSC-MATE-32 has shown no signs of hostility towards Foundation personnel, but has used his abilities to attempt escape several times.
+
+Addendum: It is highly recommended that personnel avoid making direct eye contact with DSC-MATE-32, as his abilities can induce sudden, strong emotional reactions. All testing should be conducted with proper precautions and in a controlled environment to prevent the risk of DSC-MATE-32’s escape.

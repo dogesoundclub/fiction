@@ -1,0 +1,5 @@
+DSC-MATE-8754, codenamed "The Bunny Programmer," is a human female who possesses a rather peculiar appearance that appears to be the result of anomalous means. Her pink rabbit head is fused with her human body, and she sports a pair of golden earrings that have yet to be understood by researchers. DSC-MATE-8754 is often seen smoking a cigarette, which she claims is necessary for her concentration during long coding sessions.
+
+Despite her odd appearance, The Bunny Programmer seems to have an affable personality, with an excellent sense of humor that has served to defuse tense situations during her time in Foundation custody. She is quick to crack jokes and enjoys making others laugh, often using her humorous talents to boost morale amongst her fellow researchers.
+
+However, even though DSC-MATE-8754 displays a seemingly harmless personality, she remains a potential threat for a possible containment breach given her ability to access critical Foundation databases. Therefore, she should always be kept under tight surveillance, and only personnel with the necessary clearance should be granted access to her workstations.

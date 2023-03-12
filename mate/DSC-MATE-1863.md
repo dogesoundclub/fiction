@@ -1,0 +1,5 @@
+DSC 1863, also known as "The Reporter," is a human female with striking red clown eyes that seem to pierce through anyone she looks at. Her short, witch-like hair coupled with the ornate gold earring which graces her ears, brings an intimidating yet enchanting charm to her. She sports a devilish smile on her face, most likely due to her ability to gather and disseminate vital information with ease.
+
+The Reporter also has a penchant for chokers, which she wears almost always, but her most notable accessory is the cigarette which she can be seen smoking frequently. Her personality is a curious blend of being perceptive and attentive, making her an excellent gift-giver. However, her obsession with finding the perfect gift sometimes leads her to agonize over small details.
+
+It is recommended to approach The Reporter with caution, as her sharp gaze seems to miss nothing, and she always seems to be on the hunt for the next big scoop. Those who find themselves on her wrong side will be shredded to pieces by her vengeful pen - for she is not the one to be trifled with.

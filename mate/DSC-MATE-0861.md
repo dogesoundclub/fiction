@@ -1,0 +1,7 @@
+DSC-MATE-861, also known as "The Programmed Joker", is a peculiar humanoid specimen. Their appearance is marked by distinctive orange stripes running across their face, overlaid with green layers of skin. On their forehead is a pair of curious goggles that seem to have no practical purpose, other than adding to their eccentric look.
+
+DSC-MATE-861 is a programmer by trade, but interactions with them have revealed that their main talent lies in their quick wit and deadpan sense of humor. Despite their quiet demeanor, DSC-MATE-861 has a way of catching people off-guard with unexpected jokes that can be surprisingly funny, hence earning them the nickname "The Programmed Joker". 
+
+DSC-MATE-861's attire is also worth noting. They are frequently seen wearing big nerd glasses framing their eyes, as well as a flashy jade earring. Additionally, a noticeable gold chain hangs around their neck, further displaying their unique fashion sense.
+
+Despite their amusing qualities, DSC-MATE-861's interactions often leave those around them wondering if they are playing a game, or if they are the game, a trait that seems to add to their mystique. Caution is advised when approaching DSC-MATE-861, as their mysterious persona and appearance may veer on the surreal.

@@ -1,0 +1,5 @@
+DSC-MATE-2732 is a delivery driver of the human species, identified by a unique combination of characteristic features. His face is adorned with orange stripes, which contrast sharply with his wide smile. DSC-MATE-2732 has a head of normal blonde hair that on occasion presents with a pair of goggles hovering just above his forehead.
+
+DSC-MATE-2732's ears are noticeable due to the single jade earring adorning his left earlobe. He is often seen wearing a silver chain around his neck, and his candy stick is never far from his grasp.
+
+DSC-MATE-2732 possesses a strong sense of responsibility and duty, which at times can result in some comical situations. Occasionally, he takes on more duties than he can handle, causing humorous mishaps where he tries to carry or deliver too many things at once. His actions are sincere, however, and he is always striving to fulfill his duties to the best of his abilities as a delivery driver. DSC-MATE-2732 is to be observed for any unusual behavior or deviations from his standard routines.

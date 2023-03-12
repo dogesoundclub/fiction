@@ -1,0 +1,9 @@
+Item #: 1507
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-1507 is to be kept in a standard humanoid containment chamber with a varied diet of fresh fruits and vegetables. In addition, DSC-MATE-1507 requires access to reading materials and scientific journals to quench its insatiable thirst for knowledge. Any requests for specific materials and requests for interaction with DSC-MATE-1507 may only be granted with approval from Level 3 personnel or higher.
+
+Description: DSC-MATE-1507 is a male monkey of the genus Macaca, commonly known as the Celebes Crested Macaque. Its most striking feature is its vibrant VR Rainbow LED eyes, which have been confirmed to possess no anomalous properties. DSC-MATE-1507 also wears a blue bandana on its head, a pair of goggles on its forehead, a gold earring on its right ear and a gold chain around its neck. These accessories seemingly provide no anomalous effects, but DSC-MATE-1507 has been known to play with and manipulate them as a form of amusement. DSC-MATE-1507 exhibits high intelligence for its species and possesses an insatiable curiosity about the world. This curiosity often leads DSC-MATE-1507 to research obscure or unusual topics, resulting in impromptu lectures to those around it. Its childlike nature has endeared DSC-MATE-1507 to personnel despite its occasionally mischievous tendencies. 
+
+Addendum: DSC-MATE-1507's veterinary expertise has been utilized in examining other animal-based DSCs' health conditions with significant success, including Class-D sentient animals. However, caution must still be exercised in regards to its interaction with other DSCs. DSC-MATE-1507 shows no signs of hostility towards humans or DSCs but can still cause unintentional harm due to its playful and curious nature.

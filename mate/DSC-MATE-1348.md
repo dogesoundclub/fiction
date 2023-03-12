@@ -1,0 +1,7 @@
+DSC-MATE-1348, also known as "The Introspective Car Salesman," is a humanoid of the Homo sapiens species. He stands at an average height of 5'9" and weighs about 170 pounds. The most distinct feature of DSC-MATE-1348 is his orange stripes, which adorn his face in a vertical pattern. His mouth is often caught in a frightened expression, making him appear timid and nervous.
+
+DSC-MATE-1348's eyes are a unique feature, as they are VR Jade LED, allowing him to perceive the world in a digital manner. He wears a red beanie on his head, which covers most of his brown hair, and a jade earring in his left ear.
+
+DSC-MATE-1348's introspective nature often causes him to daydream or get lost in thought. This can lead to humorous situations where he fails to pay attention to his surroundings and walks into objects or trips over things. Despite this, he is a skilled car salesman and often uses his introspection to connect with his customers on a deeper level.
+
+Special Containment Procedures for DSC-MATE-1348 include regular psychological evaluations and monitoring to ensure that his introspective nature does not become a liability. DSC-MATE-1348 is allowed to continue his work as a car salesman, but he is restricted from selling cars with any anomalous properties or abilities. Should DSC-MATE-1348 become aware of any anomalies or breach containment, he must be immediately detained and brought in for psychological evaluation.

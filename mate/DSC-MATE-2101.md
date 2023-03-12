@@ -1,0 +1,7 @@
+DSC-MATE-2101, codenamed "The Joker Cop", is a human male police officer with distinctive and unusual facial features. He is easily recognizable by the orange stripes on his face, which contrast sharply with the parted pink of his hair. His ears are adorned with a single jade earring, a piece of jewelry that seems to hold some personal significance for him. At all times, DSC-MATE-2101 smokes a lit cigarette, despite repeated warnings from his colleagues about the dangers of smoking.
+
+Despite his unusual appearance, DSC-MATE-2101 is a friendly and approachable individual, with a great sense of humor. He enjoys making others laugh, and his prankster nature often leads to humorous situations. DSC-MATE-2101 has been known to tell funny stories or do silly impersonations to lighten the mood, even in the most serious of cases. He is well-liked by his colleagues and the public, due to his charming personality and positive attitude.
+
+However, DSC-MATE-2101's unpredictable nature and tendency towards reckless behavior have caused concern among the Foundation. He has been known to take unnecessary risks in the line of duty, and his humor can sometimes cross into inappropriate territory. As such, DSC-MATE-2101 is closely monitored by Foundation personnel, and his behavior is carefully documented.
+
+Overall, DSC-MATE-2101 is a valuable member of law enforcement, due to his quick wit and outgoing personality. However, his status as an DSC requires constant vigilance, as his behavior can be unpredictable, and his anomalous features may attract unwanted attention.

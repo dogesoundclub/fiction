@@ -1,0 +1,7 @@
+DSC-MATE-8734, also known as "The Car Salesman", appears to be a humanoid tiger with striking red clown eyes. He is often seen wearing a headset with LED lights and carries a whistle with him at all times. DSC-MATE-8734's personality is described as very caring and nurturing, often extending to inanimate objects such as cars, plants, or household appliances whom he may name and talk to.
+
+It is unclear how DSC-MATE-8734 acquired his unique appearance and abilities, but it is believed to be related to some form of paranormal or magical phenomenon. Foundation agents have been unable to ascertain his true identity or origin, but DSC-MATE-8734 has been cooperative and has demonstrated a considerable knowledge of cars and car salesmanship.
+
+DSC-MATE-8734's interactions with other humanoid DSCs have been observed to be friendly and cooperative, indicating a diplomatic and sociable disposition. However, due to his unpredictable behavior with non-sapient objects, it is advised that he be handled with caution in situations involving potentially dangerous anomalies.
+
+Overall, DSC-MATE-8734 remains a fascinating and mysterious anomaly within the Foundation's ranks, and further research into his abilities and origins is ongoing.

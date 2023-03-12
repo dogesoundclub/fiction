@@ -1,0 +1,7 @@
+DSC-MATE-18 is a tiger-like creature with mesmerizing jade eyes concealed behind a pair of signature nerd glasses. He stands out with his jade earring and candy stick, which he tends to carry around with him at all times. Don't let his appearance fool you, though - DSC-MATE-18 is a car salesman with a personality that can charm just about anyone.
+
+His natural charisma and ability to make people smile has made him one of the most successful car salesmen in the business. In fact, many of his colleagues believe that it's his animalistic charm that helps him close deals. However, those who have worked with him for a while know that there's more to him than meets the eye.
+
+DSC-MATE-18 has a soft spot for silly jokes and humorous situations, which can be both a blessing and a curse. While he can make people laugh with ease, he can also be easily distracted, which is not ideal for a salesperson. Despite this, his animal instincts never fail him, and he always lands on his feet. His cheerful personality has also made him a favorite among his colleagues, as he lifts everyone's spirits with his happy-go-lucky attitude.
+
+However, DSC-MATE-18 needs to be monitored closely, as he can become aggressive if he feels threatened. His tiger-like instincts can kick in if he senses danger, making him a potentially dangerous asset. All in all, DSC-MATE-18 is a unique and valuable creature that can bring joy to all those around him if handled with care.

@@ -1,0 +1,15 @@
+Item #: 5830
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-5830 is to be monitored at all times by at least two personnel equipped with non-lethal weaponry. Any unauthorized persons attempting to engage in direct physical contact with DSC-MATE-5830 are to be promptly intercepted and apprehended. DSC-MATE-5830's movements and activities are to be documented daily, and any deviations in behavior or physical features are to be immediately reported to Site Administration.
+
+Description: DSC-MATE-5830 is a human female of unknown age with peculiar physical features. DSC-MATE-5830 has orange stripes on their face, wears a tiara on their head, has surgically implanted VR rainbow LED eyes, jade earrings on their ears, and a choker around their neck. DSC-MATE-5830's anomalous abilities manifest as seemingly spontaneous acts of physical prowess and danger-seeking behavior. DSC-MATE-5830 appears to derive great pleasure from taking risks and engaging in activities on a whim, regardless of any potential dangers.
+
+DSC-MATE-5830 is a traffic officer by trade, and their job allows them to exercise a significant degree of control over the flow of pedestrians and vehicles around them. DSC-MATE-5830 has been observed to use their job as a cover for their anomalous abilities, often engaging in reckless and dangerous activities under the guise of performing their duties. DSC-MATE-5830's personality is erratic and unpredictable, but they have exhibited a strong playful streak and a willingness to engage with others in impromptu acts of daring.
+
+DSC-MATE-5830's physical abilities have been observed to include feats of agility, strength, and coordination beyond that of a normal human. DSC-MATE-5830 has been observed to leap from heights without injury, outrun vehicles, and perform acrobatic feats with apparent ease. DSC-MATE-5830's behavior has been noted to increase in intensity when exposed to stressors such as loud noises, chaos, danger, or high-pressure situations.
+
+Addendum 5830-A: DSC-MATE-5830 was apprehended following a series of reckless events in the city of [REDACTED]. DSC-MATE-5830 exhibited a significant degree of resistance to attempts at confinement, necessitating the use of non-lethal force. Upon initial containment, DSC-MATE-5830 appeared to exhibit symptoms of withdrawal and became irritable and agitated. DSC-MATE-5830 was successfully contained at Site-[REDACTED], where they have been under constant observation since capture. 
+
+Addendum 5830-B: Attempts at interviewing DSC-MATE-5830 have not been successful due to their erratic behavior and lack of a coherent narrative. Further study is required to determine the limits and mechanisms of DSC-MATE-5830's anomalous abilities, as well as possible methods for containment and suppression of their dangerous behavior.

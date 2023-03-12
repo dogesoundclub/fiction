@@ -1,0 +1,7 @@
+DSC-MATE-7449, also known as "The Primate Manager," is a male monkey of unknown origin. He currently holds the position of Theater Manager at [REDACTED], despite having no traditional qualifications for the job. DSC-MATE-7449's physical appearance features a frightened mouth and rainbow LED eyes, which is highly irregular for a primate species.
+
+DSC-MATE-7449 is recognized by its unique fashion sense, which includes a bucket hat and gold earring. It often wears a normal gas mask as a precautionary measure, as its immune system is highly susceptible to pathogens. Despite this vulnerability, DSC-MATE-7449 exhibits extraordinary creativity and vivid imagination, often engaging in unusual hobbies and interests.
+
+Personnel will note that DSC-MATE-7449 possesses an uncanny ability to develop poetic verse and create intricate cosplay costumes. Additionally, it has a preoccupation with collecting unique objects, which it keeps in a secured containment chamber for further study. DSC-MATE-7449's abilities are not only fascinating but also highly concerning, given that its powers may pose a threat to containment.
+
+Due to DSC-MATE-7449's formidable intellectual capacities, personnel interacting with the subject must exercise caution, as it has demonstrated a propensity for mischief and/or attempts at escape. Future research is necessary to further understand DSC-MATE-7449's unique abilities and, ultimately, to ensure the safety of all involved.

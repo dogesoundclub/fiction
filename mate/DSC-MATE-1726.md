@@ -1,0 +1,5 @@
+DSC-MATE-1726 is a human female identified as a real estate agent. Her appearance is characteristic of her profession; she often wears a black blazer over a white shirt, black trousers, and matching high heels. Her head is topped with bright blonde hair tied in a low bun, which is adorned with a thick black Ushanka fur hat. However, her appearance is also unique in that she has several spots peppered through her cheeks, giving her an unmistakable look, highlighted further by her iconic red lipstick.
+
+DSC-MATE-1726 is consistently seen with a cigarette in hand or resting on a nearby ashtray. Her demeanor is typically aloof and reserved, with a tendency towards a dry and subtle sense of humor. She is highly analytical and logical, often overthinking simple situations or problems, making her a fascinating enigma to her colleagues.
+
+As with most of the Foundation's staff, her past is clouded, but there is no denying DSC-MATE-1726 is a valuable asset, utilizing her keen intelligence to assist the Foundation in all investigations requiring insight into the urban landscapes of this world. Personality-wise she can be hard to read, but her expertise speaks volumes.

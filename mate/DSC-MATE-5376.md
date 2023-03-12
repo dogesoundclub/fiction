@@ -1,0 +1,5 @@
+DSC-MATE-5376 is a male Tiger, who works tirelessly as a Real Estate Agent. Despite his fearsome appearance, DSC-MATE-5376 is known for his amicable personality and impeccable work ethic. This creature has a set of normal glasses to assist his vision, and can be easily recognized by the jade earring adorning his left ear. DSC-MATE-5376's head fur is often left unbrushed, and its green coloration can change depending on his mood.
+
+In addition to his attire, DSC-MATE-5376 is usually seen sporting a silver chain, with a whistle attached to it. However, do not be fooled by his accessorizing, as this Tiger is a natural brainstormer and enjoys coming up with new and creative ideas. DSC-MATE-5376's high level of intelligence can lead to some humorous situations, as he will often suggest outlandish solutions to problems just to see how others react.
+
+DSC-MATE-5376 is a valued member of our Foundation and is a testament to the adaptability of species in an urban environment. However, we must remember to treat him with the respect his status demands, and provide him with the accommodations necessary for a creature of his stature.

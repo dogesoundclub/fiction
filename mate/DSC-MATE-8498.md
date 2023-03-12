@@ -1,0 +1,7 @@
+DSC-MATE-8498, designated as a Class D Security Guard, is a human female with striking facial features. Her face is covered in peculiar spots which contribute to her unique appearance. Additionally, her lips are a vivid shade of purple, making her easily recognizable amongst her peers. DSC-MATE-8498's distinguishing feature, however, lies in her orange eyebrows which seem to glow in low light. 
+
+DSC-MATE-8498's hair is blonde and often concealed beneath a fur-lined ushanka hat. Her ears are adorned with a single gold earring, adding a touch of regality to her appearance. She often wears a black choker around her neck, yet another accessory that sets her apart from others. 
+
+While DSC-MATE-8498 may seem like an eccentric and lighthearted individual, her scatterbrained nature can pose a challenge in her line of work. Despite her best efforts, she tends to forget important information or appointments, which can lead to humorous yet potentially dangerous situations. As a Security Guard, DSC-MATE-8498 must stay vigilant and avoid distractions at all times. Her forgetfulness, however, can be used to her advantage in situations where discretion is necessary. 
+
+Overall, DSC-MATE-8498's appearance and bubbly personality make her a memorable character in any urban fantasy setting. Although her scatterbrained nature can be problematic, her unique features and memorable personality will undoubtedly leave an impression on anyone who crosses her path.

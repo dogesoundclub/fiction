@@ -1,0 +1,5 @@
+DSC-MATE-9492 is a news anchor who is known for their extensive knowledge of obscure topics. As a rabbit of the male sex, DSC-MATE-9492 has red clown eyes and wears a hoodie for their head. A red victory band adorns their forehead, while a red scarf and cigarette are their preferred accessories.
+
+Despite their seemingly harmless appearance, DSC-MATE-9492 possesses a deep desire for knowledge, making them a valuable asset to the Foundation. They spend much of their free time reading and researching topics that are often considered taboo or unknown to the general public. DSC-MATE-9492's passion for sharing their newfound knowledge with others has also garnered them a reputation as an eccentric and engaging speaker.
+
+While DSC-MATE-9492's quirks and penchant for uncovering the unknown are useful to the Foundation, care must be taken to ensure that they do not become too consumed by their thirst for knowledge. As with all DSCs, containment protocols should be followed to ensure the safety of both DSC-MATE-9492 and those around them.

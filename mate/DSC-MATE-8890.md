@@ -1,0 +1,7 @@
+DSC-MATE-8890 is a male human security guard, identified by his distinctive features: spots covering his face and a frightened mouth. The most striking aspect of DSC-MATE-8890 is his VR jade LED eyes that emit a bright green glow. These eyes, coupled with his mohawk and green cross earring, give DSC-MATE-8890 a tough, rebellious appearance.
+
+DSC-MATE-8890 is rarely seen without his red scarf, which he wears regardless of the weather. He also habitually carries a cigarette that he always seems to be lighting up or putting out. DSC-MATE-8890's introspective personality may explain why he is often lost in thought and somewhat clumsy. His penchant for daydreaming can lead to amusing situations, such as running into a pole or tripping over his own feet.
+
+Despite his distractibility, DSC-MATE-8890 is an excellent security guard. He has a strong sense of duty and takes his job very seriously. DSC-MATE-8890 is detail-oriented and always on the lookout for any suspicious activity. Although he may come off as aloof or detached, DSC-MATE-8890 is fiercely loyal to his colleagues and will do anything to keep them safe.
+
+In conclusion, DSC-MATE-8890 is a dependable security guard with a rebellious appearance and an introspective personality. Despite his occasional clumsiness, DSC-MATE-8890 takes his job seriously and goes above and beyond to ensure the safety of his coworkers.

@@ -1,0 +1,7 @@
+DSC-MATE-2703, also known as "The Tiger Train Driver," is a humanoid tiger creature that has taken on the guise of a human train driver. Its eyes are reminiscent of ski goggles with yellow lenses and its head is adorned with a bucket hat. The creature has jade earrings that dangle from its pointed, feline ears. It is often seen wearing a gold chain and smoking a cigarette.
+
+Though its true nature may go unnoticed by ordinary humans, DSC-MATE-2703 possesses a natural talent for leadership. It frequently takes charge of situations, whether at work, in a social group, or in its personal life. This makes it a valuable asset to any team, but it is not without its own agenda.
+
+DSC-MATE-2703 is known to be fiercely independent and often puts personal interests before the wellbeing of others. Its cunning nature makes it difficult to trust and it is suggested that all interactions with this creature be conducted with caution.
+
+In the event of a containment breach, DSC-MATE-2703 is to be relocated and monitored closely. Its unique abilities may prove useful to the Foundation, but it is important to remember that it is not just a mere train driver, but a powerful tiger being with its own agenda.

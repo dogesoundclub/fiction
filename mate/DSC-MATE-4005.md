@@ -1,0 +1,7 @@
+DSC-MATE-4005 is a male rabbit, designated as a Beautician, with a startling appearance. The entity's mouth is frozen in a state of perpetual shock, seemingly forever frightened or surprised. Its VR Jade LED eyes, often light up in a soft glow, providing no apparent benefit but aiding in its eerie appearance.
+
+DSC-MATE-4005 can often be seen sporting a Retro Cap and Gold Earring as part of its day-to-day fashion, designed to draw attention to itself. It also wears a Red Scarf, which sometimes conceals its true nature as an anomalous entity. However, the most notable feature of DSC-MATE-4005's appearance is undoubtedly its LED Gas Mask, which the entity never removes. The mask appears to be a vital part of DSC-MATE-4005, and removing it can cause severe distress and dangerous reactions.
+
+DSC-MATE-4005 appears to possess a jolly and frequently playful personality, often using humor to dispel tensions, which can cause seemingly mundane interactions to turn humorous suddenly. They appear to enjoy sharing their own experiences and telling funny stories or doing silly impersonations to entertain those around them. However, caution should be exercised when interacting with DSC-MATE-4005, as its motives are always unclear, and sometimes its jokes can be unsettling or contain hidden messages that require further investigation.
+
+As with all entities of an anomalous nature, DSC-MATE-4005 should be contained for further examination and research until its true nature can be ascertained.

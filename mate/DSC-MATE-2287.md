@@ -1,0 +1,5 @@
+DSC-MATE-2287, also referred to as "The Tiger Politician", is a male tiger with distinguishing features that include a frightened mouth and blue clown eyes. He can often be seen wearing a bright red beanie and a jade earring on one ear, with a matching red scarf as his accessory of choice. Despite his intimidating appearance, he is known for his ambitious and goal-oriented personality, leading him to take on challenging roles such as that of a politician.
+
+As an accomplished politician, DSC-MATE-2287's strategic thinking and excellent organizational skills have been key factors in his success. However, his drive for success can also lead him to take on more than he can handle, putting himself and those around him in danger. Drastic measures have been put in place to ensure the safety of DSC-MATE-2287 and those in his immediate circle.
+
+Due to his abilities and reputation, DSC-MATE-2287 is a valuable asset to the Foundation, making his containment an utmost priority. It is recommended that all interaction with DSC-MATE-2287 take place under controlled circumstances with extreme caution.

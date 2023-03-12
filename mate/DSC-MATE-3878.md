@@ -1,0 +1,7 @@
+DSC-MATE-3878, also known as "The Fashion Designer," is a male human with striking red clown eyes that are unsettling to anyone who makes direct eye contact with him. He often wears a police cap adorned with a two-color band on his forehead, and green cross earring on his earlobes. Alongside that, he is often seen wearing a gold chain around his neck, which bears no apparent significance to him.
+
+DSC-MATE-3878 is a fashion designer by profession and a peculiar personality by nature. In addition to his visual peculiarities, he has displayed immense affection for inanimate objects, often naming them and treating them like live beings. He talks to his plants, kisses his gas mask like it's a loved one, and credits his success to his sewing machine.
+
+Despite his neurotic behavior, DSC-MATE-3878 is known to be exceedingly caring and nurturing towards those he considers close. The same level of affection is evident towards any object that he owns. The DogeSoundClub has yet to determine the cause of his behavior, though it believes it could be due to a childhood trauma. DSC-MATE-3878 can occasionally become aggressive towards anyone who attempts to harm his possessions or anyone he has formed a bond with.
+
+In summary, DSC-MATE-3878 is a human who displays unmistakably strange behavior and a unique personality. His ability to anthropomorphize anything he comes in contact with is causing concerns for the Foundation, but his non-threatening nature suggests he can be safely contained and monitored.

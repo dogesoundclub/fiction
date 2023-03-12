@@ -1,0 +1,5 @@
+DSC-MATE-299, also referred to as "The Politician", is a humanoid robot of unknown origin. Its bodily composition is primarily metallic, with notable features including a large green cyclops eye and a pair of goggles situated on its forehead. DSC-MATE-299 also possesses a normal gas mask accessory, presumably used for filtration purposes. 
+
+Despite its mechanical nature, DSC-MATE-299 presents with human-like mannerisms and an introspective personality. It is common for the robot to become lost in thought, resulting in humorous blunders and accidents. However, under certain circumstances, DSC-MATE-299 exhibits a commanding and confident demeanor, suggestive of a natural-born leader.
+
+Due to its mysterious origin and uncertain purpose, DSC-MATE-299 is considered an anomaly in the urban fantasy genre. Its political career is of particular interest to the Foundation, and its influence on local politics appears to be growing by the day. Further investigation is required to determine the full scope of DSC-MATE-299's capabilities and motives.

@@ -1,0 +1,9 @@
+DSC-MATE-4667, also known as "The Hare of Hilarity," is a male rabbit of unknown origin. He possesses normal rabbit features such as long ears and a fluffy tail. At all times, he wears a stylish retro cap on his head and a gold earring in one ear, giving him a sophisticated appearance. DSC-MATE-4667 typically sports a vibrant red scarf around his neck, bringing a pop of color to his otherwise monotone outfit.
+
+Perhaps the most noticeable aspect of DSC-MATE-4667 is his eyes, which are always concealed behind a pair of normal glasses. Despite having poor eyesight, DSC-MATE-4667 manages to navigate his surroundings with ease, showing great dexterity and grace. At times he can be seen smoking a cigarette, despite it being unclear where he acquired this habit.
+
+DSC-MATE-4667's personality is that of a jovial comedian. He has a great sense of humor and relishes in making others laugh. He often tells funny stories and does silly impersonations to lighten the mood. DSC-MATE-4667 has been known to cause mischief at times, but his harmless pranks are always good-natured.
+
+DSC-MATE-4667 is a fashion designer by trade, specializing in urban streetwear. His work is innovative and stylish, often incorporating bold colors and graphic designs. Despite his busy schedule, DSC-MATE-4667 always has time for a good laugh, and is a well-loved figure in the fashion industry.
+
+DSC-MATE-4667 is generally cooperative with Foundation personnel, and has expressed interest in collaborating on a fashion line for containment wear. While sentient, DSC-MATE-4667 does not display any unusual abilities, and can be safely contained in a standard humanoid containment cell.

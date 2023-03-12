@@ -1,0 +1,8 @@
+DogeSoundClub Description:
+DSC-MATE-2052, also known as "The Party Primate", is a male monkey of an unknown species. He serves as a security guard for the facility and is tasked with protecting the premises from unauthorized access. DSC-MATE-2052 stands at approximately 1 meter tall and weighs an estimated 25 kilograms. 
+
+His facial expressions often show a frightened mouth, indicating that DSC-MATE-2052 is easily spooked by sudden movements or loud noises. He compensates for this by wearing a pair of normal glasses which help him see more clearly even in low light conditions. DSC-MATE-2052's head sports a distinctive mohawk, which he maintains with great care, and wears a silver chain and a cigarette as his accessories.
+
+DSC-MATE-2052's personality is characterized by a strong sense of duty and responsibility. He takes his job as a security guard very seriously and will not hesitate to take action against any potential threat to the facility. However, DSC-MATE-2052 also has a fun-loving side and is known to be the life of the party. He loves nothing more than getting everyone to dance or sing along to his favorite songs, and has been known to spontaneously break into dance at any given moment.
+
+It is recommended by the Foundation that personnel interact with DSC-MATE-2052 in a relaxed and friendly manner, as this will help maintain his trust and loyalty. However, they should also be aware of his easily frightened nature and try to avoid actions or situations that may trigger his fear response, as this can lead to unintended consequences. Overall, DSC-MATE-2052 is a valued member of the security team and a beloved figure among the staff.

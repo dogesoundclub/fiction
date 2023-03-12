@@ -1,0 +1,11 @@
+Item #: DSC-MATE-8387
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-8387 is to be contained within a standard humanoid containment chamber at Site-██. Access to DSC-MATE-8387 is restricted to personnel with Level 3 clearance or higher. No physical contact with DSC-MATE-8387 is permitted under any circumstances. DSC-MATE-8387's predictions and intuitions are to be recorded and analyzed by researchers for future study. DSC-MATE-8387 is permitted to smoke one cigarette per day within its containment chamber, but the ashes must be closely monitored and disposed of properly.
+
+Description: DSC-MATE-8387 is a female human known to perform the job of a doctor. DSC-MATE-8387 has distinctive spots on their face and purple lips, along with normal glasses for eyes and a jade earring for the right ear. DSC-MATE-8387 commonly wears a choker and can often be seen smoking a cigarette. DSC-MATE-8387 possesses an extraordinary level of intuition that can sometimes appear to be supernatural in nature. This ability allows DSC-MATE-8387 to predict future events and sense the emotions of others. Upon questioning, DSC-MATE-8387 has stated that they are not entirely sure how they are capable of these abilities, but they believe it to be some sort of subconscious manifestation.
+
+DSC-MATE-8387's predictions are accurate 89.5% of the time, and its ability to sense emotions has been categorized as impressive and eerie. DSC-MATE-8387 has shown no intention of using these abilities for personal gain, and instead insists on being a doctor in order to help others. DSC-MATE-8387 has refused requests to divulge the origins or nature of its abilities, stating that it feels as though doing so would be a violation of trust.
+
+Addendum: Incident 8387-A: On [REDACTED], DSC-MATE-8387 accurately predicted the location and severity of an earthquake that occurred in [REDACTED], resulting in the successful evacuation of over 500 individuals. Following this incident, further research into DSC-MATE-8387's abilities is ongoing.

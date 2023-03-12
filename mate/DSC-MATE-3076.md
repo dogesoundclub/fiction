@@ -1,0 +1,7 @@
+DSC-MATE-3076, designated as a "Rabbit Clown", is a humanoid creature resembling a female with a striking appearance. Her face is adorned with vivid orange stripes, with red clown eyes gazing outward. The head is that of a pink rabbit with a curious, yet alert expression. The ears appear to be elongated and humanlike with a single green cross earring.
+
+Despite her peculiar appearance, DSC-MATE-3076 is a valuable member of the security personnel, highly observant and detail-oriented. They possess a keen sense of awareness and have an almost uncanny ability to sense danger before it occurs. This makes her an excellent guardian and protector, watchful over her charges with diligence and care.
+
+The Rabbit Clown's gift for observation translates well into her daily life, as they strive to be the perfect gift-giver. They're motivated by an unrelenting desire to provide others with the best present possible, resulting in extensive periods of contemplation and worry. DSC-MATE-3076 can become so preoccupied with finding the ideal gift that they may become stressed or anxious.
+
+DSC-MATE-3076 is a reliable and dependable member of the security team, with a unique perspective and abilities that lend themselves to paranormal situations. Her idiosyncratic appearance and knack for giving gifts have endeared herself to many of her coworkers, and she is recognized as an asset to the Foundation's efforts.

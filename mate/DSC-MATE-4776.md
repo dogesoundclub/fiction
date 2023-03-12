@@ -1,0 +1,7 @@
+DogeSoundClub Description:
+
+DSC-MATE-4776 is a human male designated as an Electrician, with several anomalous physical traits that have manifested following a mysterious event. DSC-MATE-4776's face features spots and a wide clown mouth, with its eyes turning into a red color, typical of a clown's. DSC-MATE-4776 sports a monk's hairstyle, with an unusual jade earring resembling an ancient artifact that goes against conventional jewelry design. To prevent any potential danger, DSC-MATE-4776 always wears a medical mask. DSC-MATE-4776 wears a gold chain and exhibits meticulous organizational skills, which can make them come across as assertive and controlling.
+
+DSC-MATE-4776's past is obscure, and their sudden manifestation of anomalous traits requires close monitoring to ensure the safety of Foundation personnel and civilians. DSC-MATE-4776's personality is pragmatic and organized, despite its abnormal physical traits, which adds to the urban legends surrounding its origin. DSC-MATE-4776 is particularly gifted at delegating tasks to others in a straightforward way, which can result in humorous situations, such as taking charge of group projects or events.
+
+DSC-MATE-4776 is currently being investigated by the DogeSoundClub, which aims to understand its anomalous condition better. The Foundation recommends any personnel encountering DSC-MATE-4776 to exercise caution and report any anomalous activity immediately.

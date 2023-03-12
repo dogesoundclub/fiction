@@ -1,0 +1,7 @@
+DSC-MATE-500, also known as the "Green Layered Beautician," is a humanoid entity with distinctive green layers on their head that appear to be made of an unknown material. DSC-MATE-500's facial features are further accentuated by their green cross earring and a permanent, unnervingly wide smile. While their appearance may initially seem unsettling, DSC-MATE-500's profession as a beautician and makeup artist centres around making others feel comfortable and confident in their own skin.
+
+DSC-MATE-500's personality is characterized by their unwavering sense of logic and analytical skills, which they use to their advantage in every situation. They are quick to engage in debates and arguments, no matter how trivial the topic may seem to others, and revel in testing their opponents' limits.
+
+As a necessary precaution to their occupation, DSC-MATE-500 is almost always seen wearing a red scarf and a normal gas mask to avoid inhaling any harmful substances while working with their clients. Despite their habit of getting into heated debates, DSC-MATE-500 always puts their clients' comfort and safety first, lending a calming touch to their work that puts even the most anxious clients at ease.
+
+It is recommended that anyone seeking the services of DSC-MATE-500 be aware of their tendency to argue and to engage in any debates with caution. However, there is no doubt that their expertise and uncanny ability to bring out the best in others make them a true asset to our urban fantasy community.

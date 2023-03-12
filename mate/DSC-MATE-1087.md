@@ -1,0 +1,7 @@
+DSC-MATE-1087 is a male tiger shifter and is currently working as a real estate agent under strict observation of the Foundation. DSC-MATE-1087 exhibits a unique physical trait with a 2 color band on its forehead, and a gold earring embellishing each of its ears. Its mouth is partially covered with a medical mask at all times, presumably to avoid unnecessary physical contact with humans. 
+
+DSC-MATE-1087 personality is notable for its strong sense of duty and responsibility. The feline often takes on more tasks than it can handle, leading to amusing situations such as attempting to carry too many objects or fitting several errands into a single day. 
+
+DSC-MATE-1087's silver chain is a mystery to the Foundation's researchers, and said accessory is not allowed to be removed. Efforts to separate DSC-MATE-1087 from the silver chain resulted in excessive ferocity and aggressiveness. Researchers estimate that the chain has potential anomalous properties, which may correlate with DSC-MATE-1087's ability to shift into its tiger form. 
+
+DSC-MATE-1087 is to be kept in a secure containment unit when not performing work duties. Personnel are advised to not engage in conversations that may trigger DSC-MATE-1087's strong sense of duty or inquire about the origin of the mysterious silver chain. Any unusual behavior from DSC-MATE-1087 should be reported to supervising personnel immediately to mitigate any potential security breaches.

@@ -1,0 +1,7 @@
+DSC-MATE-2032 is a female human belonging to the fast food industry. Her appearance is striking with her bright orange eyebrows and gold earrings that catch the eye of anyone who passes by. The most distinctive feature, however, is the LED gas mask she wears as a second accessory, hinting towards her involvement with The Foundation.
+
+Despite her mundane job, DSC-MATE-2032 possesses a strong sense of duty and responsibility towards her work, ensuring that orders are fulfilled correctly and customers are happy with their meals. Her professionalism extends beyond the workplace, as she takes obligations seriously and always maintains a serious demeanor.
+
+However, DSC-MATE-2032 is not entirely devoid of humor or playfulness. She knows how to strike a balance between keeping up with her responsibilities and letting loose to have some fun. Often found on social events across the city showing off her dance moves or being involved in silly antics that never fail to surprise others.
+
+DSC-MATE-2032 is a valuable asset to The Foundation with her versatile personality and skill set. Her sense of humor and duty complement each other, making her a successful undercover operative capable of blending into crowded streets and even crowded dance floors.

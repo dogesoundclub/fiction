@@ -1,0 +1,9 @@
+DSC-MATE-304, also known as the "Tiger Programmer", is an anomalous creature of the feline species, bearing a striking resemblance to a regular tiger. However, this entity exhibits highly advanced technological abilities, which have confounded multiple researchers and mystics alike.
+
+Though it is not entirely clear how DSC-MATE-304 became imbued with these abilities, it is known that he is highly skilled in various programming languages, and is capable of manipulating computer systems even without direct access. Additionally, his eyes have been replaced with Jade LED's, which display various patterns and codes, indicating that these are used to help interface with technology.
+
+DSC-MATE-304 often wears a vibrant red scarf around his neck, which contrasts sharply with his sleek black-and-gold fur. He also seems to have a fondness for candy sticks, which he can often be seen gnawing on in between bouts of intense programming.
+
+Personality-wise, DSC-MATE-304 is highly energetic and eager, often bursting with enthusiasm at any new technological discovery. He seems to have a particular talent for rallying others behind his ideas, and is known to get quite animated and excited, much to the amusement of his colleagues. However, his penchant for eccentricity can sometimes lead to misunderstandings or confusion, as others struggle to keep up with his train of thought.
+
+Although DSC-MATE-304 is largely cooperative and has not exhibited any aggressive tendencies, caution should be exercised when handling this entity, as its unpredictable nature and technological abilities pose potential risks to both facility and personnel.

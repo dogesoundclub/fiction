@@ -1,0 +1,9 @@
+DSC-MATE-3890: "The Fearful Reporter Rabbit"
+
+DSC-MATE-3890 is an anomalous male rabbit, standing at 60cm tall and weighing 5 kg. DSC-MATE-3890 is easily identifiable by its frightened mouth, causing an unnerving appearance that can lead to fear or sympathy from observers. DSC-MATE-3890's eyes remain unknown due to its constant use of a headset with LED display that covers them. 
+
+DSC-MATE-3890's most notable feature is the silver chain hanging around its neck, holding what has been confirmed to be an amulet of unknown origin. The amulet's properties are still unknown, but it is hypothesized to have some connection with DSC-MATE-3890's abilities. DSC-MATE-3890 also habitually wears a normal gas mask, though requests for the reason behind it have been ignored.
+
+DSC-MATE-3890 appears to possess an emotional sensitivity uncommon in rabbits, causing them to easily fall under various external stimuli. DSC-MATE-3890 is especially prone to reacting to sentimental moments in media, such as movies or TV shows, producing extreme emotional responses, including but not limited to tears, laughter, and even belligerence. DSC-MATE-3890 also appears to have an inclination towards music and art that evoke strong feelings.
+
+DSC-MATE-3890's true nature and origins remain unknown, as it has recently taken on the profession of a reporter, a standard cover among DSCs working within society. DSC-MATE-3890's work as a reporter has led to various leads and observations on other DSCs, though its unusual tendencies require monitoring during missions. Due to DSC-MATE-3890's unusual sensitivity and emotional response, interactions with it should be kept to a minimum and monitored closely to reduce any potential risks.

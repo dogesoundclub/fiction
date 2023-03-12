@@ -1,0 +1,5 @@
+DSC-MATE-3192 is a human male traffic officer with uniquely spotted facial features that resemble the markings of a wild animal. Despite this, DSC-MATE-3192 is renowned for his infectious smile that can light up even the darkest of alleys. DSC-MATE-3192's pair of normal glasses and jade earring, adorned on his ear, are his trademark accessories. His mouth is often concealed with a medical mask, possibly to protect against unhealthy emissions.
+
+DSC-MATE-3192's ensemble is usually completed by a bright red scarf that serves as a fashion statement and an identifier of his position. DSC-MATE-3192 can be characterised as impulsive and quick to act on his emotions. This frequently leads him to make spontaneous and sometimes questionable decisions, much to the delight and surprise of his colleagues.
+
+DSC-MATE-3192 can be a valuable asset to any team, especially in unpredictable urban settings. However, caution must be exercised as his impulsivity and tendency to act first and think later, could lead to dire consequences. Therefore, appropriate measures must be in place to secure DSC-MATE-3192, as he is a valuable resource that cannot be recklessly squandered.

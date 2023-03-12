@@ -1,0 +1,5 @@
+DSC-MATE-4321 is a humanoid female, identified as a theater manager. She stands at a height of 5'7" and has an average build. DSC-MATE-4321's distinguishing features include an orange eyebrow and a bucket hat adorning her head, as well as a two-color band on her forehead. The subject has gold earrings and a gold chain, which she wears as a fashion statement. 
+
+DSC-MATE-4321's personality tends to be practical and hands-on. This has resulted in her developing a unique skillset in making unconventional fixes to broken objects. DSC-MATE-4321 is known to use duct tape, paper clips, and other miscellaneous items to patch up problems or create makeshift solutions to daunting challenges. 
+
+Due to DSC-MATE-4321's ability to improvise and think outside of the box, it is imperative that the subject be given tasks that require critical thinking and troubleshooting abilities. However, care should be taken to avoid situations where DSC-MATE-4321's love for unconventional solutions may lead to potential security hazards or breaches.

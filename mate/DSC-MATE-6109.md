@@ -1,0 +1,7 @@
+DSC-MATE-6109, also known as the "Jester Monkey," is a male monkey belonging to an unknown species, employed as an electrician. Its most notable feature is its red clown eyes, which seem to glow in the dark, and a red beanie which it always wears atop its head. It also sports a gold earring and a red scarf, which it considers to be its lucky charm.
+
+DSC-MATE-6109 has a mischievous, prankster personality and enjoys making others laugh. It often acts out, cracking jokes and telling funny stories in order to lighten the mood. Its sense of humor can be infectious, but it can also lead to some awkward situations, especially when its pranks backfire. Its antics have been known to cause damage to electrical equipment, but it makes up for it with its quick wit and resourcefulness.
+
+DSC-MATE-6109 is an adept electrician, displaying an uncanny ability to handle complex machinery with ease. It is rumored that it has some kind of electrical superpower, allowing it to control and manipulate electricity. However, these claims remain unverified as the Foundation has not been able to observe any anomalous behavior related to electrical activity.
+
+While DSC-MATE-6109's antics may seem harmless, it is important to remember that it is still an anomalous entity and should be treated with caution. It is known to have a tendency to cause distractions, making it difficult to keep track of it at times. Nevertheless, its unique set of skills make it a valuable asset to the Foundation, provided it is kept under close observation.

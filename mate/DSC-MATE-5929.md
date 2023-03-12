@@ -1,0 +1,11 @@
+DSC file #5929: Rabbit Real Estate Agent
+
+Description: DSC-MATE-5929 appears as a typical rabbit, with a small and delicate frame, soft grey fur, and large, floppy ears. However, it is noted that DSC-MATE-5929 often wears a variety of accessories, including a bucket hat, and a pair of nerd glasses that sit atop its small nose. A red scarf wrapped around its neck completes its ensemble. DSC-MATE-5929 stands at 1.2m in height and displays a high level of agility and intelligence.
+
+Personality: Despite its seemingly harmless appearance, DSC-MATE-5929 has displayed a deep empathy for others. It is often moved to tears or emotional outbursts when it witnesses someone else's pain or suffering. DSC-MATE-5929 has also displayed a fondness for animals and nature, often seen feeding and caring for stray animals in its free time. This unique characteristic makes DSC-MATE-5929 a valuable addition to the Foundation's urban fantasy division, as it is highly skilled at gaining trust and building relationships with other creatures.
+
+Job: DSC-MATE-5929 works as a real estate agent for the Foundation, using its natural charisma and empathy to close deals and negotiate with a variety of supernatural entities. Though its small size and unassuming nature may seem a disadvantage, DSC-MATE-5929's quick thinking and sharp wit have proven invaluable in securing deals and ensuring the safety of Foundation personnel.
+
+Containment Procedures: DSC-MATE-5929 is to be housed in a standard containment unit, equipped with a variety of natural habitats to ensure its comfort. It is to be provided with a variety of books and educational materials to facilitate its learning and development. DSC-MATE-5929 is to be monitored at all times, and any emotional outbursts or displays of distress are to be documented and reported immediately to its assigned handler.
+
+Additional Notes: DSC-MATE-5929 is a unique addition to the Foundation's urban fantasy division, and has proven highly effective in negotiating with potentially dangerous entities. However, it is important to note that DSC-MATE-5929's emotional nature may make it vulnerable to manipulation or exploitation by hostile entities. As such, strict monitoring and supervision are required at all times.

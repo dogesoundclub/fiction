@@ -1,0 +1,9 @@
+DSC-MATE-6003, codenamed "The Empath," is a humanoid entity of the species Homo sapiens. This individual serves as a politician in the urban landscape and is a Caucasian male. DSC-MATE-6003's most distinctive facial feature is a dark spot on the left corner of his mouth, which stands out even when he laughs or speaks. Additionally, DSC-MATE-6003 often wears a red beanie hat and gold earring in his left ear, paired with standard corrective glasses.
+
+Despite being human, DSC-MATE-6003 possesses a unique personality that sets it apart. This individual has an extraordinary ability to empathize with other individuals and is often described as compassionate due to this emotional attachment. As a result, DSC-MATE-6003 tends to take on their issues as if they were their own, resulting in self-imposed exhaustion from trying to fix everything and everyone around them. Nonetheless, DSC-MATE-6003 displays admirable resilience and perseveres in ensuring everyone receives the attention they deserve.
+
+However, DSC-MATE-6003 is prone to occasional outbursts of stress and anxiety, likely due to this self-imposed burden of responsibility. Documentation and interviews with DSC-MATE-6003 suggest this individual may require further psychological evaluation to avoid any issues in the future.
+
+DSC-MATE-6003 also carries a candy stick as a personal accessory, which seems to bring them peace and calmness. It is yet unclear why this object proves to be comforting to the DSC, as it does not appear to be special in any way.
+
+As with all humanoid DSCs, interactions with DSC-MATE-6003 are limited and should be handled with caution. Nonetheless, DSC-MATE-6003 remains a mysterious but valuable asset to the Foundation.

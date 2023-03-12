@@ -1,0 +1,7 @@
+DSC-MATE-4706, also known as "The Spotted Reporter," is a human female with an unusual appearance. She sports a plethora of spots on her face, accompanied by a bright smile that's always present on her lips. Her eyes are a peculiar orange color, and she sports an eyebrow with an orange tint as well.
+
+Covering her head is a bucket hat, and resting on her forehead are a pair of sleek goggles. DSC-MATE-4706 is also recognizable by the gold earring on each ear, and a gold chain adorning her neck. Perhaps most notably, she is always seen wearing a gas mask when out in public.
+
+DSC-MATE-4706's personality is highly spontaneous and unpredictable, often doing things on a whim which leads to both entertaining and perilous situations. For example, she has been known to jump off a cliff and into a river with little hesitation. Her risk-taking personality makes her a formidable reporter, unafraid to jump into dangerous situations for a story.
+
+Although DSC-MATE-4706's personality may come off as eccentric or impulsive to some, her quick-thinking and fearlessness make her a highly valuable asset. However, any personnel interacting with DSC-MATE-4706 must exercise caution and follow protocol due to her unpredictable nature.

@@ -1,0 +1,7 @@
+DSC-MATE-3622, also known as "The Anchor," is a human male who works as a news anchor for a local television station. Though his appearance is seemingly unremarkable, there are several distinct features that make him stand out from the crowd. His face is covered in spots, resembling a leopard, and his eyes are encased in ski goggles, making them nearly impossible to see. His head, which is not arranged in its natural state but rather green in color, seems to be an anomaly in and of itself.
+
+Though he rarely removes the medical mask that covers his mouth, it is rumored that his teeth are also unique, being sharp and pointed like a predatory animal's. In addition to these oddities, he wears a jade earring in one ear and a gold chain around his neck, both of which are believed to hold some sort of significance to his identity or origin.
+
+DSC-MATE-3622 is known for his insatiable hunger for knowledge, often spending hours reading or researching topics that most people would find obscure or uninteresting. He has a love for collecting books and documentaries, and is always eager to share his newfound knowledge with others. Despite his constant thirst for information, he is known to be a bit of a recluse, seldom venturing outside of his workspace or personal library.
+
+It is advised that all interactions with DSC-MATE-3622 be conducted with caution, as his motivations and true intentions are unknown.

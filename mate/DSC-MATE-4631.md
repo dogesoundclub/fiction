@@ -1,0 +1,5 @@
+DSC-MATE-4631 is a Male human with distinctive orange stripes on their face, paired with a frightened mouth. Their jade VR LED eyes are captivating yet eerie. DSC-MATE-4631's head resembles that of a Monk but with a subtle twist of jade earrings. They tend to wear a silver chain, accompanied by a normal gas mask to protect themselves from toxic fumes. 
+
+DSC-MATE-4631's idealistic nature is the driving force behind their job as a firefighter. Still, it also fuels their strong desire to make the world a better place. This often leads them to participate in protests or boycott companies they believe go against their values. DSC-MATE-4631's idealism can lead to some humorous situations, but it also shows they have a passion for helping those in need. 
+
+DSC-MATE-4631 is a valuable member of the foundation, as their awe-inspiring LED eyes can quickly render onlookers sedated. DSC-MATE-4631 is a necessary asset when dealing with people who may cause harm or damage to themselves and others. DSC-MATE-4631's willingness to risk their lives for the sake of others makes them an invaluable member of the foundation's urban fantasy team.

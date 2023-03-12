@@ -1,0 +1,11 @@
+Item #: DSC-MATE-2810
+
+Object Class: Safe
+
+Special Containment Procedures: DSC-MATE-2810 is to be kept in its apartment at all times, with access to the theater, only under the supervision of at least two Foundation staff members wearing gas masks. DSC-MATE-2810 is to be fed a diet consisting solely of raw meat to prevent any accidental lacerations from occurring. In case of an emergency, personnel are instructed to disengage and neutralize DSC-MATE-2810 using standard tranquilizer procedures.
+
+Description: DSC-MATE-2810 is a Bengal tiger that for purposes of civilian interaction manages a small theatre venue in the heart of downtown. DSC-MATE-2810's physical features include a distinctive red-orange coat with thin stripes, and a face showcasing a permanently frightened mouth. Its pronounced canines are capable of delivering severe harm, and for obvious reasons it is highly advisable to stay away from its mouth. DSC-MATE-2810 wears normal glasses and a silver chain around its neck. Additionally, it possesses an ordinary gas mask, which undergoes periodic maintenance.
+
+DSC-MATE-2810 manifests a highly analytical and logical thought process, perhaps best explained as analytical quirkiness. It often teases its colleagues in a dry tone with wit and humor that can only be described as keenly observed. The staff of it neighborhood theater genuinely respects and admires DSC-MATE-2810, although they are also aware of it practical sense and strict rules for running a business. DSC-MATE-2810 is also very knowledgeable about theater, attending every show from behind the curtains, watching with a focus that is hard to break.
+
+Addendum: On ██/██/████, a wild accident occurred in the theater in which an audience member fell from the balcony onto the stage. To the shock of all involved, DSC-MATE-2810 lunged onto the victim and protected him until the paramedics arrived. Following this incident and a review by the Foundation, testing suggests the possibility of DSC-MATE-2810 exhibiting altruistic behavior toward humans, beyond the cold analytical quirkiness commonly observed. DSC-MATE-2810, however, affirms that its duty is solely to the theater, and that any help beyond that is only a spur-of-the-moment choice.

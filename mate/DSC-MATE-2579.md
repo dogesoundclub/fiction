@@ -1,0 +1,11 @@
+Item #: DSC-MATE-2579
+
+Object Class: Safe
+
+Special Containment Procedures: DSC-MATE-2579 is to be contained in a standard humanoid containment chamber, furnished accordingly for comfort. Electronic devices are prohibited within the containment area. All personal possessions of DSC-MATE-2579 are to be confiscated and stored in a secure locker. Interactions with DSC-MATE-2579 must be approved by at least two Level-3 personnel.
+
+Description: DSC-MATE-2579 is a male human who identified himself as a fashion designer. DSC-MATE-2579 stands at 178 cm in height and weighs approximately 68 kg. DSC-MATE-2579 presents with a unique mouth spot above his upper lip, and normal glasses covering his eyes, as well as donning a red beanie and jade earring. DSC-MATE-2579 is commonly seen wearing a medical mask around his mouth and a silver chain on his person.
+
+DSC-MATE-2579 is characterized by his adventurous spirit and willingness to take risks. DSC-MATE-2579 has a flair for trying new things, which has led to several amusing anecdotes of narrowly escaping near-death experiences while bungee-jumping or getting lost in the woods. DSC-MATE-2579 enjoys taking part in physical challenges and excels in various extreme sports. When interviewed, DSC-MATE-2579 states that he strives to live life to the fullest and gain new experiences.
+
+Addendum: DSC-MATE-2579 came to the Foundation's attention after reports from local law enforcement regarding his involvement in an unexplained incident in which DSC-MATE-2579 had used anomalous means to escape a dangerous situation. Further investigation revealed DSC-MATE-2579's involvement with an anomalous group known as the "Adrenaline Seekers," which promotes the use of anomalous items to obtain dangerous thrills. DSC-MATE-2579 cooperated with the Foundation and provided information about the group, leading to the neutralization of several dangerous anomalies. DSC-MATE-2579 was given the option to join the Foundation and chose to do so, citing his desire to continue exploring the unknown.

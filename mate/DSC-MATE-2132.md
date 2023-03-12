@@ -1,0 +1,7 @@
+DSC-MATE-2132, also known as the "Goofball Villain," is a female human with unique facial features. Her most notable traits are the orange stripes running across her face and the bright red lipstick on her lips. She wears normal glasses over her eyes, obscuring their true color, but it is known that they match the vibrancy of her stripes.
+
+DSC-MATE-2132's head of curly green hair is not arranged, causing it to stick out in all directions. She wears a jade earring in her right ear, adding a pop of color to her overall appearance. Her mouth is always covered by a medical mask, further hiding her identity.
+
+One of DSC-MATE-2132's most distinguishing accessories is her gold chain, which she wears around her neck. It is believed to be either a family heirloom or a sentimental piece of jewelry. Despite her villainous reputation, DSC-MATE-2132 values harmony and social connections, often engaging in playful banter with others to break the ice.
+
+DSC-MATE-2132's playful nature can lead to humorous situations, though she should not be underestimated. She is a dangerous opponent, using her quick wit and cunning to outsmart those who underestimate her. As with all DSCs, caution is advised when approaching DSC-MATE-2132.

@@ -1,0 +1,13 @@
+Item #: DSC-MATE-6021
+
+Object Class: Safe
+
+Special Containment Procedures: DSC-MATE-6021 is to be contained in a standard humanoid containment chamber at Site-██. As DSC-MATE-6021 is not capable of posing any physical harm to personnel or breaching containment, no additional security measures are necessary. DSC-MATE-6021 is allowed access to basic art tools and materials as requested by personnel, and may be allowed supervised visits to the Site-██ gardens, provided that no non-anomalous primates are present on the premises.
+
+Description: DSC-MATE-6021 is a male fashion designer of the Papionini tribe, otherwise known as Old World monkeys. DSC-MATE-6021 stands approximately 1.2 meters tall and weighs 22 kilograms. DSC-MATE-6021 is characterized by its demeanor of care and nurturing, anthropomorphizing objects and referring to them by name. DSC-MATE-6021 displays no other anomalous properties.
+
+DSC-MATE-6021's appearance includes horned rim glasses over its small, dark eyes, a red beanie atop its head, a two-color band marking its forehead, and a jade earring on its left ear. DSC-MATE-6021 is always seen wearing a red wool scarf, uniform to its current profession, attributed to its love for clothing and style. Subjects who come in contact with DSC-MATE-6021 report its behavior as charming and affectionate, often prescribing to the designer's ideas in regards to their own outfits and accessories.
+
+DSC-MATE-6021 has shown a particular interest in designing clothing for other humanoid DSC subjects for the Foundation, but is otherwise content with designing clothing for itself as well. DSC-MATE-6021's clothing designs are composed of bright colors, patterns, and often intricate stitching. Despite being born in captivity, DSC-MATE-6021 has retained a significant level of intelligence and creativity.
+
+Addendum: During routine checkups, DSC-MATE-6021 has warned Foundation researchers of design-related anomalous activity. DSC-MATE-6021 has claimed to have received several automated responses on the level of sentience possessed by common inanimate objects, such as sewing machines and fabric presses. Foundation personnel have noted that DSC-MATE-6021 appears to genuinely believe in the sentience of non-living objects, while their functionality is clearly automated. DSC-MATE-6021 has been given therapy sessions and has received appropriate medication to address this behavior. Future research on this topic is pending.

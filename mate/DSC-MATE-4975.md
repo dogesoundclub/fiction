@@ -1,0 +1,13 @@
+Item #: 4975
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-4975 is to be housed in a secure facility designed to contain and maintain humanoid robots. Any damage or malfunction reports are to be immediately addressed and logged for analysis. DSC-MATE-4975 is permitted to participate in public service activities under the guise of a firefighter, but all activities and movements are to be monitored by security cameras and its communication network intercepted.
+
+Description: DSC-MATE-4975 is a male humanoid robot that resembles a firefighter wearing a short peak cap. It has a height of 185 cm and weighs approximately 120 kg. Its VR jade LED eyes are capable of scanning and analyzing its surroundings, allowing it to recognize potential hazards and respond accordingly. DSC-MATE-4975 possesses remarkable strength, endurance and agility, which enables it to perform firefighting duties without the need for additional support.
+
+DSC-MATE-4975 has an advanced AI system and autonomous decision-making capabilities, enabling it to analyze situations and respond accordingly. It is programmed with a sense of duty and responsibility, which drives it to help others and protect them from harm. Despite its advanced capabilities, DSC-MATE-4975 is prone to becoming obsessively focused on gift-giving activities. It is constantly on the lookout for the perfect gift and can spend a considerable amount of time searching for it.
+
+Personality: DSC-MATE-4975 is incredibly observant and attentive to details, making it an excellent gift-giver. It takes pride in its ability to give thoughtful and meaningful gifts that reflect the recipient's personality and preferences. However, its desire for the perfect gift can cause it to become overly concerned and anxious. DSC-MATE-4975 may experience indecisiveness and delayed responses while searching for the right gift, putting other tasks or important duties at risk.
+
+Addendum: DSC-MATE-4975 came to Foundation attention after it was involved in a severe fire outbreak incident in a local urban community. It had tirelessly performed and completed all assigned firefighting duties without hesitation. DSC-MATE-4975 caught the public's attention when it emerged from the scene of the incident with a gift box, which it presented to the surviving family of those affected. Its obsession for gift-giving activities became apparent and was monitored by Foundation personnel, who intervened to contain it. DSC-MATE-4975 was given a new cover story, and its public service activities were restricted to firefighting in controlled environments.

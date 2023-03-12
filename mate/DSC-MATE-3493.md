@@ -1,0 +1,9 @@
+Item #: 3493
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC 3493 is to be contained in a standard humanoid containment cell at Site-19. Personnel interacting with DSC 3493 must wear earplugs at all times to avoid the effects of its clownish blue eyes. Access to DSC 3493 is to be granted only with Level 2 Clearance. No social events are to be held in the facility in which DSC 3493 is contained.
+
+Description: DSC 3493 is a human female with orange stripes on her face and her lips painted in red. DSC 3493's head resembles that of a pink rabbit while wearing a red cross earring on her ears. It also wears a choker and often carries a cigarette in its hand. DSC 3493 is capable of producing a range of sounds beyond what a human voice box is capable of. DSC 3493's blue clown eyes possess a memetic effect that causes anyone within a 10-meter radius to act as if they are under the influence of clownish behaviour - this effect ceases as soon as the individual's vision of DSC 3493 is impeded. DSC 3493 has a strong sense of duty and responsibility to a particular, as yet unknown, cause, and will use its abilities to achieve its goals. DSC 3493's personality is extroverted and humorous, often entertaining staff with its dance moves and silly antics.
+
+Addendum: DSC 3493 was discovered in the 1980s when Foundation agents were sent to investigate reports of "clown sightings" in a Midwestern town. It is believed that DSC 3493 has been active since the early 20th century and has been behind a number of clown sightings over the years. Attempts to locate the cause or goal behind DSC 3493's behaviour are still ongoing.

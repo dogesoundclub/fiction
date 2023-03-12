@@ -1,0 +1,5 @@
+DSC-MATE-146, also known under her alias as the “Fashionista”, is a human female standing at 5’7”. Her most noticeable feature are her blue clown eyes, which are a unique genetic mutation. Her eccentric appearance includes a purple cap with a headset, and she is often adorned in a silver chain along with her signature green cross earring. 
+
+When observed, DSC-MATE-146 has demonstrated a nurturing personality trait. Despite her chosen profession in fashion design, she seems to prioritize taking care of those close to her before anything else. In fact, she often dotes on her friends and family as if they were her own children, which can lead to humorous situations.
+
+Despite her otherwise unremarkable baseline, DSC-MATE-146's personality and unique appearance have often drawn attention to her. Containment protocols for DSC-MATE-146 require the monitoring of all media outlets and social media activity in order to ensure that her anomalous traits do not become public knowledge. Any attempts by her to disclose her DSC status to others should be met with intervention by Foundation agents.

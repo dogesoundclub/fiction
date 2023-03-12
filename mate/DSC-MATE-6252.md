@@ -1,0 +1,7 @@
+Subject 6252, known amongst the mortals as a Car Salesman, is a being of curiosity and impulsiveness. Despite being a mere human, this individual possesses an erratic personality that sets them apart from their mundane counterparts. With a face covered in spots and a smile that masks their inner chaos, 6252 can be identified by their unique eyewear - a pair of nerd glasses that add an intellectual touch to their appearance. Topping this off is a red beanie that rests upon their head, but what truly sets them apart is a jade earring that remains unexplained.
+
+You may wonder why such a chaotic being is being monitored by the DogeSoundClub. The answer lies in their medical mask, which is often worn in public to protect others. It has been discovered that 6252 is a carrier of a dormant virus that is capable of causing widespread destruction. Their impulsiveness makes them a walking time bomb, and thus, they must be monitored at all times.
+
+Despite their potential for destruction, 6252 is an enigma that leaves one pondering their true nature. They approach their sales with a smooth tongue and a charismatic disposition. They have a natural talent for persuasion, often convincing prospective buyers to make purchases on a whim - a talent that can be both dangerous and advantageous.
+
+DSC personnel are advised to approach 6252 with caution, for one never knows what whim they may follow or what risk they may take next.

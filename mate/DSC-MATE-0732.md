@@ -1,0 +1,7 @@
+DSC-MATE-732, also known as the "Fashionable Lagomorph," is a male rabbit of unknown origin. His most striking features are his ski goggle eyes and jade earring ears, which are unique to his species. DSC-MATE-732 works as a fashion designer in the human world, specializing in avant-garde styles that incorporate a mix of fabrics, textures, and colors.
+
+DSC-MATE-732 is a meticulous creature who has a tendency to obsess over the smallest of details. This obsession can manifest in unexpected ways, such as alphabetizing his spice rack or color-coding his closet. Despite his apparent OCD tendencies, DSC-MATE-732 is surprisingly laid-back and charming. He has a particular affinity for sweets, often seen carrying around a candy stick.
+
+DSC-MATE-732's personality can be described as highly creative and adventurous. He is always searching for new and unique ways to express himself through his designs, often pushing the boundaries of conventional fashion. However, he is also highly sensitive and can become easily upset if his work is criticized or misunderstood.
+
+DSC-MATE-732 has been studied extensively by the DogeSoundClub, and his abilities and limitations have yet to be fully understood. Despite this, he is considered a highly valuable asset to the Foundation due to his unique abilities and eccentric personality.

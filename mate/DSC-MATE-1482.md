@@ -1,0 +1,5 @@
+DSC-MATE-1482, codenamed "The Lawyer", is a human female with distinctive orange stripes on her face and bright purple lips. Her head is often styled in two pig tails, accentuated by a black choker around her neck. She is frequently seen with a cigarette in hand, emitting wisps of smoke that seem to constantly swirl around her.
+
+Despite her humanoid appearance, 1482 displays an almost animalistic drive towards success. Her goal-oriented nature and fierce ambition is a defining part of her overall personality. However, this same ambition can sometimes drive her to take on more than she can handle. Nevertheless, her strategic planning and innate organizational skills inevitably allow her to overcome any obstacles in her path.
+
+There is an almost palpable energy emanating from her aura. Her mere presence can cause those around her to feel more driven and inspired. DSC-MATE-1482's zealousness, while admirable, should be monitored for any possible repercussions that may arise from her all-encompassing drive towards success.

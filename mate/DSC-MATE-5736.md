@@ -1,0 +1,11 @@
+Item #: DSC-MATE-5736
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-5736 is to be contained in a standard humanoid containment cell at all times. DSC-MATE-5736 is allowed to hold a pen and notepad to continue its work as a reporter. It is not allowed to access pens of other kinds or anything that could be twisted into a similar shape. Creation that DSC-MATE-5736 has made must be approved by Foundation personnel before release to the public. DSC-MATE-5736 is not to have access to any art supplies or materials related to artistic expressions.
+
+Description: DSC-MATE-5736 is a male Capuchin monkey standing at 0.9 meters tall. DSC-MATE-5736 dons a bucket hat, a silver chain, a gold earring on its left ear, and candy stick in its mouth as common wear. DSC-MATE-5736 shows no signs of intelligence beyond what is normally exhibited by its species. It communicates in broken English with an erratic speech pattern independent of its unknown language capability.
+
+DSC-MATE-5736 exhibits skilled artistic abilities in descriptive written articulations. DSC-MATE-5736 is prone to detailed and imaginative perspectives within the field of journalism. Articles drafted with DSC-MATE-5736’s artistic expression contain vivid phrases and unique perspectives undetected even by veteran journalists. DSC-MATE-5736 can become manic-depressive when deprived of its notebook or other expressional items. DSC-MATE-5736 will become unresponsive for several days if its article is denied scrutiny by personnel.
+
+Addendum: DSC-MATE-5736 was discovered after a viral article gained popularity within numerous newspapers. Foundation personnel discovered DSC-MATE-5736's containment after noticing the peculiar style of writing matched the same pattern as DSC-MATE-5736’s noted files. DSC-MATE-5736 was transported to Site-19 without public knowledge, and information spin showed the journalist retiring to a private farm. DSC-MATE-5736 was given access to notepad and pen at base as a secured trade-off. Interviews have shown DSC-MATE-5736 is oblivious to its own capacities in writing, viewing these eccentricities as a natural ability.

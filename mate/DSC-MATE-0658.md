@@ -1,0 +1,7 @@
+DSC-MATE-658, also known as "Curious George" by his coworkers, is a male monkey species who works as a reporter at a local news agency in the heart of the city. His head is adorned with normal black hair that is always neatly combed, with his forehead displaying a distinctive two-color band that suggests an unknown significance to his past. 
+
+Possessing a frightened mouth, DSC-MATE-658 is often seen holding a cigarette in his hand, filling the air with a faint smell of tobacco. Despite his timid voice, he has a remarkable sense of humor, often cracking jokes and telling funny stories to lighten up the dark and eerie atmosphere around him. He takes a great deal of pleasure in making others laugh, and his silly impersonations have earned him the admiration and respect of his colleagues.
+
+While DSC-MATE-658's appearance may seem to be charming and harmless, he should not be underestimated. His curious and unpredictable nature can sometimes get him into trouble, leading him down a dangerous path filled with unexplainable phenomena and other supernatural entities that lurk in the city's shadows. His curiosity will most likely lead him to uncover some of the more mysterious and macabre secrets hidden within his metropolis. 
+
+Under no circumstances is DSC-MATE-658 to be allowed to investigate any stories of interest that go beyond the scope of his ordinary employment. Any interference from DSC-MATE-658 with entities or phenomena under Foundation jurisdiction is to be recorded and dealt with accordingly.

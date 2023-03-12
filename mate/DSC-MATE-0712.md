@@ -1,0 +1,7 @@
+DSC-MATE-712, also known as "The Gifted Lawyer," is a human female with distinct and striking features. Her bright red lips and eerie clown eyes are in stark contrast to her otherwise mundane appearance, clad in a simple bucket hat and gold chain. The most notable feature on her forehead is a pair of goggles, hinting at her meticulous attention to detail.
+
+Despite her appearance, DSC-MATE-712 is a highly skilled and coveted lawyer. Her gift-giving abilities are well-known in the supernatural community, often sought after for her impeccable memory and ability to tailor gifts to the recipient's exact desires. However, her perfectionism can become an obsession, leading to long hours of agonizing over the perfect gift.
+
+DSC-MATE-712's attention to detail also makes her a valuable asset for the Foundation, often enlisted to aid investigations and deciphering obscure clues. However, her eccentricity and tendency to become fixated on a particular detail can make her a liability if not closely monitored.
+
+Those who come into contact with DSC-MATE-712 should be aware of her penchant for gift-giving and should exercise caution before accepting any gifts from her. It is also advised to avoid any topics of discussion that may trigger her perfectionistic tendencies.

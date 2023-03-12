@@ -1,0 +1,3 @@
+DSC-MATE-3989 is a human of the electrician genus, subject displays a red lip and normal glasses for eyes. DSC-MATE-3989 has a retro cap as their headpiece along with two color bands on their forehead for identification purposes. DSC-MATE-3989 displays a red cross earring on its ears along with a silver chain and cigarette as accessories. 
+
+Personality-wise DSC-MATE-3989 is very analytical and logical, often engaging in heated debates or arguments for the mere entertainment factor. This can lead to humorous situations as DSC-MATE-3989 will often argue about trivial and unimportant topics. Security clearance is required for further interactions with DSC-MATE-3989.

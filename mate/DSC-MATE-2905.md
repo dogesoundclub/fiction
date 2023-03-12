@@ -1,0 +1,5 @@
+DSC-MATE-2905, also known as "The Adventurous Car Saleswoman", is a humanoid entity that appears to be a female human of 00s school girl appearance, sporting orange stripes on her face and a perpetual smile. Her eyes appear to have orange eyebrows and always appear bright and daring. DSC-MATE-2905 works as a car salesman, using her charismatic personality and love for adventure to capture the attention of potential clients.
+
+DSC-MATE-2905 is often seen wearing a black choker and carrying a cigarette. She is known for her reckless behavior and wild stunts, which have resulted in several near-death experiences. Despite this, she remains unfazed and driven to try new things, seeing every challenge as an opportunity to grow and learn.
+
+DSC-MATE-2905's personality is infectious and often leaves people feeling inspired to take risks and try new things themselves. However, caution should be exercised when interacting with DSC-MATE-2905, as her reckless behavior can often lead to dangerous situations. It is recommended that all personnel handling DSC-MATE-2905 do so under strict supervision.

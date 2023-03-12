@@ -1,0 +1,5 @@
+DSC Identification Number 2518 is a rather unique specimen, even by our standards. At first glance, he appears to be nothing more than a boisterous monkey, with a bright red beanie on his head, a silver chain around his neck, and jade earrings adorning his ears. However, a closer examination reveals that his eyes are actually ski goggles and that he wears an LED gas mask around his neck.
+
+Despite his somewhat intimidating appearance, 2518 has a laid-back and easy-going demeanor that belies his nature, often approaching new situations with a calm and collected attitude. That being said, he is fiercely loyal to his loved ones and will stop at nothing to protect them. This has caused some humorous situations in the past, as he engages in heated arguments with anyone who insults his friends or family members.
+
+Currently working as a lawyer, 2518's unique appearance inevitably causes some friction with his more traditional colleagues. However, his skills in the courtroom are undeniable, and he has a reputation for being shrewd and tenacious. It is clear that 2518 is more than just a monkey in a gas mask - he is a formidable opponent to anyone who crosses him.

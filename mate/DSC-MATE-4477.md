@@ -1,0 +1,5 @@
+DSC-MATE-4477 is designated as a security personnel at our facility, despite being a creature of simian descent. Their stylized appearance is that of a peculiar anthropomorphic monkey sporting a doge hat upon their head and a pair of shade glasses over their eyes. Additionally, 4477 is known to adorn a single earring made of gold, a red scarf, and they can always be seen with a lit cigarette, no matter the time or location. 
+
+This subject can be unpredictable, but their inventive personality lends to a slew of unique hobbies and interests, including the creation of elaborate cosplay costumes and writing poetically in their downtime. DSC-MATE-4477 is even known to have a penchant for collecting various oddities, from obscure trinkets to rare artifacts.
+
+Despite their singular nature, DSC-MATE-4477 is a trusted member of our security team, and their willingness to go above and beyond to protect our foundation has earned them our respect. We advise all personnel to treat 4477 with the same level of professionalism and respect they would any other team member.

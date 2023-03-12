@@ -1,0 +1,5 @@
+DSC-MATE-4731 is a male rabbit of unknown origin and species assigned as a reporter in the Foundation. The subject exhibits a deep curiosity about the world, often delving into obscure and unusual topics. The rabbit's natural inquisitiveness may lead to humorous situations wherein it randomly spouts off obscure facts or trivia. 
+
+The rabbit's appearance is notable for its not-arranged green head contrasting with the distinguished two-color band on its forehead. It also possesses jade earrings on its floppy ears, as well as chewing on a candy stick, which may serve as a stress reliever. DSC-MATE-4731 wears normal glasses over its two-toned eyes. 
+
+Foundation personnel have yet to uncover the extent of this rabbit's abilities, but its inquisitive nature and quick wit may prove valuable during investigations. Security personnel are to treat DSC-MATE-4731 with respect and caution, as its rabbit physiology may contain unknown threats to personnel's well-being. Further testing and research into DSC-MATE-4731's species may shed light on its abilities and origins.

@@ -1,0 +1,5 @@
+DSC-MATE-424, designated as "The Idealist" is a female human with distinctive purple lips and spotted facial features. They often wear normal glasses and sport a witch short haircut. Their appearance is further reinforced by the green cross earrings and the gold chain, which they wear as part of their attire.
+
+The Idealist possesses a strongly idealistic personality, with an unshakable desire to better the world. They are often seen protesting or boycotting companies and causes that they feel contradict their values, sometimes in humorous or unconventional ways. However, their extremist nature also makes them a dangerous villain, willing to go to great lengths to see their goals accomplished.
+
+It is recommended that all interactions with DSC-MATE-424 be handled with utmost caution as their strong convictions can lead to erratic and unpredictable behavior. Additionally, it is advised to avoid engaging with The Idealist's ideology as it may lead to ideological conflicts and potential harm.

@@ -1,0 +1,7 @@
+DSC-MATE-4329, also known as "The Mechanic," is a human male of indeterminate age with distinctive features that set him apart from the rest of society. His face is marked with a spot on his mouth, and his eyes are blood-red, resembling those of a clown. DSC-MATE-4329's head is shaven in the style of a monk, accompanied by a goggle strapped to his forehead for every intricate work to be done.
+
+Upon close inspection, DSC-MATE-4329's ears have an ornate jade earring, which may or may not have anomalous properties. In most interactions, DSC-MATE-4329 is seen holding a cigarette, a routine that he practices all the time, regardless of the location or circumstance.
+
+DSC-MATE-4329's personality is that of a practical problem solver, often opting for unconventional solutions. This technique is evident in his line of work as a mechanic, where he uses paperclips, duct tape, and other makeshift solutions to fix broken vehicles and machinery.
+
+However, caution must be taken when approaching DSC-MATE-4329 for repairs. His methods are not always straightforward and can result in unexpected or anomalous outcomes. Therefore, it is recommended that only qualified technicians should consult with DSC-MATE-4329 for assistance. Anyone else should exercise caution, as they could unwittingly trigger an anomalous event.

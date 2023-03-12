@@ -1,0 +1,7 @@
+DSC-MATE-2651, also known as the "Rabbit Engineer", is a male rabbit of unknown origin. He stands at an average height and weight for his species, with soft white fur and large black eyes. He is often seen wearing a retro cap, a red victory band on his forehead, and normal glasses on his nose. Additionally, he wears a red scarf around his neck, and often carries a candy stick.
+
+DSC-MATE-2651 works as a train driver on the local subway system in the city, and has been seen performing his duties with a high level of diligence and precision. He values harmony and social connections, often engaging in friendly banter with his fellow employees during breaks. However, DSC-MATE-2651 also possesses a goofy side, which can lead to humorous situations such as telling jokes to lighten the mood.
+
+On multiple occasions, DSC-MATE-2651 has been observed attempting to socialize with humans outside of his job, leading Foundation personnel to believe that he may possess a level of sentience beyond that of a normal rabbit. Additionally, DSC-MATE-2651 has shown a keen interest in mechanical devices, and has been observed taking apart and reassembling small objects in his spare time.
+
+Overall, DSC-MATE-2651 is a friendly and likable character, with an endearing personality that facilitates good relationships with those around him. Despite his peculiar behavior and appearance, DSC-MATE-2651 is regarded as a valuable asset to the subway network, and is monitored closely by Foundation personnel for any signs of anomalous activity.

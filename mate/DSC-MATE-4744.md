@@ -1,0 +1,7 @@
+DSC-MATE-4744, also known as the "Winged Lawyer," is a human female with striking blonde hair adorned with a pair of feathery wings on her head. DSC-MATE-4744's most distinguishing feature is her infectious smile, which has been known to disarm even the most skeptical of individuals.
+
+While DSC-MATE-4744's outward appearance is mostly humanoid, she possesses a unique ear decoration in the form of a green cross earring. Additionally, DSC-MATE-4744 is often seen wearing a gold chain, which she seems particularly attached to.
+
+DSC-MATE-4744 is known to have a strong sense of duty and responsibility and is often called upon to represent those in need, using her legal expertise to win cases that initially seemed unwinnable. Despite her intense workload, DSC-MATE-4744 is not one to shy away from having fun. In fact, her playful nature has led to her becoming somewhat of a party animal and is often the life of any gathering she attends.
+
+While DSC-MATE-4744's jovial persona is often endearing, some personnel have noted that her lightheartedness can sometimes be disruptive to more serious proceedings. All in all, DSC-MATE-4744 is a unique presence within the Foundation, and her supernatural abilities paired with her infectious energy make her an invaluable asset.

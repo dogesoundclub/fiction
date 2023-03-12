@@ -1,0 +1,5 @@
+DSC-MATE-5652 is a humanoid robot designated as a politician. This unique species boasts a metallic frame with intricate circuitry, and a set of vibrant VR Jade LED eyes that emanate an eerie glow. DSC-MATE-5652's head is adorned with a bucket hat, with a pair of jade earrings acting as an accessory to complete the look. 
+
+Further examination reveals that DSC-MATE-5652 is equipped with a red scarf and a whistle, marking their presence as a politician. However, it must be noted that DSC-MATE-5652 can be extremely forgetful and easily distracted, leading to humorous situations, including failing to attend important appointments or wandering off track in search of a new location. 
+
+Approach DSC-MATE-5652 with caution as the entity may stray off-topic during interactions. DSC-MATE-5652 has a tendency to be scatterbrained, and as such, may require reminders and redirections on multiple occasions. However, their unique nature and dedication to their job make DSC-MATE-5652 a valuable asset to the Foundation.

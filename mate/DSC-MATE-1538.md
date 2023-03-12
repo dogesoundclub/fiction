@@ -1,0 +1,11 @@
+Object Class: Safe
+
+Special Containment Procedures: DSC-MATE-1538 is to be allowed to continue its employment as a train driver, on the condition that it does not deviate from its usual route unless authorized by a member of the DogeSoundClub. Personnel are to avoid physical contact with DSC-MATE-1538 but are permitted to communicate with it through its communication device. DSC-MATE-1538 is open to psychological evaluations, but it is imperative that its delicate emotional state is not jeopardized.
+
+Description: DSC-MATE-1538 is a male Bengal tiger in its mid-40s. It stands at a height of 7.3 feet and weighs around 350 lb. DSC-MATE-1538 consistently wears a green conductor's uniform, which it may occasionally pair with a utility vest. DSC-MATE-1538 exhibits exceptional psychiatric tendencies, anthropomorphizing inanimate objects and caring for them as though they were sentient beings capable of receiving affection.
+
+DSC-MATE-1538 displays a red cross earring on its left earlobe and wears horned rim glasses over its piercing blue eyes. DSC-MATE-1538's forehead is marked by a two-color band that is not arranged in any particular pattern. DSC-MATE-1538 affixes a medical mask over its snout before interacting with Foundation personnel.
+
+Personality: DSC-MATE-1538 is a very caring individual who can display intense feelings of empathy towards all things. DSC-MATE-1538's emotional spectrum extends to the point where it anthropomorphizes most inanimate objects, giving them names and treating them as though providing emotional support to them. DSC-MATE-1538 demonstrates excellent job satisfaction, and carrying out its duties as a train driver might fulfill its need for affection towards its locomotive.
+
+DSC-MATE-1538's level of curiosity is quite notable and may lead to significant amounts of stress if it encounters complications in its daily routine. DSC-MATE-1538 requires consistent communication and reassurance from its superiors to maintain its mental wellbeing. DSC-MATE-1538 is open to psychological counseling sessions to keep its emotions stable.

@@ -1,0 +1,11 @@
+DogeSoundClub Case File #11: "The Harried Hare"
+
+Object Class: Safe
+
+Special Containment Procedures: Subject 11, also known as "The Harried Hare," is to be contained within a standard humanoid containment cell at Site-██. Due to their small size and non-aggressive nature, physical restraints are unnecessary. However, the cell must be kept free of any potential sources of stress or overwork, such as excessive noise or clutter. Access to electronic devices, particularly computers and other programming equipment, is to be strictly limited and monitored at all times.
+
+Description: DSC-MATE-11 appears to be a male rabbit of the Leporidae family, standing approximately 60cm tall when upright. The entity is outfitted with an array of electronic and fabric accessories, including a blue bandana tied around its head, VR rainbow LED eyes, and a red scarf draped around its neck. DSC-MATE-11 is a skilled computer programmer, with a particular aptitude for coding and debugging complex software systems.
+
+DSC-MATE-11 presents with a chronic state of anxiety and overwork, often expressing a sense of being overwhelmed or overburdened with responsibilities. The subject has a strong sense of duty and takes their work and commitments seriously, often to the point of taking on too much and neglecting their own self-care. DSC-MATE-11 also exhibits a tendency towards hoarding and over-preparation, often carrying multiple bags or devices with them at all times.
+
+Addendum 11-A: On ██/██/████, DSC-MATE-11 suffered a severe panic attack and was found curled up in a corner of their containment cell. After examination by medical personnel, it was determined that DSC-MATE-11 was experiencing acute stress and exhaustion due to overwork and lack of self-care. In response, their containment procedures were updated to include mandatory rest periods and relaxation techniques, as well as stricter monitoring of workload and stress levels. DSC-MATE-11 has responded positively to these measures and is currently in stable condition.

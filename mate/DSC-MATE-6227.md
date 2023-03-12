@@ -1,0 +1,7 @@
+DSC-MATE-6227 is a human train driver with unique physical characteristics. Identified by her orange stripes and a welcoming smile, 6227's appearance strikes one as friendly and amicable. However, it's the red clown eyes that set her apart from the rest, acting as a harbinger of the unpredictable nature that lies in DSC-MATE-6227's personality. 
+
+Known for their energetic and enthusiastic behavior, DSC-MATE-6227 has the ability to motivate those around her, even in the most mundane situations. This often leads to amusing and intriguing incidents where the target's lack of interest is overridden by DSC-MATE-6227's liveliness. 
+
+Furthermore, her witch short hair and green cross earring give DSC-MATE-6227 an air of mystery, leading some to believe her abilities could be supernatural in nature. She is often seen wearing a gold chain and a normal gas mask, with no clear explanation offered as to why. 
+
+The Foundation has classified 6227 as a human, though further research is currently underway to ascertain whether DSC-MATE-6227 is carrying anomalous properties or not. Observation of DSC-MATE-6227 in social settings is closely monitored, and it is recommended that all civil engagements involving 6227 be supervised.

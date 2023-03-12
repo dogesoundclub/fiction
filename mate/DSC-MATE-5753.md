@@ -1,0 +1,7 @@
+Subject 5753, also known as the "Bunny Cop," is a male rabbit of unknown origin who works as a fast food worker in the heart of the city. The subject has been observed sporting a green police cap atop his head, accompanied by a jade earring in each ear. Additionally, the subject often dons a flashy gold chain around his neck, which glimmers in the neon lights of the city.
+
+Despite being of the animal kingdom, subject 5753 displays a natural charm and charisma that can rival that of any human. It's no wonder that he is often the center of attention at any social gathering, often telling jokes or performing silly dances to entertain others.
+
+However, it's the subject's keen sense of justice that sets him apart from the rest. Despite his lighthearted demeanor, 5753 has been known to don the cape of the "Bunny Cop" in times of trouble, equipped with a badge that symbolizes his dedication to maintaining law and order in the city. His acute senses and lightning reflexes make him a formidable opponent in any altercation.
+
+Unbeknownst to the world at large, there are whispers that 5753 possesses supernatural powers, rendering him a potential threat to the natural order of things. The DSC foundation is keeping a close watch on him, as his powers could bring about the end of the world as we know it. For now, however, the Bunny Cop remains a beloved member of the community, serving up burgers and fries with a smile, while keeping an eye out for any trouble that may come his way.

@@ -1,0 +1,5 @@
+DSC-MATE-3097 is a male tiger currently employed as a news anchor. His frightful mouth and medical mask covered face were reminiscent of a scared prey, while his police cap hinted towards something more sinister. His forehead was adorned with two color bands, indicating his rank or status within a certain group. A single gold earring was present on each of his large, feline ears that twitched at even the slightest sound. 
+
+Despite his intimidating appearance, DSC-MATE-3097 was known for his laid-back and easy-going demeanor. However, he possessed a fierce loyalty and protectiveness towards his loved ones. This trait led him to engage in many humorous situations, including getting into heated arguments with people who insulted his friends and family. 
+
+It is strongly advised that all personnel approach DSC-MATE-3097 with caution and respect, especially when his protective instincts are triggered. Any attempts to harm or threaten his loved ones will result in swift and brutal retaliation.

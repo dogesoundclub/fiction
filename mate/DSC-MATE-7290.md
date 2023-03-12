@@ -1,0 +1,9 @@
+Containment Procedures: DSC-MATE-7290 is to be contained within Site-██'s Security Sector at all times. Access to the Security Sector requires Level 3 clearance or higher. DSC-MATE-7290 is to undergo monthly psychological evaluations and must report any abnormal behavior or symptoms related to DSC-MATE-7290's anomalous traits immediately.
+
+Description: DSC-MATE-7290 appears to be a human male in his mid-thirties, standing at approximately 1.83 meters tall and weighing 95 kilograms. DSC-MATE-7290 has a distinctive Mouth Spot on his chin, which appears to be a pigmented mole. DSC-MATE-7290 also wears normal glasses and a red scarf around his neck. On his forehead, DSC-MATE-7290 wears a pair of goggles, which they state are for aesthetic purposes only. DSC-MATE-7290's ears bear a gold earring.
+
+DSC-MATE-7290's most notable feature is their LED Gas Mask, which DSC-MATE-7290 wears at all times. The mask is of unknown make, but it appears to have been modified to include LED lights on the front of the mask's respirator to spell out various messages, such as "SMILE" or "HI."
+
+DSC-MATE-7290 displays a great sense of humor and tends to make others laugh with funny stories or silly impersonations. DSC-MATE-7290's charming personality is infectious, and they have been known to bring humor to even the most tense situations.
+
+Despite DSC-MATE-7290's friendly demeanor, it is advised not to approach DSC-MATE-7290 without proper clearance or authorization as DSC-MATE-7290's anomalous traits are not fully understood. Further research is needed to determine the extent of DSC-MATE-7290's capabilities and their potential threat level to Site-██ and its personnel.

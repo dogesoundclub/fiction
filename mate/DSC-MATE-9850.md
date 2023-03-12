@@ -1,0 +1,7 @@
+Subject 9850, also known as 'The Hare', is a fast-food worker with a notable appearance that immediately stands out from its mundane surroundings. The subject measures approximately 3 feet in height, with a timid and shrinking attitude that denotes fearfulness. Its mouth is perpetually agape, expressing a panicked expression, perhaps in connection with its perceived status in society. 
+
+The Hare appears to have adapted human characteristics, wearing a hoodie and sporting a pair of nerd glasses that provide it with a distinctly geeky appearance. What sets it apart, however, is the delicate gold chain hanging around its neck, which may indicate a certain level of appreciation for extravagance. 
+
+Under close observation, their enthusiastic nature becomes apparent. Their liveliness and contagious energy are reminiscent of a child, with an unwavering passion for life and an eagerness to please. They tend to generate a romanticized version of the world, which may lead others around them to perceive things differently.
+
+There is currently no record of any anomalous abilities or intent from the subject. However, personnel are advised to handle Subject 9850 with caution, as it is notoriously prone to spontaneous, immature behavior, leading them into impulsive activities that could put the general public at risk. The subject's delightfulness serves as an effective smokescreen, disguising potentially dangerous tendencies that may go unnoticed, leading to unexpected consequences if mishandled.

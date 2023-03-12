@@ -1,0 +1,7 @@
+DSC-MATE-6883, also known as the "Charming Real Estate Agent," is a humanoid creature posing as a human male. DSC-MATE-6883's most striking feature is their infectious smile, which can easily disarm and charm even the most skeptical of individuals. Additionally, DSC-MATE-6883 is typically seen wearing a bucket hat and a gold earring, adding to their charismatic appearance.
+
+DSC-MATE-6883's primary job as a real estate agent provides them with ample opportunities to ingratiate themselves with potential clients. The creature possesses an uncanny ability to connect with others on a deep level, often using humor and wit to get strangers to open up about their personal lives. DSC-MATE-6883's approachable demeanor and sharp mind make them a highly effective salesperson, able to deftly navigate the tricky world of real estate transactions with ease.
+
+However, caution is advised when interacting with DSC-MATE-6883. Though the creature's intentions may seem benign, they have been known to engage in behavior that borders on manipulative. DSC-MATE-6883's ability to quickly establish rapport with others has led them to take advantage of vulnerable individuals, pushing them into making decisions they may later come to regret.
+
+Overall, DSC-MATE-6883's charming demeanor and quick wit make them a highly effective salesperson and social lubricant. However, caution is advised when interacting with this creature, as their intentions may not always be what they seem.

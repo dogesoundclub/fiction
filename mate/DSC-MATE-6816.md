@@ -1,0 +1,15 @@
+Item #: DSC-MATE-6816
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-6816 is to be kept in a standard humanoid containment cell with enrichment objects appropriate for a non-human primate. DSC-MATE-6816 is to be provided with writing materials as per request. DSC-MATE-6816 is not allowed to access internet services due to unpredictable information the entity may obtain as a result of browsing. DSC-MATE-6816 is required to report any discomfort or sudden illness. In the case of an emergency, medical attention should be provided for DSC-MATE-6816 immediately.
+
+Description: DSC-MATE-6816 is a male monkey species of the genus Macaca, approximately 12 years old. DSC-MATE-6816 is approximately 40 inches in height, and weighs approximately 35 lbs. DSC-MATE-6816 has brown fur, brown eyes, and a frightened mouth. DSC-MATE-6816 wears black horned rim glasses, a red scarf, and a single earring made of jade connected to its right ear.
+
+DSC-MATE-6816 exhibits high intelligence, with persuasive communication skills and the ability to conduct research and take careful notes. Due to previous research background, DSC-MATE-6816 is allowed access to scientific and educational books, as well as a variety of writing material. DSC-MATE-6816 has been an excellent in-house physician, providing thorough and detailed medical exams, diagnosing issues correctly and filing appropriate records. Despite efforts by researchers to sway DSC-MATE-6816 from its thrill-seeking personality, it continues to express a significant joy for adventure and adrenaline-fueled activities.
+
+DSC-MATE-6816 claims to have a unique problem-solving ability, suggesting it can continually identify the best and most logical solution to complex issues. DSC-MATE-6816 remains cooperative and amiable with researchers and exhibited no hostility or aggressive behavior towards personnel. Access to fire equipment must be restricted within DSC-MATE-6816's cell due to DSC-MATE-6816's persistent habit of smoking. Caretakers need to ensure timely removal of cigarette butts and maintenance of air filtration systems.
+
+DSC-MATE-6816 has shown extraordinary resiliency in surviving near-death experiences while bungee jumping and kayaking. Though the nature of the danger may be cause for concern, DSC-MATE-6816 has exhibited an optimistic attitude when dealing with previous dangerous activities or encounters. DSC-MATE-6816 is to be carefully accompanied when engaging in physical activity outside of the containment cell.    
+
+Addendum: As in accordance with request, DSC-MATE-6816 is scheduled for a next week's Zipline activity in hopes of meeting DSC-███, to determine if a relationship can be established between DSC-MATE-6816 and its counterpart. Surveillance of DSC-MATE-6816 will be monitored closely during the trip. Testing will be conducted on DSC-███ with plans for a possible collaboration between the two entities.

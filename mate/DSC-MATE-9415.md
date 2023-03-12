@@ -1,0 +1,5 @@
+DSC-MATE-9415 is a humanoid anomaly identified as a Police Officer, with a designation number of 9415. The subject is of the human species, male and possesses the facial trait of orange stripes along with a perpetual smile that is constantly evident on his face. His head is of metallic purple which has puzzled researchers as to how it's able to remain constantly on his body. He also possesses two accessories, namely- a red scarf and a normal gas mask.
+
+The subject's personality is something that has been noted as quite distinctive as well. DSC-MATE-9415 demonstrates a great sense of humor and has been known to enjoy making others laugh on multiple occasions. This can lead to some humorous situations, such as telling funny stories or doing silly impersonations to lighten the mood, which has led to the subject being referred to as the "Jester" by some staff members.
+
+DSC-MATE-9415 has shown to have a cooperative demeanor, albeit his jovial nature should not be seen as a sign of dangerousness in any form, and all interactions with the subject should be careful and considered.

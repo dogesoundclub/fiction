@@ -1,0 +1,12 @@
+Item #: DSC-MATE-7463
+Object Class: Keter
+
+Special Containment Procedures: DSC-MATE-7463 is to be contained within a standard humanoid containment chamber at all times. All interactions with DSC-MATE-7463 must be supervised by at least two armed guards. DSC-MATE-7463 is to be kept under constant surveillance to ensure that it does not use its position as a Mafia Boss to escape from containment. Any attempts to do so are to be met with immediate and lethal force if necessary.
+
+Description: DSC-MATE-7463 is a male human identified as a Mafia Boss by the name of Vittorio 'The Fox' Marconi. DSC-MATE-7463 displays a distinct set of physical features, including orange stripes on the face, a constant smile, and normal glasses. Additionally, DSC-MATE-7463’s appearance includes a monk’s head and a medical mask covering its mouth at all times.
+
+Despite its status as a criminal boss, DSC-MATE-7463 exhibits a strong sense of duty and responsibility, which it applies to its organization, as well as to its containment procedures. It has proven to be highly adaptable and tactical, possessing the ability to utilize information to manipulate and control situations in its favor, while at times utilizing a more unconventional approach to achieve its goals. 
+
+During social events, DSC-MATE-7463 has also been observed displaying a playful and jovial side, using humor and highly entertaining dance moves to surprise others. These antics often tend to lower the guard of those around it, making it a highly dangerous foe in both social situations or when trying to gain its trust.
+
+Addendum: DSC-MATE-7463 has shown its willingness to exchange information about its organization's activities in exchange for being allowed to continue to run its criminal empire. While this may seem a tempting offer, its position and access to dangerous individuals, weapons and the like make it an extraordinarily high risk for any individuals or organization that would come into contact with it. Furthermore, DSC-MATE-7463's allegiances and trustworthiness should never be taken at face value, as it strictly adheres to its own codes of conduct and loyalties. DogeSoundClub personnel are warned to avoid contact at all costs with DSC-MATE-7463, unless under strictly controlled and extreme circumstances.

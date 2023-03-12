@@ -1,0 +1,5 @@
+DSC-MATE-6667, also known as "The Clown Banker," is a humanoid entity of the species Homo sapiens. DSC-MATE-6667 presents as a female banker with blue clown eyes and a permanent smile on their face. DSC-MATE-6667's head is always covered with a hoodie, and they wear a large gold chain around their neck.
+
+DSC-MATE-6667's most defining feature is their dry sense of humor, which often catches people off guard. Despite not considering themselves to be the life of the party, DSC-MATE-6667 has a way of delivering deadpan jokes that can be surprisingly amusing. However, it is suggested to be cautious when engaging with DSC-MATE-6667, as their humor can sometimes have a dark or malicious intent.
+
+DSC-MATE-6667's origin and abilities are still unknown, but their presence has been observed in various financial institutions worldwide. It is unclear if DSC-MATE-6667 uses their humor as a means of manipulating or influencing individuals for their own benefit, or if it is merely a form of entertainment. Further investigation is necessary to determine the full extent of DSC-MATE-6667's capabilities and potential threats to normalcy.

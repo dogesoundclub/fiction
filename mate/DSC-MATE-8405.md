@@ -1,0 +1,5 @@
+DSC-MATE-8405, also known as "The News Anchor," is a human male with a distinct appearance. His eyes are always hidden behind large nerd glasses while his head dons a police cap. He sports a gold earring on one ear and a medical mask over his mouth. To complete his look, he wears a golden chain around his neck.
+
+The News Anchor's personality is marked by his reliability and organization skills, making him a valuable asset to any newsroom. However, his stubbornness can lead to some awkward moments when he is confronted with unexpected changes or new ideas. Despite this, he always manages to deliver the news with impeccable professionalism.
+
+Due to his unique appearance and behavior, it is suspected that The News Anchor may have undergone some sort of anomalous transformation. Investigations are currently underway to uncover the cause of this anomaly and determine if it poses a threat to society. Until then, DSC-MATE-8405 remains under strict observation while continuing his duties as a news anchor.

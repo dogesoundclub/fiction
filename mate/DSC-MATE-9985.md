@@ -1,0 +1,5 @@
+DSC-MATE-9985 is a human male commonly known as "The Designer" in fashion industry circles. His face features spots that appear to be reminiscent of a leopard, and he often looks frightened as if he's seen something he shouldn't have. His eyes are framed with nerd glasses making him look more intelligent and thoughtful. DSC-MATE-9985's most striking characteristic is his parted pink hair that somehow looks unnatural.
+
+He usually accessorizes with a gold chain around his neck and a candy stick in his hand, which he's often seen snacking on. Despite his seemingly quirky appearance, DSC-MATE-9985 has a strong sense of responsibility and takes his work very seriously. His passion lies in designing clothes that are both stylish and functional.
+
+DSC-MATE-9985's unique blend of duty and fun has led to surprising situations, such as him dancing on tables and doing silly antics on the dance floor at various social events. But don't let his playful nature fool you as he is hardworking and determined to succeed in the world of fashion no matter what.

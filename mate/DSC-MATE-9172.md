@@ -1,0 +1,7 @@
+Subject 9172, codename "The Veterinarian," is a human female with striking features. Her infectious smile is a hallmark of her personality, but her orange eyebrows and pigtails make her distinctive and unforgettable to anyone who crosses her path. She sports golden earrings and a normal gas mask, indicating that she is cautious and always prepared for any situation that should require it.
+
+A veterinarian by trade, The Veterinarian exhibits a goal-oriented personality that is both ambitious and diligent. She is known for her strategic thinking and excellent organizational skills, which she puts to good use in her work. However, her ambition can sometimes lead her to take on more than she can handle, pushing her to her limits and beyond.
+
+Despite these challenges, she manages to pull it off every time, demonstrating an incredible willpower and fierce determination. As such, she has become a respected figure in the urban fantasy world, always ready to lend her skills and expertise to those in need. With her orange-eyed gaze and determined smile, even the most daunting challenges sometimes appear conquerable in her hands.
+
+Subject 9172, The Veterinarian, is not to be underestimated. Although a human by species, her willpower and determination make her a force to be reckoned with. Her organizational skills and strategic thinking make her an asset in any situation, and her golden earrings and gas mask are the tell-tale signs that she is always ready for what's to come. Approach with caution and respect.

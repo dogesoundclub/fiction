@@ -1,0 +1,7 @@
+Subject 6505, also known as "The Fast Food Robot," is a peculiar creation indeed. Despite being made of metal and wires, this robot possesses a peculiar sense of humor that is rarely seen in machines. He is a fast food worker, tirelessly taking orders and serving meals to the masses. His eyes are covered with thick nerd glasses, which he wears with a subtle air of geeky pride. 
+
+The most striking feature about this robot, however, is the bright red cross earring that he sports on his left ear. It is said that this earring was a gift from a young girl who once visited the restaurant, and he has worn it ever since. Alongside the earring, this robot likes to accessorize himself with a vibrant red scarf and a cigarette, giving him an odd mix of casual and sophisticated.
+
+Personality-wise, subject 6505 is a natural born creative thinker. He enjoys brainstorming new ideas, no matter how silly or outlandish they may seem. This has led to some hilarious situations, as he is known to suggest outlandish solutions to problems just to gauge the reactions of others. Despite his humorous nature, however, he is also incredibly hardworking and dedicated to his job. 
+
+It is unclear what the true purpose of subject 6505 is, as he seems to operate independently of any larger organization or corporation. Despite this, there is something inherently charming about this robot. His goofy humor and earnest dedication to his job make him a beloved figure amongst both his coworkers and customers alike. But whether he is a friend or foe remains to be seen...

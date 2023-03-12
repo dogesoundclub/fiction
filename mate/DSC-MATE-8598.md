@@ -1,0 +1,9 @@
+DSC-MATE-8598, codename "Thumper," is a veterinarian and an anomalous rabbit entity. They stand at approximately 2 feet and 10 inches tall, covered in plush white fur with a prominent gold earring on their left ear. Their face is characterized by a perpetually frightened mouth, and their eyes are replaced by jade LED technology for improved medical precision.
+
+DSC-MATE-8598's dry sense of humor is a notable characteristic, often providing comedic relief despite their timid demeanor. However, subjects should exercise caution when interacting with DSC-MATE-8598, as they are capable of severely injuring humans if provoked. Additional care should be taken to avoid sudden or unexpected movements, as this can cause DSC-MATE-8598 undue distress.
+
+DSC-MATE-8598's keen medical expertise has proven invaluable to the Foundation's medical staff, particularly in the treatment of anomalous biological entities. They are able to detect even the subtlest of changes in an individual's body, facilitating more accurate diagnoses and treatments. DSC-MATE-8598 is also quite comfortable working in high-pressure environments, and their calm and collected attitude has saved many lives in emergency situations.
+
+DSC-MATE-8598 requires a specialized diet of leafy greens and fresh produce, which must be obtained from reputable suppliers to ensure their overall health and wellbeing. The silver chain around their neck serves as a reminder of their non-anomalous past life as a pet rabbit, and acts as a comforting item when they feel particularly distressed.
+
+Overall, DSC-MATE-8598 is a valuable asset to the Foundation's scientific community, and their contributions to ongoing medical research and patient care are greatly appreciated. Personnel are reminded to treat DSC-MATE-8598 with the utmost respect, and to seek clearance before interacting or conducting experiments with them.

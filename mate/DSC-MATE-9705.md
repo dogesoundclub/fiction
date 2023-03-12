@@ -1,0 +1,7 @@
+DSC-MATE-9705, also known as "the Fast Food Worker," is a human female with distinctive orange stripes on her face. Her vibrant LED eyes in the color of VR Jade glow with an eerie intensity, and she always wears a bucket hat on her head. The most notable feature of DSC-MATE-9705 is her smile, which is impossibly wide and unsettling.
+
+DSC-MATE-9705 works as a fast-food worker, often interacting with customers in an enthusiastic and friendly manner. However, her true personality is far more complex than her cheery facade. DSC-MATE-9705 has a rich inner life, characterized by a vivid imagination and an insatiable curiosity.
+
+Her hobbies are as unusual as they are varied. DSC-MATE-9705 has shown interest in cosplay, often creating elaborate costumes that require intricate attention to detail. She also enjoys writing poetry, which is often dark and introspective. Alongside her poetic creations, DSC-MATE-9705 likes to collect unusual objects, displaying them in her fast-food uniform along with her green cross earring and silver chain.
+
+While DSC-MATE-9705 is overall cooperative and non-violent, her unique personality and appearance make her an anomaly that requires close observation. DogeSoundClub sees her as a potential danger to society due to a possible perception of her "true intentions".

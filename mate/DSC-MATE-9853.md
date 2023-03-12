@@ -1,0 +1,11 @@
+Item #: 9853
+
+Object Class: Euclid
+
+Special Containment Procedures: Item 9853 is to be housed within a standard humanoid containment chamber within the secure facilities of the Foundation. Standard security protocols are to be followed, with double-locked doors, motion sensors, and CCTV monitoring in place at all times. The subject exhibits no hostility towards personnel, but is a powerful entity with the ability to cause significant damage. Any interaction with the subject must be carried out with caution and under the supervision of a top-level personnel.
+
+Description: Item 9853 is a male tiger which has displayed intelligence and reasoning abilities far beyond those of normal tigers. It is capable of speech in human language, and has shown extensive knowledge on medical and veterinary practices. Item 9853 wears a typical police cap on its head, with a red cross earring affixed to its right ear. A red scarf is also frequently draped around its neck. The subject often wears a gas mask, though it is unclear why this is necessary, as the entity has not shown any signs of respiratory distress that require mask use. Item 9853 also wears normal glasses over its eyes.
+
+Personality: Item 9853 has displayed a strong value for tradition and honor, often adhering to strict, traditional codes of conduct. It possesses a no-nonsense attitude, but has also exhibited a playful side, telling jokes and stories passed down through its family and community. While this interesting and humorous side of the entity might be appealing, it should not be underestimated. Any perceived threat or insubordination against the entity's traditions or principles may result in aggressive behavior.
+
+Addendum: Item 9853 has been recruited as a Foundation veterinarian, providing valuable insight on various anomalies containing animals. Item 9853's expertise and knowledge already have proven valuable to the containment and study of several dangerous organisms. Despite cooperation, however, the entity must be monitored closely to ensure it does not gain access to sensitive information regarding other anomalies.

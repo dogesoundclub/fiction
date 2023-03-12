@@ -1,0 +1,7 @@
+DSC-MATE-6912, also known as "The Jester", is a security guard employed by the Foundation to maintain the safety of its facilities. Despite their unique appearance, a short peak cap adorned with a two-color band and jade earrings, DSC-MATE-6912 is a fully human male with a distinctive set of blue clown eyes. 
+
+The Jester takes their job very seriously, exhibiting a strong sense of duty and responsibility towards their role as a security guard. However, they also have a fun-loving and whimsical nature that makes them the life of the party in any situation. It is not uncommon for them to break out into song or dance, taking everyone around them along in the merriment.
+
+It is suggested that personnel do not underestimate DSC-MATE-6912's jovial personality as it can sometimes serve as a distraction from their vigilant work as a security guard. They often conceal their mouth behind a medical mask and drape themselves in a bright red scarf, creating an enigmatic aura that adds to their mysterious and intriguing personality.
+
+As with all Foundation personnel, DSC-MATE-6912 should be approached with caution, but also appreciated for their unique approach to the safety and security of the organization.

@@ -1,0 +1,7 @@
+DSC-MATE-7655 is a humanoid entity that goes by the name of "The Litigator". This creature, seemingly originating from our world, presents neotenous features differentiated from regular Homo sapiens specimens, such as facial orange stripes and lips with a bright crimson hue. Furthermore, its eyes are, by no means, an exception in a biological sense, but rather, those eyes present an unusual dynamic VR jade LED display. Its head takes on an unusual shape, appearing not correctly aligned in a greenish color. On its forehead is a goggle that appears to contain high-tech visual enhancements.
+
+DSC-MATE-7655 often wears a red cross earring, which seems to bear some significance towards the entity's professional appearance. The Litigator appears to work as a lawyer, often representing sentient creatures beyond our knowledge, even in other dimensions.
+
+The Litigator shows a strong sense of responsibility towards its clients, often putting honorable actions above its own gain. DSC-MATE-7655 has an irreverent sense of humor, taking part in silly antics during social functions and making impressive dance moves that often surprises others.
+
+DSC-MATE-7655 may present itself as a harmless oddity, but its performances appear to captivate others, giving off a calming effect that often benefits their clients. Attempting to engage DSC-MATE-7655 on a demeaning or offensive manner will result in severe reprimands from The Foundation. As such, handling interactions between personnel and DSC-MATE-7655 should require extra caution.

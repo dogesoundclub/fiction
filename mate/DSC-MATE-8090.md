@@ -1,0 +1,7 @@
+DSC-MATE-8090, known by the moniker "The Obsessive Lawyer", is a female human with striking orange stripes on her skin that contrast with her deep purple lips. Her head is often concealed by a hoodie, and she is frequently seen wearing a silver chain around her neck and a normal gas mask over her face. 
+
+Despite her mundane occupation as a lawyer, DSC-MATE-8090's personality is anything but ordinary. Her extreme attention to detail and obsession with organization has earned her a reputation amongst DogeSoundClub personnel as a meticulous and obsessive individual. Her tendencies towards ordering and cataloging have been observed in everything from her home to her work, including alphabetizing her spice rack and color-coding her closet.
+
+However, DSC-MATE-8090's behavior can sometimes take a turn towards the erratic or unexpected. Her fixation on detail sometimes drives her to take extreme or even dangerous actions in order to preserve her sense of order. Such actions have included medically altering her sense of taste to better distinguish between different spices, or even attempting to adjust her own physical features to more closely meet her definition of "perfection".
+
+Due to the unpredictable nature of DSC-MATE-8090's behavior, all interactions with her should be closely monitored and strict protocols enforced to ensure the safety of both DSC personnel and the public at large.

@@ -1,0 +1,7 @@
+DSC-MATE-8388 is a humanoid entity, classified as a farmer due to their line of work. Despite their unassuming appearance, research indicates that DSC-MATE-8388 possesses an innate ability to manipulate the emotions of others, especially through the use of humor.
+
+DSC-MATE-8388 is a female of the human species, with blonde hair commonly seen tied underneath an ushanka. DSC-MATE-8388 has a pair of green cross earrings on each ear, and they are always seen wearing a choker. Their eyes are concealed behind a pair of normal glasses, but DSC-MATE-8388’s main focus is on making the people around them happy.
+
+DSC-MATE-8388’s personality is described as charismatic and playful. They often initiate amusing conversations or share hilarious anecdotes, creating an environment that's upbeat and engaging. This playful nature usually comes natural to DSC-MATE-8388, and they often use it to diffuse tense situations or ease feelings of anxiety and sorrow.
+
+DSC-MATE-8388’s humor and emotional manipulation abilities can be detrimental if left unchecked. However, proper containment protocols have been implemented to ensure the safety of personnel and the public. DSC-MATE-8388 is to be contained in a secure facility, and any interaction is to be monitored to avoid any incidents.

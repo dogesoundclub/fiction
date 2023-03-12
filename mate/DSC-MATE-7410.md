@@ -1,0 +1,7 @@
+DSC-MATE-7410, also known as "The Striped Reporter," is a male Tiger of unknown origin. He has a distinctive appearance, with ski goggle eyes and a hoodie for a head, often decorated with a silver chain as his only distinguishing accessory. DSC-MATE-7410's intense strength and agility make him a fierce and formidable adversary to anyone who dares to cross him.
+
+DSC-MATE-7410's personality is as wild and free as his untamed nature suggests. He refuses to play by the rules of society, regularly rebelling against authority and breaking rules that he perceives as unnecessary. His autonomy is an essential part of his personality and his individuality, and he often shows his independence by leaving work early or even taking a day off without permission.
+
+Despite his wild nature, DSC-MATE-7410's work as a reporter is not to be underestimated. He is a master of investigation, utilizing his senses and intuition to track down even the most elusive sources. Though he is not a social creature by nature, DSC-MATE-7410 values truth and the power of the written word, believing that his work holds the key to unlocking the secrets of the world around him. 
+
+DSC-MATE-7410 is to be monitored closely during interactions with Foundation personnel, as his wild nature and rebellious tendencies may lead to dangerous situations. As always, caution must be exercised when approaching any non-humanoid DSC entities.

@@ -1,0 +1,5 @@
+Subject 8065 is a human male identifying himself as an electrician. He is most easily identified by his distinctive physical features, including a small, black spot on his mouth and a constantly frightened expression. Under close observation, it can be seen that the subject wears thick glasses with a nerdy frame, a green cross earring in one ear, and a red scarf around his neck at all times. 
+
+In addition to these features, the subject also wears a pair of goggles around his forehead, and is frequently found smoking a cigarette. Despite his reserved demeanor, Subject 8065 has a dry, often humorous wit and enjoys making witty observations and puns, no matter the context or situation. 
+
+While his analytical and logical thought patterns can sometimes lead him to be overly critical or cynical, he is nevertheless a valued member among his peers both professionally and socially. Overall, while Subject 8065 may seem an unremarkable specimen at first glance, careful examination reveals an intriguing and complex personality hidden beneath his ordinary, human exterior.

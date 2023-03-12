@@ -1,0 +1,7 @@
+Subject 8410, also known as "The Banker," is a peculiar human being with a striking appearance. His most notable feature is the orange stripes that run across his face and the blue clown eyes that seem to stare right through you. His head is adorned by bright green hair and a purple cap that rests casually on his head. 
+
+But what truly sets him apart are the two-color bands on his forehead and the goggles that sit there, hinting at a technological savvy that belies his role as a banker. His ears are adorned with green cross earrings and his mouth is obscured by a medical mask. 
+
+Despite his eccentric appearance, "The Banker" is known for his strong sense of duty and responsibility. He takes his job seriously and is uncompromising when it comes to the financial well-being of his clients. But he also knows how to have a good time, cutting loose on the dance floor and surprising everyone with his dance moves or silly antics.
+
+No one knows how he manages to balance his professional responsibilities with his playful personality, but those who have crossed him soon learn not to underestimate him. "The Banker" may be the life of the party, but he's also a force to be reckoned with in the boardroom.

@@ -1,0 +1,5 @@
+DSC-MATE-7434, also known as "The Gift Giver," is a male human with notable orange stripes on their face and a frightened mouth. Their eyes are reminiscent of ski goggles, and they don a police cap on their head while sporting a goggle on their forehead. This enigmatic being's ears are adorned with a green cross earring, while they wrap a red scarf around their neck as an accessory.
+
+Although DSC-MATE-7434 is classified as a villain, their personality is quite unique. They possess a keen observation skill and pay close attention to details, making them an excellent gift-giver. However, their obsession with finding the perfect gift can consume a lot of their time and energy, leading them to the brink of obsession.
+
+DSC-MATE-7434's motives and intentions are still a mystery to the Foundation. However, their reputation as a notorious villain, combined with their peculiar personality, makes them a character that should be approached with caution.

@@ -1,0 +1,9 @@
+Secure Containment Procedures: Subject 9845, designation "The Quick-Tongued Fast Food Worker", is to be contained within a standard humanoid containment cell. Standard security measures are to be taken, along with a psychological evaluation and submission of any items in their possession for analysis. All interactions with 9845 are to be recorded and reviewed by security personnel.
+
+Description: 9845 is a human male in his mid-20s with striking orange stripes as a face feature. He is commonly seen wearing a smile and a pair of glasses of normal size. The subject's head features green layers, while his ears possess a cross-shaped green earring. 9845 is often seen with a gold chain as his go-to accessory.
+
+Personality: The Quick-Tongued Fast Food Worker is known for his quick wit and love for debate. He has been observed engaging in playful arguments with friends and family members for fun, often providing a lighthearted atmosphere to any situation. However, his quips have also been known to escalate into more serious arguments, so caution must be taken during interactions with this subject.
+
+Containment personnel are advised to avoid engaging in intense debates or discussions with the subject, as his quick wit can turn a playful conversation into a heated one in a matter of seconds. 9845 must be kept separate from other subjects that may provoke violent or hostile behavior, as his love of banter may lead to confrontations.
+
+In conclusion, due to the subject's playful yet potentially volatile personality, it is imperative that all security measures are upheld and interactions with 9845 are closely monitored at all times.

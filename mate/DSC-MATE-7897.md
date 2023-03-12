@@ -1,0 +1,9 @@
+Containment Procedures: DSC-MATE-7897 is to be contained within the veterinary clinic at all times when not on official Foundation business. Personnel interacting with DSC-MATE-7897 are to be screened for any potential psychological vulnerabilities that may be exploited by DSC-MATE-7897's personality.
+
+Description: DSC-MATE-7897 is a male human with a unique set of facial features. DSC-MATE-7897 possesses a "mouth spot" on his face, which resembles a small patch of discolored skin under his left eye. Additionally, his "frightened mouth" facial expression can manifest without any obvious trigger or stimulus. DSC-MATE-7897's eyes appear to be made of a ski goggle-like material, which makes them highly reflective and difficult to read.
+
+DSC-MATE-7897's head is adorned with green hair wrapped in a purple cap, and a gold earring decorates one of his ears. DSC-MATE-7897 is often seen wearing a red scarf and smoking cigarettes.
+
+DSC-MATE-7897 has been assessed by Foundation personnel as having a strong sense of duty and responsibility, which is highly valued by the Foundation in its employees. However, DSC-MATE-7897 also has a playful side, which can manifest in humorous situations such as surprising others with their dance moves or silly antics on the dance floor at social events.
+
+DSC-MATE-7897 is a highly skilled veterinarian and medical practitioner and is highly valued by the Foundation for his expertise. However, given the potential for his unique personality traits to cause unforeseen difficulties, interaction with personnel will be highly controlled to ensure that his containment remains secure.

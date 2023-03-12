@@ -1,0 +1,7 @@
+DSC-MATE-6918, also known as "The Joker Lawyer", is a human male in his early thirties. He is often seen wearing a purple cap with a headset attached to it, displaying his love for technology. DSC-MATE-6918's most notable feature is the small black spot located near the right corner of his mouth, which gives the impression of a permanent smirk. He wears a green cross earring on his left ear, which may hold religious or sentimental significance for him.
+
+DSC-MATE-6918 is a successful lawyer, known for his sharp wit and charming personality. His medical mask, which is always worn outside of his office, serves both as a protection against airborne pathogens and as a fashion statement. The appearance is completed with a gold chain, worn around his neck, indicating his love for the finer things in life.
+
+Despite his professional successes, DSC-MATE-6918 has a reputation for being a bit of a prankster. He enjoys making others laugh, even at inappropriate times, and isn't afraid to use humor as a coping mechanism. His jokes and impersonations can often be inappropriate or offensive, but it is clear that DSC-MATE-6918 doesn't mean any harm. 
+
+While DSC-MATE-6918 has no anomalous attributes, it is worth noting that his humor and lightheartedness may attract certain types of supernatural entities. As such, it is advised that caution be taken when interacting with DSC-MATE-6918, especially in situations where safety is a concern.

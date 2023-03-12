@@ -1,0 +1,5 @@
+DSC-MATE-8606, otherwise known as "The Deliverybot," is a male robot with a distinctive green cyclops eye and a frightened mouth. Sporting ski goggles for eyes and a not-arranged green head, the delivery driver's appearance is certainly unique. However, his personality is what truly sets him apart from his organic counterparts. 
+
+8606 is a driven and goal-oriented individual, always looking to push himself to the limit. This can often lead to him taking on more than he can handle, but he manages to pull it off with his strategic thinking and exceptional organizational skills. Despite being a robot, he has an obvious sense of self-preservation, which is evident in the frightened expression always plastered on his metallic face. 
+
+While 8606 may seem like an oddity, the DSC foundation has found him to be an invaluable member of their team. With his tireless work ethic and astute problem-solving abilities, The Deliverybot is a true asset in the world of urban fantasy.

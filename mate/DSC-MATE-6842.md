@@ -1,0 +1,9 @@
+DSC-MATE-6842, also known as "Empathy Programmer," is a human of male gender with unique physical features. Notably, DSC-MATE-6842 sports multiple spots on his face, which have led to numerous comparisons to a constellation. DSC-MATE-6842's eyes are obscured by ski goggles, possibly indicating sensitivity to light. His head is usually covered with a retro cap, and he can often be seen sporting a silver chain as an accessory. The defining feature of DSC-MATE-6842, however, is the LED gas mask he wears, which emits a soft glow and is believed to aid in his ability to detect and interpret emotions.
+
+DSC-MATE-6842's unique set of skills has led to his recruitment as a member of the Foundation's programming department, where he utilizes his empathic abilities to develop software designed to aid in the containment of anomalous objects. DSC-MATE-6842's strong sense of empathy allows him to connect with individuals on a profound level, often detecting subtle nuances in behavior and language that may indicate the presence of an anomaly.
+
+Despite the gravity of his work, DSC-MATE-6842 maintains a jovial and humorous personality, using his empathic abilities to put others at ease and provide emotional support when needed. DSC-MATE-6842's ability to find humor in difficult situations has proven invaluable to his colleagues, providing a much-needed respite from the stresses of containment work.
+
+Due to the sensitivity of DSC-MATE-6842's abilities, he is restricted from interacting with particularly dangerous or cognitohazardous anomalies. Additionally, all software developed by DSC-MATE-6842 must undergo extensive testing to ensure it does not inadvertently cause distress or harm to Foundation staff.
+
+DSC-MATE-6842's unique set of abilities and personality have made him a valuable asset to the Foundation, and he stands as an example of the diverse talents and attributes required to contain anomalous objects in the modern world.

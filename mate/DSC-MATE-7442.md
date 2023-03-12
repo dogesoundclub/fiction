@@ -1,0 +1,9 @@
+DSC-MATE-7442, codenamed "Fast Food Hopper," is a sentient Rabbit of unknown origin who operates as a Fast Food Worker. Despite possessing the appearance of a docile and timid creature, DSC-MATE-7442 has the ability to communicate in human language fluently, albeit with a constant trembling voice evident of its anxiety.
+
+DSC-MATE-7442's most distinctive features include its large, nerdy glasses that often reflect the spotlight from the fast food counter, and a constant expression of fear with its mouth agape. DSC-MATE-7442's head sports an eccentric shock of green hair tucked under a purple cap, which is believed to be the result of DSC-MATE-7442's personal identity quirk.
+
+It is also worth noting that DSC-MATE-7442 carries a whistle at all times, which it uses to alert its coworkers of emergency situations, such as accidents or incidents with customers. However, DSC-MATE-7442 is wary of using the whistle, as it has a fear of attracting attention to itself.
+
+DSC-MATE-7442's personality traits are primarily reflective of its emotional intelligence. It shows an intuitive understanding of their innermost feelings and can empathize with others on a deep level. It is not unusual to find DSC-MATE-7442 wiping tears away during sentimental moments in movies or music that elicits strong feelings. DSC-MATE-7442's fondness for emotional expression may be attributed to its own struggle with anxiety, which makes it appreciate art forms that provide relief for its troubled mind.
+
+Special Containment Procedures dictate that all interactions with DSC-MATE-7442 should be carried out with the utmost consideration to their emotions. Any form of aggression or intimidation is strictly prohibited. Access to the whistle should be granted to DSC-MATE-7442 at all times, and all staff should be trained to respond to its emergency signals promptly.

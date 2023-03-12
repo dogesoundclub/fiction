@@ -1,0 +1,13 @@
+Item #: DSC-MATE-8403
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-8403 must be monitored at all times by Foundation agents. Any interactions with DSC-MATE-8403 must be approved by at least one Level 3 personnel. DSC-MATE-8403 should be contained in a standard humanoid containment chamber equipped with a high-security electric fence. A designated agent should escort DSC-MATE-8403 at all times and must wear protective gear for their own safety. Any deviations from this protocol must be reported immediately to the Site Director.
+
+Description: DSC-MATE-8403 is a human male in his early forties, standing at approximately 1.75 meters in height. He has multiple spots on his face, with thick nerd glasses that obstruct his pale blue eyes. DSC-MATE-8403 is often seen wearing a purple cap with a headset, which he claims is for "music," and a goggle on his forehead. He has a distinctive green cross earring and wears a gold chain around his neck. DSC-MATE-8403 is often seen holding a cigarette, which serves as his source of comfort and relaxation.
+
+DSC-MATE-8403 is a politician and has been elected to a position of power in the local government. He is known for his charismatic personality and is very popular amongst his constituents. However, DSC-MATE-8403 has exhibited impulsive and reckless behavior, which can result in dangerous situations. For example, DSC-MATE-8403 has been known to jump off cliffs into bodies of water without consideration for his own safety. DSC-MATE-8403 seems to enjoy taking risks and participating in hedonistic activities.
+
+DSC-MATE-8403's behavior has caused concern amongst Foundation agents. He has been known to act erratically, making it difficult to predict his next move. Additionally, DSC-MATE-8403 has been connected to several incidents involving individuals who have disappeared under suspicious circumstances. It is uncertain if DSC-MATE-8403 is directly involved in these disappearances, but Foundation agents have been ordered to monitor his activities closely.
+
+Addendum: Following Incident-8403-A, DSC-MATE-8403 has been placed under even stricter surveillance. DSC-MATE-8403 attempted to escape from containment by scaling the electric fence, causing severe burns and electrical damage to his body. The incident resulted in several injuries to Foundation agents, and DSC-MATE-8403 has been reprimanded for his actions. It is recommended that DSC-MATE-8403's containment measures be reviewed, as his attempts to escape become more frequent and unpredictable.

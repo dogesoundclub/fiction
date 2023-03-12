@@ -1,0 +1,5 @@
+DSC-MATE-8220, codenamed "The Reporter", is a female human with a striking appearance. Her signature red lips are always perfectly painted, drawing attention to her unique facial feature - an orange patch on the side of her head. A set of intricate jade earrings adorn her ears, adding an otherworldly touch to her already alluring presence.
+
+The Reporter's rebellious personality is evident in her dress and demeanor. She enjoys defying conventions and is often seen sporting a gold chain around her neck, a bold statement in the world of reporters. Her penchant for pushing boundaries can occasionally lead to some humorous situations, as she purposefully breaks rules and bends them just to see what happens.
+
+Due to her inquisitive nature and her ability to defy authority, The Reporter has been recruited by the DogeSoundClub to assist in uncovering hidden truths and shedding light on the unknown. With her unwavering determination and her insatiable curiosity, she is sure to be a valuable asset to the team in their quest to understand the mysteries of the unnatural world.

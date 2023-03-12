@@ -1,0 +1,7 @@
+Subject 7461 is a train driver of the utmost reliability, known among coworkers for their punctuality and expertise. Despite their mundane profession, 7461's facial features are strikingly abnormal- orange stripes dotted around their face, accentuating a bright smile that can light up even the most gloomy days. Their eyes, however, are more mundane, peering out behind a pair of thick glasses, unfazed by the unnatural appearance of their face.
+
+The rest of their facial features are equally peculiar, displaying a short and spiky haircut that can easily be mistaken for a Halloween costume. The left ear is adorned with a green cross earring, hinting at a possibly religious background or a penchant for obscurity.
+
+Despite the unsettling appearance, 7461's personality is warm and welcoming, exuding a laid-back and easy-going demeanor that puts even the most nervous passengers at ease. Their sense of humor is contagious, often resulting in boisterous laughter shared by passengers and coworkers alike. But make no mistake: if someone threatens their loved ones, 7461's demeanor can transform into a fierce and protective one, ready to defend their family and friends at any cost.
+
+As with all human subjects in our urban fantasy world, further observation and analysis are necessary to determine the cause and extent of their abilities, if any, and how they fit into the grander scheme of things.

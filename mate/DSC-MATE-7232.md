@@ -1,0 +1,11 @@
+Item #: 7232
+
+Object Class: Humanoid
+
+Special Containment Procedures: Subject with identification number 7232 is to be monitored regularly by agents to ensure they do not pose any threat to the safety of the public or Foundation. Subject is to be allowed to continue working as a mechanic, as it gives them a sense of purpose and appears to help with their mental state. Cigarettes are to be kept away from the subject as they pose a fire hazard in their work environment. Subject is to be reminded of upcoming events and appointments to avoid any potential breaches of secrecy.
+
+Description: Subject 7232 is a male of the human species with unique facial characteristics, including spots on their face. Their eyes are VR jade LED, which can sometimes make them appear more robotic than human. Additionally, their head is not arranged in the usual green color, which may indicate a history of cosmetic experimentation or genetic modifications. Subject is often seen wearing a gold earring in their ear and smoking a cigarette as a form of stress relief.
+
+Personality: Despite their unique appearance, Subject 7232 mostly exhibits typical human behavior. They are known to be absent-minded and forgetful, particularly when consumed by their thoughts or focused on a project. This has resulted in some comical situations where they have missed important events or appointments. While subject is generally friendly and cooperative with Foundation personnel, they also possess a natural curiosity and may require extra supervision to prevent them from straying into unauthorized areas or information.
+
+Addendum: Subject 7232 has demonstrated exceptional mechanical skills and must be kept away from any machinery requiring technical expertise beyond their current capacity. As they have shown an inclination to experiment with technology, they are considered a potential danger to themselves or others. Therefore, it is recommended for the foundation to find a way to enhance their abilities or to find a way to control their access to machinery to avoid any further incidents.

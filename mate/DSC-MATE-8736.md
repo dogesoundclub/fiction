@@ -1,0 +1,7 @@
+DSC-MATE-8736 is a peculiar specimen. As a farmer, one might expect a rugged and weathered appearance. However, this individual's phenotype is beyond what is considered normal for human beings. DSC-MATE-8736's most distinguishable features are its mouth spot and clown mouth, which stand out from its pale, almost metallic purple skin. Its eccentric appearance is completed with red clown eyes that seem to look straight into the soul of anyone it talks to. 
+
+DSC-MATE-8736 is usually seen wearing a medical mask, which makes it difficult to study its facial expressions, and a silver chain that we suspect serves as a spiritual token or good luck charm. Its presence is known for its uncanny ability to connect with people, quickly developing rapport and empathy in strangers. Its charisma and humor are contagious, often leading to humorous situations, and its sharp wit can disarm even the most skeptical. 
+
+In addition to DSC-MATE-8736's charming personality, it possesses a hidden talent that manifests in the agriculture field. The crops it cultivates defy conventional agricultural techniques and yield an almost supernatural harvest. The Foundation has attempted to study the mechanisms behind this anomaly, but DSC-MATE-8736 remains tight-lipped about its techniques. 
+
+DSC-MATE-8736's personality and supernatural abilities make it a valuable asset to the Foundation, but do not let this individual's charisma and friendly demeanor fool you. It has demonstrated an ability to manipulate individuals to its advantage and should be handled with caution.

@@ -1,0 +1,7 @@
+DSC-MATE-8021 is a humanoid entity that presents itself as a farmer in the rural areas of our jurisdiction. The subject is a female, with distinctive purple lips that contrast with her orange eyebrow eyes, and pig tails that adorn her head. DSC-MATE-8021 wears a medical mask that covers its oral orifice, making it difficult to decipher its facial expressions. 
+
+DSC-MATE-8021's most remarkable feature is its green cross earring, which shows it is aware and tolerant of the existence of paranormal and anomalous phenomena. This accessory and the choker that it wears around its neck suggests previous involvement with religious or cultish groups. DSC-MATE-8021 shows no signs of mental or physical weaponization.
+
+DSC-MATE-8021 shows a thirst for knowledge and spends most of its time reading about obscure topics. The subject enjoys the company of other individuals like itself, and it is eager to share its knowledge with them. The subject displays a passion for books, documentaries, and all kinds of educational materials. DSC-MATE-8021 displays no dangerous or hostile behavior towards humans, and thus poses no threat to the Foundation.
+
+As a precaution, all communications with DSC-MATE-8021 should adhere to strict protocols of human protection when it comes to anomalous, paranormal, or unknown topics. Any access to sensitive or classified information is, at this point, considered unnecessary as DSC-MATE-8021 is not involved in any secretive operations, and its capabilities are consistent with a human farmer.

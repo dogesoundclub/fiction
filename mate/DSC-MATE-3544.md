@@ -1,0 +1,5 @@
+DSC-MATE-3544 is a train driver of the human species, identified by his unique facial features - a prominent mouth spot and a permanent smile etched onto his face. His head is adorned with multiple layers of green hair, adding a vibrant and eccentric touch to his appearance. 
+
+He always carries a lit cigarette, which serves as his constant companion. Despite his playful and lighthearted demeanor, DSC-MATE-3544 is known to possess a highly imaginative mind, with a tendency for the unusual and peculiar. His hobbies range from writing poetry to designing intricate cosplay costumes or collecting peculiar objects from his travels. 
+
+DSC-MATE-3544's unique personality traits and keen sense of creativity make him both an asset and a potential risk. His unstable nature and the unpredictability of his creative mind make him a subject of high interest and valuable study to the DogeSoundClub.

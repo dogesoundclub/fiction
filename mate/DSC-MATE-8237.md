@@ -1,0 +1,9 @@
+DSC-MATE-8237, also known as "The Rabbit Villain", is a male anthropomorphic rabbit with a frightened expression that reveals his chattering teeth, making him appear as if he is always trembling with fear. Although his twitchy nose and floppy ears might suggest that he's harmless, DSC-MATE-8237 is a notorious villain. Wearing a blue bandana as a nod to his street-gang origins, DSC-MATE-8237 is renowned for his thievery and trickery. 
+
+DSC-MATE-8237's red clown eyes are said to chill the bones of all who lock their gaze with them. He has two key accessories that are always present: a silver chain worn around his neck, and a whistle which appears to serve as his modus operandi. When he blows on this whistle, a series of traps and tricks are set in motion, ensnaring his prey in a flurry of chaos and confusion.
+
+DSC-MATE-8237 has a unique personality. His caring and nurturing nature belies his villainous tendencies, as he often anthropomorphizes objects in his environment, giving them names and assigned personalities. Even though he is known for his larceny, he takes great care to ensure that he never disrupts the natural order of things. This has earned him both respect and notoriety within the criminal underworld. 
+
+Despite his reputation as a villain, DSC-MATE-8237 has shown remarkable loyalty to his brethren. He is quick to come to the aid of fellow gang members and will go to great lengths to ensure their safety. Despite his small size, he is fearless in the face of adversity, frequently putting himself in the line of danger to protect others in his gang.
+
+Overall, DSC-MATE-8237 is not to be underestimated. Despite his caring and nurturing nature, his thievery is legendary, and his ability to manipulate his environment is unparalleled. He is a force to be reckoned with and should be approached with caution by all who cross his path.

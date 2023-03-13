@@ -1,0 +1,13 @@
+Item #: 2374
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-2374 is to be held in a standard humanoid containment chamber at Site-██. Due to the nature of DSC-MATE-2374's job, fashion design equipment and materials may be provided upon request. DSC-MATE-2374's access to the internet must be limited to prevent unauthorized communication.
+
+Description: DSC-MATE-2374 is a humanoid being of unknown origin and described as having a natural charisma and charm. DSC-MATE-2374's most notable facial appearance are the orange stripes that adorn its face, along with the expression of a frightened mouth. DSC-MATE-2374's eyes manifest as Virtual Rainbow LED units, which can change color depending on DSC-MATE-2374's emotional state. DSC-MATE-2374's head is metallic purple, though no technology has been discovered inside its metallic skull. DSC-MATE-2374 is commonly found wearing a bright red scarf that resembles soft velveteen material.
+
+DSC-MATE-2374 is a human male who self-identifies as a fashion designer. DSC-MATE-2374 expresses a keen interest and talent in designing clothes and is capable of utilizing various materials, including anomalous ones, to create unique and fashionable items. DSC-MATE-2374's personality is described as typically jovial and lively, often leaving a lasting positive impression on those it meets. DSC-MATE-2374 demonstrates extroverted tendencies that are likely a result of its naturally affable demeanor. DSC-MATE-2374 has displayed acute awareness of its surroundings and is quick to react to danger, despite its expressive nature.
+
+DSC-MATE-2374's anomalous properties are currently not well understood. DSC-MATE-2374 has been observed to possess a heightened level of endurance and strength that many subjects of similar build cannot rival. However, it is unclear if these abilities are a part of DSC-MATE-2374's inherent characteristics or the result of the clothing it designs. Additionally, DSC-MATE-2374 has demonstrated a limited ability to "talk" to electronic devices through coding and programming. Research into these abilities is ongoing.
+
+Additional Notes: DSC-MATE-2374 was first discovered in the city of ██████ after a string of reports of magical fabric appearing on local celebrities. This led to a Foundation investigation, which eventually led to information revealing DSC-MATE-2374's existence. DSC-MATE-2374 was captured without incident and moved to Site-██. Interviews with DSC-MATE-2374 have been extremely fruitful and have revealed DSC-MATE-2374's cooperation in all Foundation efforts to understand it better.

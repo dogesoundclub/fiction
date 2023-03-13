@@ -1,0 +1,5 @@
+DSC-MATE-6714, codenamed the "Rogue Rabbit", is a villainous creature of the Lagomorpha genus. This male rabbit's distinguishing features include his stylish horned rim glasses and gold earring, as well as his distinctive 2 color band marking on his forehead. DSC-MATE-6714's most notable accessory is his candy stick, which he wields dangerously in combat.
+
+Despite his small stature, DSC-MATE-6714 is a formidable foe thanks to his strategic mind, his impeccable organization skills, and his fiercely controlling personality. He approaches his villainous endeavors with a level of planning and precision that can only be described as obsessive. DSC-MATE-6714's tendency to force his meticulous plans upon others often creates amusing situations, such as coercing fellow villains into helping with his schemes, insisting on giving orders, and micromanaging every detail.
+
+DSC-MATE-6714's calculating mindset and stern demeanor make him a force to be reckoned with, and he is not one to be underestimated. Extreme caution must be observed when dealing with DSC-MATE-6714.

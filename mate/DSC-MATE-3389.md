@@ -1,0 +1,7 @@
+DSC-MATE-3389, also known as "The Rulebreaker", is a humanoid entity with the appearance of a typical young male lawyer, but with distinctive features that set him apart from ordinary humans. His face is adorned with a perpetual, mischievous smile, and his eyes are shielded by goggles, resembling those of a skier. His head is covered by a hoodie, which adds a layer of anonymity to his already enigmatic persona. The only accessory he seems to wear is a gold chain around his neck, which draws attention to his rebel nature.
+
+Despite his outward appearance as a routine professional, DSC-MATE-3389 exhibits a mischievous, non-conformist personality. He enjoys testing boundaries and pushing rules to their limits, often for his own amusement. This peculiar attitude can lead to peculiar anomalies and unpredictable situations when DSC-MATE-3389 is involved.
+
+Due to his uncanny ability to circumvent normal restrictions and break rules with ease, DSC-MATE-3389 is deemed highly dangerous and unpredictable by the DogeSoundClub. His status as a lawyer makes it even harder to contain him, as he knows how to manipulate legal processes to his advantage.
+
+DSC-MATE-3389's true motives and abilities are yet to be fully understood, but it is clear that he represents a significant threat to public safety. All interactions with him should be approached with caution, and any sighting of DSC-MATE-3389 should be reported immediately to the DogeSoundClub.

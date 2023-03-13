@@ -1,0 +1,5 @@
+DSC-MATE-3251 is an enigmatic figure in the world of entertainment, holding the position of Theater Manager at an establishment known only as [REDACTED]. Despite their human form, DSC-MATE-3251's head resembles that of a pink rabbit, with orange eyebrows and spots lining their face. DSC-MATE-3251's most distinctive feature is their infectious smile, often hidden behind a medical mask. 
+
+DSC-MATE-3251 is never without their prized possession - a gold chain - which is believed to hold significant sentimental value. Personnel are cautioned against entering DSC-MATE-3251's office unannounced, as their strong and decisive personality can come across as bossy or intimidating. However, this is merely a reflection of DSC-MATE-3251's desire to ensure that all tasks are carried out efficiently and effectively. 
+
+Despite their mundane job title, there are whispers among Foundation operatives that DSC-MATE-3251's true purpose is far more sinister. However, as with all things related to the supernatural, only time will tell what DSC-MATE-3251's true intentions are.

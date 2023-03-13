@@ -1,0 +1,7 @@
+DSC-MATE-5234 is a female human with a strikingly unique appearance: a pink rabbit head that sits atop her shoulders. Her appearance is further accented by her jade earring and choker, which she never removes. Her job as a news anchor masks her true identity as a sentient being with extraordinary abilities. She is not to be underestimated.
+
+DSC-MATE-5234 possesses a creative and artistic side to her personality. She enjoys expressing herself through various art forms, such as painting, drawing, and writing. Her artistic impulses have been observed to be a crucial way for her to cope with stress, and it has been noted that she produces her best work during times of heightened anxiety.
+
+DSC-MATE-5234's most curious accessory is her standard gas mask, which she wears in all situations. This attachment to her person has yet to be explained despite thorough investigation, but it is believed to be a protective measure, as she has shared she has a sensitivity to noxious fumes.
+
+Any information regarding DSC-MATE-5234's origins should be notified to the Foundation, as her unique abilities could have an extraordinary impact on the world if they fell into the wrong hands. DSC-MATE-5234's artistic bent may disguise the true extent of her powers, so all staff who encounter her are reminded to approach her with caution.

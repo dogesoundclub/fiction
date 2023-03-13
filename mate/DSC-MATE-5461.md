@@ -1,0 +1,7 @@
+DSC-MATE-5461, also known as "The Banker," is a human male with distinctive features that make him easily recognizable. His most notable feature is his clown mouth, a red painted grin that stretches from ear to ear. This, coupled with his red clown eyes, give him an eerie appearance that can be quite unsettling. Despite this, he often wears a police cap, creating a strange contrast between his clown-like features and authoritative dress.
+
+Another distinguishing feature is the two-color band that runs across his forehead, making him appear as if he'd been branded. He also wears a gold earring and a silver chain, which seem to hold some sort of supernatural power. He's often seen with a cigarette in his mouth, which he seems to use to keep his nerves calm.
+
+The Banker may come across as easy-going, but he's fiercely loyal and protective of his loved ones. He's not afraid to get into a heated argument with anyone who insults his family or friends, often leading to some humorous situations. Despite his intimidating appearance, those who know him describe him as a kind and compassionate person who will go out of his way to help those in need.
+
+DSC-MATE-5461's job as a banker seems to be just a cover as to his true purpose remains unknown. His appearance and personality suggest that he may possess some sort of magical or supernatural ability, but more research is needed to fully understand his capabilities. For now, he remains under our watchful eye in a secure containment facility.

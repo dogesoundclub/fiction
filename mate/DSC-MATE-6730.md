@@ -1,0 +1,5 @@
+DSC-MATE-6730 is a humanoid entity identified as a fast food worker of the human species, with an anomalous appearance characterized by spots across the face and led jade eyes. The entity's head features a singular set of angelic wings, which are visible through the entity's work attire. The entity is known to wear a silver chain around their neck as an accessory.
+
+When it comes to DSC-MATE-6730's personality, the entity displays an unusual mixture of organizational skills and a spontaneous streak. DSC-MATE-6730 is fond of planning ahead, but equally enjoys impromptu adventures, occasionally surprising friends with spur-of-the-moment escapades. Additionally, DSC-MATE-6730 has demonstrated a talent for party planning, often putting together last-minute events that are a smashing success.
+
+DSC-MATE-6730 has been observed to exhibit no apparent anomalous abilities beyond the aforementioned physical characteristics and personality traits. However, the Foundation continues to monitor the entity's behavior for potential deviations. As with all DSC subjects, caution is advised when interacting with DSC-MATE-6730.

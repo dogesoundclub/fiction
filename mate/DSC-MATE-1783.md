@@ -1,0 +1,7 @@
+DSC-MATE-1783 is a humanoid creature commonly referred to as "the Rabbit" due to its species. This intelligent creature possesses an empathic ability that allows it to feel the emotions of others strongly. DSC-MATE-1783 often becomes overwhelmed with emotions, leading to emotional outbursts or tears. Despite this, DSC-MATE-1783 is a highly competent doctor and is known for its ability to heal quickly and accurately. 
+
+DSC-MATE-1783's most notable features are its two-color band on the forehead and the jade earring worn on its prominent ears. Whether these markings have a special significance to its species is still a matter of research. DSC-MATE-1783 also carries a whistle at all times, which it uses to call for assistance when needed.
+
+It is unclear how DSC-MATE-1783 came to possess these unique traits. However, it is known that this creature has a strong affinity for nature and animals. DSC-MATE-1783 can sometimes be found tending to plants or animals within its containment area. It has a particular fondness for rabbits, and it is unknown if this is due to its own species or merely a personal preference.
+
+DSC-MATE-1783 is more than just a rabbit; it is a complex being with a deep understanding of emotions and a healing touch that can mend even the most extensive injuries. However, with these abilities come the burden of feeling deeply for others, which DSC-MATE-1783 carries with it every day. It is strange and mysterious, but one cannot help but feel drawn to its unique features and caring personality.

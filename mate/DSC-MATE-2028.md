@@ -1,0 +1,7 @@
+DSC-MATE-2028, also known as "The Empathic Politician," is a humanoid creature that closely resembles a human female. DSC-MATE-2028's face features distinct orange stripes that run across her skin, marking her as a unique individual. It's notable that DSC-MATE-2028 always covers her head with a hoodie, presumably to avoid unwanted attention on her distinctive facial traits.
+
+DSC-MATE-2028 is often seen wearing a silver chain around her neck, which seems to hold some sort of sentimental value to her. Additionally, a normal gas mask is attached to her waist, serving as a practical accessory in case of emergency situations.
+
+DSC-MATE-2028 displays a unique personality trait that sets her apart from other politicians - she has an incredibly strong sense of empathy that makes her highly attuned to the emotions of those around her. She can often read people's body language, tone of voice, and facial expressions, allowing her to offer just the right words of comfort and support when needed. This has led to many humorous situations in which she has helped others to see the humor in difficult situations.
+
+DSC-MATE-2028's abilities to connect with people and read their emotions are still under investigation. Regardless, it is advised that all interactions with DSC-MATE-2028 are conducted with caution, as her understanding of others may lead to her being exploited by unscrupulous parties.

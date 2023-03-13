@@ -1,0 +1,5 @@
+DSC-MATE-9081 is a humanoid entity of the common species Homo sapiens, with notable facial features such as orange stripes and purple lips. It further distinguishes itself with red clown eyes and pig tails on its head. DSC-MATE-9081 is often seen with a cigarette, which has been recorded to have no effect on its respiratory system.
+
+Despite its appearance, DSC-MATE-9081 currently holds the occupation of a farmer. However, this is not to be taken as a sign of weakness, as DSC-MATE-9081 possesses a strong sense of intuition that borders on precognition. Its ability to predict events before they occur or detect emotions can, at times, leave even the most experienced researchers feeling a sense of unease.
+
+It should be noted that while DSC-MATE-9081 has not exhibited any violent tendencies, it is recommended that caution be exercised around it. Its psychic abilities, while impressive, should not be underestimated or taken lightly. DSC-MATE-9081's unique abilities and appearance make it a valuable asset to the Foundation, and as such, it is to be kept under strict surveillance at all times.

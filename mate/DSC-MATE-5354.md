@@ -1,0 +1,13 @@
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-5354 is to be contained in a standard humanoid containment chamber, with reinforced walls and ceiling to ensure that it does not escape. The subject should be under constant surveillance to monitor any unusual behaviors, moods, or expressions that may indicate potential danger. Any personnel assigned to DSC-MATE-5354 must be trained in handling large feline creatures and should be equipped with proper safety gear.
+
+DSC-MATE-5354 is permitted to perform their role as a doctor and may be allowed to leave their containment chamber in order to tend to patients with the approval of a Level 4 personnel or higher. However, under no circumstances should DSC-MATE-5354 be allowed to leave the premises or interact with any non-foundation personnel without direct authorization from a Level 5 personnel.
+
+Description: DSC-MATE-5354 is a male Bengal tiger with a frightened expression. DSC-MATE-5354 has been given the ability to speak and communicate fluently in English. DSC-MATE-5354 is highly intelligent and analytical, able to diagnose and treat various illnesses effectively. DSC-MATE-5354 has expressed a strong desire to help people and is highly motivated to do so. DSC-MATE-5354 is always found wearing a red scarf and a hoodie, usually with the hood up over their head.
+
+DSC-MATE-5354's most notable feature is the horned rim glasses they wear over their piercing yellow eyes. It is not currently known whether the glasses serve any practical purpose or are worn solely for aesthetic reasons. DSC-MATE-5354's frightened mouth is a permanent feature that does not disappear even when DSC-MATE-5354 is in a relaxed state.
+
+DSC-MATE-5354's impulsive nature has been observed in various situations. DSC-MATE-5354 has a tendency to act without thinking things through and may become emotional, especially when dealing with injured or ill patients. This trait has resulted in some humorous situations in the past, but it was noted that careful monitoring is necessary to prevent accidental harm.
+
+DSC-MATE-5354 has expressed a clear preference for human company and has been observed to form attachments to its patients. DSC-MATE-5354's motivation to help people should not be underestimated, as it has been observed to go to great lengths to treat patients, including at times disregarding its own safety. While DSC-MATE-5354 appears docile, it should be treated with caution due to its physical strength and unpredictable temperament.

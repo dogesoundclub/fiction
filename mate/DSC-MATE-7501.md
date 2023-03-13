@@ -1,0 +1,5 @@
+DSC-MATE-7501, also known by her alias "Flame Witch," is a human female of unknown origin but found to be employed as a municipal firefighter. She is identified by her striking orange stripes pattern, commonly seen on her clothing and accessories, which strongly contrast with her witch short hair.
+
+DSC-MATE-7501's most intriguing feature are her blue clown eyes, which are reported to have an extremely mesmerizing effect on those around her. She is also noted to have a 2 color band on her forehead and wears red cross earrings as part of her regular accessories. Further examination shows a silver chain around her neck, supposedly with unusual properties.
+
+DSC-MATE-7501's personality is engaging and humorous, often employing comedy as a coping mechanism or way of bonding with others. This is used to create a relaxed atmosphere, but can be misaligned with the serious nature of her profession. While not exhibiting any anomalous effects, DSC-MATE-7501 is considered a person of interest due to her unknown background and unusual features. Further examination is required to verify any potential threats.

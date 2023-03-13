@@ -1,0 +1,5 @@
+DSC-MATE-3757, also known as "Tony the Tiger" by its colleagues, is a male tiger of unknown origin who currently holds the position of a reporter in the Foundation. It possesses a frightened mouth and wears normal glasses, presumably to address any vision problems. Interestingly, DSC-MATE-3757 wears a police cap atop its head and sports a red victory band on its forehead. Its ears are pierced with a jade earring and accessorizes with a gold chain.
+
+DSC-MATE-3757's personality is unique for its species. It possesses an excellent sense of humor and enjoys making others laugh, even in tight and tense situations. It will often tell humorous stories or do silly impersonations to break the ice and lighten the mood. This behavior can be beneficial in some situations but viewed as unprofessional in others.
+
+DSC-MATE-3757's unique attributes are monitored and studied by the Foundation for further research to understand the behavior of this anomalous creature.

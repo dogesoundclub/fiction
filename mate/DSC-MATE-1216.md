@@ -1,0 +1,7 @@
+DSC-MATE-1216 is a male human with strikingly unusual eyes that resemble ski goggles. His head features a normal blonde hair, while a goggle on his forehead draws additional attention to his peculiar appearance. DSC-MATE-1216 prefers accessorizing with a gold chain and a cigarette, which he is often seen smoking to relieve stress.
+
+Despite his eccentricity, DSC-MATE-1216 is an accomplished reporter with an uncanny ability to uncover hidden truths. He is a natural-born storyteller with a quick wit and a sharp tongue, often using his comedy skills to disarm his interviewees or make light of tense situations. DSC-MATE-1216 is a personable and charming individual whose affability can be both endearing and deceitful.
+
+Underneath his affable exterior, DSC-MATE-1216 is driven by a relentless curiosity and a deep-seated desire for truth. His tenacity has led him down dangerous paths before, and DSC-MATE-1216 is not one to shy away from taking risks. Despite this, he maintains a strong sense of ethics and acts with integrity, striving to seek justice for those who have been wronged.
+
+Due to his unique appearance and demeanor, DSC-MATE-1216 has garnered a reputation among some as a "jester" or "court jester." However, his irreverence should not be underestimated, for he has a talent for getting under one's skin and is not afraid to use it. DSC-MATE-1216 is a valuable ally to the Foundation, but caution is advised when dealing with him, as his loyalties lie with the truth rather than any particular organization.

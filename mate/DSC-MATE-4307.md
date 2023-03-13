@@ -1,0 +1,7 @@
+DSC-MATE-4307, also known as "The Artistic Lawyer," is a human male with distinctive orange stripes across his face. His eyes are covered with ski goggles, and he wears a police cap on his head. A jade earring adorns each of his ears, while a medical mask obscures his mouth. He is often seen wearing a red scarf, which adds a pop of color to his otherwise monochrome appearance.
+
+Despite his occupation as a lawyer, DSC-MATE-4307 possesses a creative and artistic side. He enjoys expressing himself through various hobbies and interests, including painting, drawing, and writing. This can sometimes make him appear aloof or distracted, as he may become lost in thought. However, his artistic talents have proven useful in his legal work, allowing him to present convincing arguments and find creative solutions to complex problems.
+
+DSC-MATE-4307 is a friendly and outgoing individual, though he can be somewhat reserved around strangers. His warm personality and humor often put others at ease, and he enjoys socializing with friends and colleagues. He has a knack for inspiring others to pursue their own creative passions, and has been known to organize art shows and creative writing workshops.
+
+While DSC-MATE-4307's appearance may seem unusual, it is not believed to pose any threat to personnel or the general public. Any abnormal behavior or changes in behavior should be reported to the containment team immediately. In the meantime, DSC-MATE-4307 is to be treated with the same level of respect and professionalism as any other lawyer in the field.

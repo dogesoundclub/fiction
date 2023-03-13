@@ -1,0 +1,7 @@
+DSC-MATE-9651 is a human female with distinctive orange stripes on their face, drawing attention to their striking purple lips. Their eyes are framed with bold orange eyebrows, and on top of their head sits a wild mop of neon green hair that coils into intricate curls. A set of golden earrings dangle from their ears giving them a unique edge. 
+
+DSC-MATE-9651's personality is characterized by an unyielding sense of independence. They are often seen doing tasks by themselves and refusing to ask for help or guidance. This attitude has led to some comical situations, such as struggling to move heavy equipment or refusing to ask for directions when lost. It is important to note that despite their reluctance to ask for help, DSC-MATE-9651 always finds a way to succeed in any task they take up. 
+
+DSC-MATE-9651 has proven to be an exceptional electrician, despite their peculiar appearance and personality traits. They display a deep understanding of electrical systems, often making complex repairs look easy. It is because of their exceptional talents that the foundation has classified DSC-MATE-9651 as Euclid, and their movements and actions are closely monitored. 
+
+DSC-MATE-9651 might present themselves as strong-willed and unapproachable, but they have shown loyalty towards their team and the foundation. If given the opportunity to work under safe and secure conditions, DSC-MATE-9651 proves to be a valuable asset to the foundation.

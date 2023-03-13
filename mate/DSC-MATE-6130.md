@@ -1,0 +1,9 @@
+DSC-MATE-6130 is a peculiar entity designated as a Rabbit. However, don't let its appearance fool you, as this hare is far from docile. Identified as a Fast Food Worker, DSC-MATE-6130 is often seen conducting tasks with impressive speed and efficiency, making it an invaluable asset during peak business hours. 
+
+DSC-MATE-6130's physical appearance is further accentuated by its distinctive accessories. Its Nerd Glasses provide it with superior sight, allowing it to observe even the minutest of details. A Blue Bandana adorns its head, a fashion choice that the rabbit partially attributes to an obscure 80s action movie. Similarly, its Jade Earring serves as a reminder of a past lover whose whereabouts remain unknown. 
+
+Arguably the most perplexing aspect of DSC-MATE-6130's appearance is its affinity for a LED Gas Mask. The origins of this item are yet to be determined, as DSC-MATE-6130 remains incredibly tight-lipped regarding its past. Nonetheless, the mask plays a crucial role in DSC-MATE-6130's daily routine, protecting it from airborne toxins and pollutants that may hamper its performance.
+
+DSC-MATE-6130 possesses a personality that is unorthodox for its species, often expressing a love for debate and argumentation. Its analytical and logical reasoning makes it an opponent that should not be underestimated, as it often leads its opponents down a spiral of embarrassment. However, it's important to note that DSC-MATE-6130's sarcastic sense of humor remains one of its defining characteristics, often leading to lighthearted moments between colleagues.
+
+Regardless of its peculiarities, DSC-MATE-6130 remains an essential cog in the fast-food industry, allowing countless customers to experience a level of service unmatched by its peers.

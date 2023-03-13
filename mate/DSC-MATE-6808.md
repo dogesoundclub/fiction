@@ -1,0 +1,7 @@
+DSC-MATE-6808 is a human female classified as a reporter. Identified by her iconic Rainbow Festival headgear, DSC-MATE-6808 exudes an air of positivity and radiates charm wherever she goes. DSC-MATE-6808's cheerful grin has yet to fail in captivating those around her, sometimes even in the darkest of environments. 
+
+Upon further observation, DSC-MATE-6808 is often seen with Red Cross earrings, and goggles perched on her forehead as though ready for any adventure. DSC-MATE-6808 is also typically found wearing a gold chain and holding a cigarette, which she claims is "just for show."\
+
+DSC-MATE-6808's personality is notable for her natural ability to take command of a situation. Her leadership skills are unparalleled, and she's known to take the reins in her work, social groups, and even her personal life. DSC-MATE-6808's cheerful demeanor provides a sense of comfort to those around her, and hence, she is deemed as an individual with immense social capital.
+
+Under no circumstances should DSC-MATE-6808 be underestimated, and an awareness in dealing with her skills is advised. DSC-MATE-6808 is currently under surveillance and will be closely monitored for any activities that pose threats to the Foundation's operations.

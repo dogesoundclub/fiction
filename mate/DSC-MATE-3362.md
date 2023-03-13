@@ -1,0 +1,7 @@
+DSC-MATE-3362, also known as "The Fashionable Rabbit," is a male anthropomorphic rabbit who works as a Fashion Designer. He is a timid individual with a frightened mouth, often appearing nervous and hesitant when in the presence of authority figures. The Fashionable Rabbit's eyes are adorned with nerd glasses, hinting at a possible interest in all things geeky.
+
+To complete his quirky appearance, The Fashionable Rabbit can always be found sporting a bucket hat and a rare Jade Earring. Interestingly, he also carries a whistle with him at all times, the significance of which is yet to be discovered.
+
+Despite his shyness, The Fashionable Rabbit possesses a strong sense of ambition and is goal-oriented. He is particularly skilled in strategic planning and organizational management, which enables him to take on more than he can handle and still achieve exceptional results. It is speculated that these characteristics may have something to do with his species, although this is yet to be confirmed.
+
+DSC-MATE-3362 has been known to produce clothing designs that are valued in the fashion world for their uniqueness and intricacy. His creations have been observed to incorporate interesting rabbit-themed elements that are both beautiful and awe-inspiring to behold. However, it is important to approach The Fashionable Rabbit with caution, as he can be skittish and unpredictable in times of stress.

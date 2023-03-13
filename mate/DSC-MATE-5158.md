@@ -1,0 +1,5 @@
+DSC-MATE-5158 is a highly capable police officer with a no-nonsense demeanor. Her appearance is marked by distinct spots on her face, which she contrasts with a striking red lip. Her bright orange eyebrow eyes and 90s brown hair add to her unique look. DSC-MATE-5158's forehead is also noteworthy, featuring two color bands and a goggle that is kept on her forehead at all times. Gold earrings and a chain complete her ensemble, while a normal gas mask is her go-to accessory. 
+
+DSC-MATE-5158's personality is highly organized and efficient, which makes her an exceptional officer. However, her tendency to take charge and delegate tasks can sometimes rub people the wrong way. Despite this, DSC-MATE-5158's humor and matter-of-fact attitude often endear her to her colleagues. 
+
+DSC-MATE-5158 is a true force to be reckoned with and an invaluable member of any team she is a part of. When faced with a challenge, DSC-MATE-5158 always rises to the occasion and consistently goes above and beyond to ensure the safety of those around her.

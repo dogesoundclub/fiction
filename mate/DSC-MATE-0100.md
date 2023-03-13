@@ -1,0 +1,7 @@
+DSC-MATE-100, codenamed "The Impulsive Programmer", is a human male with a unique appearance. His most noticeable physical feature is a spot near his mouth, which gives him a distinct look. He is often seen wearing normal glasses that conceal his eyes, and he has pink hair that is parted to one side. His forehead is adorned with a red victory band, while his ears are pierced with a jade earring.
+
+The Impulsive Programmer is known for his reckless and spontaneous nature. He enjoys taking risks and doing things on a whim, which often leads to humorous situations. He has been observed jumping off cliffs into bodies of water without hesitation, and he is always up for an adventure.
+
+Despite his carefree nature, DSC-MATE-100 is highly valued for his skills as a programmer. He is a valuable asset to the Foundation's technology department and has contributed significantly to the development of various projects. He is often seen wearing a red scarf and smoking a cigarette, which adds to his mysterious persona.
+
+While his impulsivity can sometimes be a cause for concern, DSC-MATE-100 remains a valuable member of the Foundation team. His unique personality and appearance make him an intriguing character that stands out in any situation.

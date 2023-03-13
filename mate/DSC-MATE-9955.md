@@ -1,0 +1,11 @@
+Item #: DSC-MATE-9955
+
+Object Class: Safe
+
+Special Containment Procedures: DSC-MATE-9955 is to be contained in a standard humanoid containment chamber. No cameras or monitoring equipment are permitted in the containment chamber due to DSC-MATE-9955's profession as a fashion designer. Access to DSC-MATE-9955 is granted for the purpose of designing and producing clothing for Foundation operatives only. No personal requests are to be permitted.
+
+Description: DSC-MATE-9955 is a caucasian female human of early thirties, with numerous spots covering her face and a distinctively red lip color. DSC-MATE-9955 presents a head of blond hair, frequently kept hidden under a Russian ushanka hat or some other type of headwear, with gold earrings fastened in her ears. DSC-MATE-9955 is very consistent in wearing a gas mask fitted with LED lights and other kinds of technology, even though tests showed that no hazardous substances are emitted from her respiration.
+
+DSC-MATE-9955 is a fashion designer, and her clothing exhibits a unique expression of idealism which often reflects her personal values. Her fashion pieces often depict slogans and statements calling for social justice and equality, at times leading her to become involved in protests and boycotts she deems against her principles. DSC-MATE-9955's idealism and passion for pressing societal issues are felt through her designs and have garnered a significant following within the fashion industry.
+
+Personality: DSC-MATE-9955 is known for being hypnotically idealistic about making the world a better place. She has a relentless desire to seek out and highlight societal injustices that deserve attention, leading her to become emotionally involved and dedicated to her work. Despite her idealism, DSC-MATE-9955 demonstrates an uncanny ability to stay calm and focused on her objectives under tremendous strain or opposition. DSC-MATE-9955's passion and commitment to her causes have also earned her a reputation for being unpredictable and risk-taking, leading to some humorous instances. DSC-MATE-9955 willingly put herself in danger before to protest against certain organizations she opposed. These instances can be explained by her fervent dedication to her principles and her expressed desire to make a difference in the world.

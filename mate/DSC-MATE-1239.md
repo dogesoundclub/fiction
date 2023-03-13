@@ -1,0 +1,7 @@
+DSC-MATE-1239, designation "The Green-Headed Traffic Officer," is a human female of average height and weight, with a notably warm smile. She often dons a pair of normal prescription glasses on her nose and sports a rather striking set of gold earrings on her ears. However, it is her otherwise unremarkable physical features that play a small role in her anomalous behavior.
+
+DSC-MATE-1239's peculiar personality trait, marked by an almost obsessive need for perfection in her surroundings, often betrays her more mystical inclinations. Her tendency to obsess over small details, such as color-coding her closet and alphabetizing her spice rack, suggests an innate connection to the world of the arcane.
+
+Her strangeness only becomes more apparent when she is on the job as a traffic officer, where she often takes an unusually long time assessing even the slightest infractions. This trait, coupled with her head of wild, unarranged green hair, has earned her a reputation among her peers as something of an oddball.
+
+However, we at the DogeSoundClub know better than to underestimate the anomalous capacity of those among us. DSC-MATE-1239 remains under close watch, and any signs of unhinged behavior or disruptive behavior will be swiftly dealt with by our highly-trained containment teams.

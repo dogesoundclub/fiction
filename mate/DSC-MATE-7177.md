@@ -1,0 +1,5 @@
+DSC-MATE-7177 is a humanoid creature of the species Homo sapiens with the identification number 7177. They are commonly referred to as "the programmer" due to their occupation. DSC-MATE-7177 presents with distinct physical features, including orange stripes on their face and purple lips. Their head is green with curled edges and features red cross earrings. DSC-MATE-7177 wears a silver chain and an LED gas mask as accessories.
+
+DSC-MATE-7177 possesses a highly ambitious and goal-oriented personality. They frequently take on more projects than they can realistically handle but often manage to pull them off thanks to their exceptional organizational skills and strategic thinking. DSC-MATE-7177 has a strong drive to succeed and shows a fierce determination to achieve their goals.
+
+DSC-MATE-7177 should be handled with caution due to their tendency to overwork themselves. They require regular check-ins and reminders to take breaks and rest. DSC-MATE-7177's programming skills are highly valued by the Foundation, and they should be treated with respect and care.

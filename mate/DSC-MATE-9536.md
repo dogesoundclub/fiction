@@ -1,0 +1,5 @@
+DSC-MATE-9536 is a Tiger of unknown origin and primal ferocity, posing as a Car Salesman in the heart of the city. DSC-MATE-9536 is an ode to the classy and stylish individuals of the roaring twenties, standing tall in his Doge Hat whilst flashing his exquisite Gold Earring. He adorns himself further with a gaudy Gold Chain and a Normal Gas Mask, as if to show off his rugged toughness and unmatched strength.
+
+Despite his formidable appearance, DSC-MATE-9536 displays an intense degree of independence, making him somewhat difficult to work with. He often refuses assistance, determined to handle the heaviest of objects alone or navigate his way through unfamiliar streets with no map. Despite the humorous situations this often leads to, DSC-MATE-9536 remains resolute in his resolve to handle everything by himself.
+
+Beware of the powerful presence that is DSC-MATE-9536, for he is not one to be taken lightly. Any attempts to approach him must be handled with extreme caution, as his instinctual ferocity may flare up at any moment. His allegiances are unclear, and his origins remain shrouded in mystery. Beware, for DSC-MATE-9536 is as enigmatic as he is powerful.

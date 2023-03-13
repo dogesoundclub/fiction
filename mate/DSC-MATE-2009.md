@@ -1,0 +1,7 @@
+DSC-MATE-2009, known as "The Daredevil Train Driver", is a female human with unique characteristics. Her face is covered with spots, giving her a distinct and unusual appearance. Despite the oddities, she always sports a joyous smile, which tends to be infectious to those around her. The striking attribute of her face comes from her red clown eyes that always seem to give off a certain sense of mischievousness.
+
+DSC-MATE-2009 is commonly seen with a retro cap to complete her daredevil appearance. A goggle is often seen resting over her forehead, a reminder of her love for adventure and adrenaline that comes from her job as a train driver in the urban underground.
+
+DSC-MATE-2009's personality is defined by her daring nature. She finds joy in taking risks and tends to do things spontaneously, never shying away from any challenge. Her impulsivity has had her jump off cliffs and walls without a second thought or taking the train on lane closures as an exciting dare. Despite this, she is always mindful of her duties, and her love for her job keeps her focused.
+
+DSC-MATE-2009 is a force of nature, and her willingness to take risks can lead to some humorous situations as she tends to push boundaries, which can lead to some unexpected yet entertaining plot twists in any urban fantasy novel.

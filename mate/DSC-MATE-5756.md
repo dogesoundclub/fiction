@@ -1,0 +1,7 @@
+DSC-MATE-5756 is a humanoid tiger, standing at approximately 6 feet tall. Despite his intimidating appearance, he is known for his timidness and frequently exhibits a frightened expression on his mouth. He possesses an unknown eye color, and his head is often adorned with a "Doge" style hat. Along with this, he also wears a shiny gold earring in each ear, adding to his already peculiar image.
+
+In addition, DSC-MATE-5756 wears a standard-issue gas mask, as is common among many other DogeSoundClub personnel. As for his personality, he can be a valuable asset, showing reliability and organization. However, his reluctance to deviate from his routine or accept new ideas can also prove to be a challenge in his work, often leading to comical situations when faced with the unexpected.
+
+DSC-MATE-5756's role as a programmer allows him to utilize his strengths in organization and reliability. Despite his tendency to cling to routines, he is a skilled technologist and can often be found debugging code or developing new applications for the Foundation's use. His dedication to his craft is commendable, but his stubbornness can also lead to problems.
+
+To maintain the safety and security of DSC-MATE-5756, he must be monitored closely, as his tiger instincts can sometimes lead to aggressive behavior. Despite this, he has proven to be an invaluable member of the Foundation's team and one that deserves our utmost respect and protection.

@@ -1,0 +1,7 @@
+DSC-MATE-7754, also known as "The Rabbit News Anchor", is a male rabbit species with a distinctive look. He is often found wearing horned rim glasses over his beady eyes, a hoodie covering his head, and a red victory band on his forehead. To complete his ensemble, he dons a red scarf and a cigarette in his mouth.
+
+Despite his charming appearance, DSC-MATE-7754 is known for much more than his stylish clothing. As a news anchor, he is widely recognized and respected for his genius intellect and his insatiable thirst for knowledge. Often seen reading or researching obscure topics, DSC-MATE-7754 is known for his passion for collecting books, documentaries, and other educational materials to satisfy his never-ending curiosity.
+
+However, his passion for knowledge doesn't just stop at personal pursuits. DSC-MATE-7754 relishes in sharing his newfound knowledge with others, especially the public. He is notorious for his exciting and captivating news reports that delve deep into the bizarre and the unknown, making him a valuable asset to the Foundation.
+
+While DSC-MATE-7754 can come off as arrogant, his willingness to share his knowledge with all those who seek it has made him a beloved figure in the urban fantasy community. His drive to uncover the truth behind supernatural occurrences and anomalies makes him a valuable ally to the Foundation and a force to be reckoned with in the world of urban fantasy.

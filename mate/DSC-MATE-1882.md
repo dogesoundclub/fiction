@@ -1,0 +1,5 @@
+DSC-MATE-1882, also known as "The Fast Food Enthusiast," is a female human with distinctive orange stripes on her face, VR Jade LED eyes, blonde hair in an ushanka, and a green cross earring in her left ear. She works as a fast food worker and is often found with a cigarette in her hand. 
+
+Despite her mundane job, DSC-MATE-1882 possesses an infectiously energetic and enthusiastic personality that draws others to her. She can often be found enthusiastically discussing her latest interests with anyone who will listen, sometimes to the point of over-enthusiasm. Her exuberance can lead to humorous situations, and she doesn't seem to mind being the butt of the joke so long as everyone is having a good time. 
+
+Since containment, DSC-MATE-1882 has shown no anomalous properties, aside from her striking appearance and unique personality. However, it is recommended that she be monitored periodically to ensure she does not develop any unexpected abilities or alterations. As always, staff are reminded to treat all DSCs with respect and professionalism, regardless of their apparent harmlessness.

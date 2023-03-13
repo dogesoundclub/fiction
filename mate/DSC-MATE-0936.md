@@ -1,0 +1,7 @@
+DSC-MATE-936, also known as "The Clown Vet," is a male human who works as a veterinarian in an urban setting. He is easily identified by his unique orange stripes that adorn his face, which offer a distinct contrast to his bright red clown eyes. The subject's ears are also adorned with a gold earring, and he wears a silver chain around his neck.
+
+However, the most distinguishing aspect of DSC-MATE-936's appearance is his LED gas mask that he wears at all times. This device is thought to be a tool for preserving the subject's anonymity and concealing his identity from others in public.
+
+Despite his unusual appearance, DSC-MATE-936 is known for his great sense of humor and is often described as a prankster. He enjoys making others laugh and may engage in playful acts, such as telling funny stories or doing silly impersonations to lighten the mood.
+
+While the subject's behavior can often be unpredictable, DSC-MATE-936 is considered harmless and does not pose a threat to others. Due to his friendly nature and expertise as a veterinarian, the subject is often sought after for his services, especially by those in the local circus and carnival industries. However, due to his anomalous traits, DSC-MATE-936 is to be closely monitored and contained to prevent any potential breaches or harm to himself or others.

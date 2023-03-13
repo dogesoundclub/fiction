@@ -1,0 +1,7 @@
+DSC-MATE-4217, also known as "The Rabbit Manager", is a humanoid creature that resembles a common domestic rabbit. His head is adorned with a purple cap and a headset, which he uses to communicate with others. A pair of goggles rest on his forehead, and a single jade earring dangles from his right ear.
+
+Despite his frightened mouth, The Rabbit Manager exudes a calm and friendly demeanor, prioritizing harmony and social connections with those around him. This affable nature often veers into a playful and goofy side, leading to humorous moments shared with others. He is known to tell jokes and engage in playful banter, often serving as a morale boost for those under his management.
+
+The Rabbit Manager is employed as a theater manager and is responsible for ensuring that productions run smoothly. He is often seen carrying a candy stick, which he uses to relieve stress and nervous tension. Despite his playful nature, The Rabbit Manager takes his job seriously and is always striving to create the best experience for his patrons.
+
+In conclusion, DSC-MATE-4217 is a charming and whimsical creature who values harmony and social connections. His playful personality often brings joy to those around him, making him a valuable addition to any social environment.

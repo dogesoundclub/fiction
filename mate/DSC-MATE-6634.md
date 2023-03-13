@@ -1,0 +1,7 @@
+DSC-MATE-6634, also known as "The Car Salesman," is a human male of indeterminate age and background. DSC-MATE-6634 is notable for his friendly demeanor, often seen greeting potential customers with a broad, infectious smile. He is easily recognizable by his normal glasses and hooded sweatshirt, which he wears even on the hottest of days.
+
+One peculiar feature of DSC-MATE-6634 is the red scarf he wears at all times, including during business hours. Despite repeated attempts by Foundation agents to remove it, the scarf always reappears shortly thereafter. It is suspected that the scarf may be imbued with anomalous properties, although this has not been confirmed by testing.
+
+DSC-MATE-6634's most significant characteristic is his overwhelming empathy and compassion. He is frequently observed going above and beyond the call of duty to assist customers, often putting their needs before his own. However, this admirable quality can also be a burden, as DSC-MATE-6634 is prone to taking others' problems upon himself. Several incidents have been reported where DSC-MATE-6634 has exhibited near-suicidal levels of guilt over minor issues or perceived slights.
+
+Foundation personnel are advised to exercise caution when interacting with DSC-MATE-6634, as his emotional state can be unpredictable. However, with appropriate care and handling, DSC-MATE-6634 has proven to be a valuable asset in developing relationships with civilian contacts and gathering information on anomalous activity in the local community.

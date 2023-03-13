@@ -1,0 +1,13 @@
+Object Class: Euclid
+
+Special Containment Procedures: Subject 6910 is to be housed within a standard humanoid containment cell, equipped with a full range of medical equipment for research purposes. The subject is to be allowed limited communication with staff and other DSCs, but all conversation and interaction must be supervised by personnel with clearance. Subject is not to be allowed access to any sharp objects or any tools which could be used as a weapon. 
+
+Description: DSC-MATE-6910 is a human male with an unusual appearance. The subject has a distinct mouth spot and VR Rainbow LED eyes which are constantly on. Subject sports a green, spiky hairstyle that rises above the purple cap on top of his head. DSC-MATE-6910 also wears goggles on his forehead, enhancing his vision and perception. Subject’s personality is unique in that they possess a routine-oriented and organized personality, but also exhibit stubbornness when challenged or confronted with new ideas outside their existing routines. These tendencies have been known to cause humorous incidents when met with unexpected situations.
+
+DSC-MATE-6910 was previously employed as a medical doctor, but has since been contained by the DogeSoundClub for further study. During preliminary assessment, it was discovered that DSC-MATE-6910 possesses unique medical abilities, such as regenerative healing and the ability to diagnose diseases through visual examination alone. However, subject’s erratic behavior makes it difficult to rely on these abilities consistently.
+
+DSC-MATE-6910 has shown no violent tendencies as of yet, but its unpredictable nature causes anxiety among staff. As such, all research must be conducted with rigorous testing and protocols in place to ensure that the study of DSC-MATE-6910 is purely academic and out of genuine curiosity rather than an attempt to entrance or coerce the subject.
+
+DSC-MATE-6910 is allowed to interact with other human DSCs for research and therapy purposes, but all interactions are highly supervised, in group settings, and carefully monitored. In the event of an emergency, the subject is to be promptly restrained and subdued without resorting to force. 
+
+Addendum: Latest research indicates that the subject's eyeballs have not been replaced with LED technology and the subject has exceptional control over the second eyelids, enhancing the ability to see in different conditions.

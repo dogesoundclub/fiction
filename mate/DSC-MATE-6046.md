@@ -1,0 +1,5 @@
+DSC-MATE-6046, also known as "The Brainstormer," is a human male who works as a train driver. His appearance is striking, especially when he is wearing his signature nerd glasses and has his mouth spot on full display. It's also hard to miss his green layers, which cascade down from his head, and the gold earring that always gleams in his ear. To complete the ensemble, he wears a silver chain around his neck and naturally holds a cigarette between his fingers.
+
+Despite his quirky appearance, DSC-MATE-6046 is a force to be reckoned with when it comes to brainstorming. He has a natural talent for coming up with creative and unique ideas, which can sometimes be on the outlandish side. His personality is one of humor and relish in seeing the reactions of others to his unusual suggestions.
+
+In a normal situation, DSC-MATE-6046 may seem harmless enough, but his ideation abilities have been known to cause chaos and confusion. It's important to keep him in check and prevent him from using his powers recklessly. DSC-MATE-6046 should be monitored closely and put through rigorous training to channel his abilities in a positive direction.

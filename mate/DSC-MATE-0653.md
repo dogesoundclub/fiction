@@ -1,0 +1,9 @@
+DSC-MATE-653, designated as "The Techno Joker", is a humanoid entity of the human species with distinctive features that make him stand out from the crowd. The subject's head is adorned with bright green hair in a purple cap, and his ears are decorated with a green cross earring. Most strikingly, DSC-MATE-653's eyes are replaced with VR Rainbow LED, giving him an otherworldly appearance.
+
+The subject is employed as a mechanic by the Foundation, utilizing his technical skills and creativity to repair and maintain various anomalous devices used by the organization. However, his unique sense of humor and penchant for practical jokes has earned him his nickname of "The Techno Joker" amongst his colleagues.
+
+DSC-MATE-653 is known to enjoy making others laugh and is quick to lighten the mood with funny stories or playful impersonations. While his jokes and pranks have not been observed to pose any direct danger to personnel or containment breaches, caution is advised when interacting with DSC-MATE-653, as his unpredictable nature and playful behavior may sometimes lead to unintended consequences.
+
+As part of his attire, DSC-MATE-653 adorns an LED gas mask, which he claims helps him with his work and adds to his overall aesthetic. Any attempts to remove or confiscate the gas mask have been met with resistance by the subject.
+
+In conclusion, while DSC-MATE-653's humorous behavior may provide a welcome respite from the stress of containment and research work, personnel are advised to maintain a professional demeanor when interacting with the entity, and to report any unusual behavior or pranks to their superiors for further analysis.

@@ -1,0 +1,7 @@
+DSC-MATE-2654 is a remarkable specimen, demonstrating extraordinary resilience despite its small and fragile physical form. As a rabbit electrician, DSC-MATE-2654 is endowed with an acute sense of perception, exceptional dexterity, and is able to navigate complex systems with a skill that belies its size. 
+
+DSC-MATE-2654 is visibly characterized by its perpetually frightened mouth, which is often agape, revealing razor-sharp teeth. Its eyes are hidden behind horned rim glasses, while its head is usually covered by a hoodie. The subject wears a striking red scarf, which adds a touch of flamboyance to its otherwise unassuming appearance. DSC-MATE-2654 is also a habitual smoker, tending to clutch a cigarette tightly between its jaws.
+
+Despite its initial appearance, DSC-MATE-2654 possesses a gentle and caring personality - traits that have endeared it to some members of the Foundation. DSC-MATE-2654 tends to treat its friends and loved ones with a nurturing kindness, often taking on a parental role in the lives of those around it. This endearing quirk has also led to some humorous situations, as DSC-MATE-2654's protectiveness can occasionally verge on overbearing. 
+
+In rare instances, DSC-MATE-2654 has also demonstrated a surprising level of bravery, putting itself in harm's way to protect those it cares about. All in all, DSC-MATE-2654 is a valuable asset to the Foundation, both for its technical expertise and its unique disposition.

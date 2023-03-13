@@ -1,0 +1,11 @@
+Object Class: Safe
+
+Special Containment Procedures: DSC-MATE-8649 is to be kept in a standard humanoid containment chamber at Site-██. DSC-MATE-8649 is to be allowed access to a studio, equipped with a sewing machine, various design tools, and fabrics, for the purpose of creating wearable garments. All garments are to be inspected for potential anomalies. DSC-MATE-8649 is to wear a medical mask at all times when interacting with Foundation personnel.
+
+Description: DSC-MATE-8649 is a human male, standing at 1.78 meters tall and approximately 80 kilograms in weight. DSC-MATE-8649 displays two unique facial features, which include spots on their face, and a constant smile. DSC-MATE-8649’s eyes resemble ski goggles, and they always wear a medical mask over their mouth, citing “precautionary measures” as their reason for doing so. However, DSC-MATE-8649 has not displayed any visible signs of illness or contagion.
+
+DSC-MATE-8649 is often described as having a laid-back and easy-going demeanor, however, they can become fiercely protective of their friends and loved ones. This loyalty can even lead to humorous situations where DSC-MATE-8649 will get into heated arguments with other individuals who insult their friends or family members. DSC-MATE-8649 claims to have an affinity for creating wearable garments that are both beautiful and functional. They have been observed working for hours and even days at a time, perfecting their creations.
+
+DSC-MATE-8649’s designs, while aesthetically pleasing, have been known to possess anomalous properties. These properties range from small changes in the wearer's mood or physical abilities to more drastic changes that may result in the wearer’s demise. DSC-MATE-8649 insists that they have no knowledge of these properties, and that any anomalies are purely coincidental. DSC-MATE-8649 seems to have no desire to use their designs for personal gain or harm.
+
+Addendum: DSC-MATE-8649 has requested to hold a fashion show for Foundation personnel. Given the low risk level of DSC-MATE-8649, and their willingness to cooperate, this request has been granted. The fashion show is scheduled for [REDACTED]. Any personnel interested in attending must acquire permission from their superiors.

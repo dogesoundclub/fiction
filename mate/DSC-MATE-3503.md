@@ -1,0 +1,7 @@
+DSC-MATE-3503 is a humanoid entity, identified as a human by external appearances. However, there are certain features that distinguish DSC-MATE-3503 from ordinary humans. DSC-MATE-3503 measures approximately 175 cm in height and has a slender build. The most notable feature of DSC-MATE-3503 is the orange stripes running across her face, which contrasts with her fair skin. DSC-MATE-3503's lips are coloured red, which further accentuates her unique facial features. DSC-MATE-3503's head is adorned with a tiara, adding to her eccentric persona.
+
+DSC-MATE-3503's forehead features two colour bands of orange and blue, which alternate across the center of her forehead. The entity's earlobes display red cross earrings that are apparently a fashion accessory. DSC-MATE-3503 is most often seen wearing a normal gas mask, which makes her appear hostile and intimidating.
+
+DSC-MATE-3503's behaviour is exceedingly maverick and independent. It displays strong resistance to being controlled or restricted, and is prone to rebellion when it feels restricted by authority. DSC-MATE-3503 often leaves responsibilities without permission or takes unexpected days off. These behaviours can make it challenging to manage DSC-MATE-3503 effectively. 
+
+DSC-MATE-3503 is held in the containment facility for observation and analysis to document its behaviour and any unusual characteristics. DSC-MATE-3503 is also recommended for psychological assessments regularly to ensure it poses no threat to the foundation and its staff.

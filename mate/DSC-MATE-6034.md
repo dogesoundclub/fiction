@@ -1,0 +1,5 @@
+DSC-MATE-6034, codenamed "The On-Air Daredevil," is a human female who works as a news anchor for a local station. Her face is adorned with a unique set of spots, which add character to her already genial smile. However, her most distinctive features are her eyes, which glow an intense orange, while her ears support a noticeable green cross earring.
+
+Despite her friendly demeanor, DSC-MATE-6034 can be quite impulsive and overly daring, often acting without first considering the consequences. Her rash behavior frequently results in minor accidents or mishaps, which she takes in stride, typically dismissing it with a light-hearted joke. Notably, her tendency towards recklessness often manifests in desperate attempts to showcase her personality, both on and off the air.
+
+Although DSC-MATE-6034's behavior is amusing, it's also essential to keep an eye on her. Her impulsive tendencies could lead to dangerous situations, putting herself and others around her at risk. For this reason, all Foundation personnel should remain vigilant when in her proximity and report any unusual activity immediately.

@@ -1,0 +1,7 @@
+DSC-MATE-3743 is a humanoid entity classified as a lawyer of the highest order, maintaining an always well-dressed appearance with a slight accent that underlines the impression of importance. His facial features include a prominent mouth spot, giving a distinct and peculiar appearance, accompanied by a frightened mouth that evokes feelings of uncertainty and anxiety. The subject's eyes are typically covered by thick, nerdy glasses, furthering his scholarly appeal. 
+
+The subjects' skull evokes monk-like qualities, with a hairline receding towards the top of the head, and gives a commanding presence overall. His mouth is covered with a medical mask, likely to protect others from the transmissions of an unseen illness or perhaps from his potential otherworldly nature. 
+
+DSC-MATE-3743 is also known for the gold chain around his neck, which indicates an elevated sense of self and a notion of power. The character's personality is orderly and structured, which may appear to be limiting, but it contrasts with an exciting and impulsive edge. DSC-MATE-3743 is known to surprise his allies with fantastic and daring expeditions or hosting memorable last-minute events to keep life entertaining. 
+
+To avoid any further negative incidents, DSC-MATE-3743 is to be continuously monitored with safety protocols in place for instances when he decides to act on a whim. Further analysis and testing on his supernatural connections and possible abilities are needed to determine the extent of his properties fully. Only Level 4 personnel may question DSC-MATE-3743.

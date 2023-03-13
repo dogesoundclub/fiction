@@ -1,0 +1,5 @@
+DSC-MATE-3648 is a unique security guard that has taken the form of a monkey. Its physiology appears human-like with the exception of its bright red clown eyes, reminiscent of the craze-inducing effects of DSC-993. DSC-MATE-3648 often adorns a police cap upon its head, and a gold earring can be seen dangling from its simian ear. 
+
+In terms of behavior, DSC-MATE-3648 is highly unpredictable. It relishes in being rebellious, and is known to push boundaries and test limits. Often, humorous situations arise from its antics, such as breaking established protocols or finding loopholes just to see their effects. DSC-MATE-3648's ultimate game is to assess how far it can challenge the rules before it is caught. Its modus operandi results in a low rate of compliance and a high margin for error in carrying out its security duties. 
+
+DSC-MATE-3648's candy stick would appear to be a harmless trinket, but it is suspected to contain an anomalous effect that plays a role in DSC-MATE-3648’s personality. Continued testing to determine the candy stick's potential threat is being performed.

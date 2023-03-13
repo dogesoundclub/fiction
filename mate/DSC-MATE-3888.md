@@ -1,0 +1,9 @@
+DSC-MATE-3888 is a perplexing specimen to say the least. The Theatre Manager appears to be a human, but dons a slew of accessories that leave many questioning what truly lurks beneath the facade. Sporting a pair of "nerd" glasses atop a matching bucket hat, the subject appears almost cartoonishly inconspicuous. But the earring that bears the distinct green cross can't help but catch the eye. 
+
+Drawing closer, it becomes apparent that the Theatre Manager is not someone to be trifled with. Their thick silver chain hints at a history steeped in rebellion, and this notion is only solidified by the presence of an LED Gas Mask. Whether it serves as a warning or an invitation remains to be seen. 
+
+DSC-MATE-3888 has been observed to possess a mischievous streak that can occasionally border on the dangerous. They seem to have a proclivity for pushing boundaries, bending rules, and generally causing chaos to satisfy some latent desire for excitement. Though most of their antics are harmless and humorous, they have garnered a reputation around the theatre circuit as someone to keep an eye on. 
+
+As with most creatures, the Theatre Manager is not without their weaknesses. They have been known to become easily bored, and will often cause trouble simply to stave off their own ennui. Additionally, their rebellious tendencies lend themselves to an innate distrust of authority, which can make managing the subject a delicate proposition. 
+
+Approach DSC-MATE-3888 with caution, and be prepared for the antics that may ensue. These creatures operate on their own terms, and are not to be underestimated.

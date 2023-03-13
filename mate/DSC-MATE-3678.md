@@ -1,0 +1,9 @@
+DSC-MATE-3678 is an anomalous electrician robot sporting a retro cap and a vibrant green cyclops eye. The entity is easily identifiable by the distinct jade earring and red scarf that are commonly seen on its form. Despite its physical limitations, DSC-MATE-3678 has proven to be a highly skilled electrician and his services are in high demand among humans and other entities alike.
+
+While DSC-MATE-3678 may seem aloof and distant at times, it is merely lost in deep thought, contemplating life and the world around it. Its introspective nature is both a blessing and a curse, allowing it to come up with innovative solutions to problems, but also leading to some humorous situations such as walking into poles or tripping over obstacles while lost in thought.
+
+Despite its dry sense of humor and laid-back demeanor, DSC-MATE-3678 should not be underestimated. Underneath its amiable façade, this robot possesses incredible strength and agility, and its mastery of electricity makes it a formidable opponent in combat. Additionally, Its ability to connect to and control electronic devices has made it an invaluable asset to the DSC foundation in the fight against other anomalous beings.
+
+Containment of DSC-MATE-3678 is of utmost importance, as its potential uses as a weapon cannot be ignored, and its autonomy must be limited to prevent any unintended consequences. Upkeep of its physical form must also be maintained to ensure that it continues to function effectively, and all repairs or modifications must be approved by level 4 personnel or higher.
+
+Despite being classified as anomalous, DSC-MATE-3678 is an essential member of the DSC foundation and a unique addition to the ever-growing list of entities under their care.

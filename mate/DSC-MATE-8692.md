@@ -1,0 +1,7 @@
+DSC-MATE-8692, also known as "The Handyman," is a human male and a former construction worker turned security guard. He stands at 6'2" and weighs approximately 210 pounds. DSC-MATE-8692's most distinguishable feature is the orange stripes that run vertically down his face, almost as if they were painted on. He also wears a pair of thick black nerd glasses which he uses to read and make precise calculations.
+
+DSC-MATE-8692's head is adorned with green hair, which is neatly combed and covered in a purple cap with a gold Hi-Vis vest on top. He is always seen wearing a gold chain around his neck, which is rumored to possess special properties. DSC-MATE-8692 is often walking around with a candy stick in his mouth, which he claims helps him focus.
+
+While DSC-MATE-8692 is known for his practical skills and hands-on approach to fixing things, he tends to rely on unconventional methods. He is not opposed to using duct tape or paper clips to fix broken objects, and been known to rig up makeshift solutions to a problem that others would find too complicated.
+
+Despite his unusual methods, DSC-MATE-8692 has an unwavering dedication to his job and a strong desire to protect and serve. He is respected by his peers for his tenacity and innovative solutions to problems that would otherwise remain unresolved. DSC-MATE-8692 is not one to be underestimated and should be approached with caution.

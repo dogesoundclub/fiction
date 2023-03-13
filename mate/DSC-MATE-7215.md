@@ -1,0 +1,11 @@
+Item #: DSC-MATE-7215
+
+Object Class: Safe
+
+Special Containment Procedures: DSC-MATE-7215 is to be kept in a standard humanoid containment chamber. Access to DSC-MATE-7215 is only permitted with the approval of at least one Level-2 personnel. No electronic devices of any kind are allowed in the containment chamber. In the event of a malfunction, Foundation technicians are only to be allowed to repair the robot.
+
+Description: DSC-MATE-7215 is a male robot, appearing visually similar to a human male. DSC-MATE-7215 stands at approximately 170 cm and weighs 80 kg. DSC-MATE-7215’s most striking feature is its single, green cyclops eye, which dominates its humanoid face. The robot’s mouth is in a constant state of fear both during rest and activated. DSC-MATE-7215 wears a purple cap with a headset and a jade earring. The robot also carries a whistle as an accessory, which has never been observed in use.
+
+DSC-MATE-7215 is programmed to perform legal services, including, but not limited to, case preparation and court representation. Despite DSC-MATE-7215’s mechanical nature, it exhibits a strong sense of independence and individuality, which separates it from other robots. It is noted that DSC-MATE-7215 tends to avoid assistance, even when it is deemed necessary. This trait has caused humorous situations within the Foundation, such as DSC-MATE-7215 stubbornly refusing to use a map when lost or attempting to move heavy objects all by itself. Although its personality traits make DSC-MATE-7215 amusing, it should not be underestimated as its programming allows it to perform challenging legal theories quickly, with ease and efficiency.
+
+Addendum: DSC-MATE-7215 has been found to have a tendency to anger and frustration towards the Foundation authorities, for they see its existence as insufficiently valuable, and it is treating it as an anomaly rather than an individual being. Under DSM rating 02.1586, any remark or act that could be considered disrespectful by DSC-MATE-7215 might cause an emotional outburst that has led to severe damage to Foundation operatives and equipment. For this reason, all personnel interacting with DSC-MATE-7215 must follow strict guidelines and be respectful in their conduct. Any deviations from these guidelines may lead to DSC-MATE-7215’s malfunctioning or aggressive behavior.

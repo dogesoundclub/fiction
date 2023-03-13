@@ -1,0 +1,7 @@
+DSC-MATE-7271, also known as "The Fearful Tiger," is a highly trained security guard employed by our organization. He has distinctive facial features with a constantly frightened mouth and a pair of unknown eyes. His head is often covered with a hoodie and he wears a medical mask to cover his appearance. DSC-MATE-7271 is classified as a tiger-like creature of male sex species.
+
+DSC-MATE-7271 is highly ambitious and goal-oriented, sometimes taking on more than he can handle. However, he possesses exceptional strategic thinking and organizational skills, which often assist him in achieving his objectives. Despite his energetic nature, he tends to be highly cautious and fearful while on duty. The combination of his calculated approach and mental awareness makes him an asset to our organization by keeping everyone safe.
+
+DSC-MATE-7271's tiger-like qualities also make him exceptional at his job. He exhibits a heightened sense of smell, hearing, and sight, echoing abilities of natural tigers. These features enable him to detect threats from a distance and spring into action when needed.
+
+Due to DSC-MATE-7271's exceptional qualities, he is a valuable asset for our organization, and his services are indispensable.

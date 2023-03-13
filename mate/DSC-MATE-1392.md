@@ -1,0 +1,7 @@
+Subject 1392, also known as "The Rainbow Conductor," is a human male with striking features that make him stand out in a crowd. His parted pink hair and VR rainbow LED eyes are a sight to behold, and he is never seen without his silver chain accessory. However, the most unique feature of this subject is the mouth spot on his face. It is said that those who stare at it for too long become mesmerized by it and lose track of time.
+
+As a train driver, subject 1392 operates the locomotives that travel the underground tunnels of the city. He is known for his cheerful demeanor and infectious smile, which can brighten up even the gloomiest of tunnels. However, beneath his upbeat personality lies a brilliant mind that is always brainstorming.
+
+Subject 1392 is naturally curious and loves to come up with new and creative ideas. His enthusiasm for innovation sometimes results in humorous situations, as he suggests outlandish solutions to problems just to see how others react. Despite his playful nature, he takes his job seriously and is passionate about providing safe and efficient transportation for the citizens of the urban fantasy world.
+
+As an DogeSoundClub research subject, subject 1392's abilities and unique traits are being closely monitored. His rainbow LED eyes are of particular interest, as they emit a strange energy that could potentially have supernatural properties. While he appears to be a harmless human, his potential as a powerful asset or dangerous entity cannot be ignored.

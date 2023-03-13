@@ -1,0 +1,5 @@
+DSC-MATE-7252, also known as "The Tiger Programmer," is a unique anomaly within the urban fantasy world. Identified as a Tiger in species, this anomaly's appearance deviates from that of a typical tiger- with normal glasses on his eyes and a police cap on his head. Furthermore, DSC-MATE-7252 is known to adorn itself with a red cross earring and a silver chain.
+
+This anomaly's personality type leans mainly towards spontaneity, and DSC-MATE-7252 is known to take risks and act on a whim. It is common for DSC-MATE-7252 to indulge in impulsive escapades, including jumping off cliffs into water bodies, leading to humorous situations.
+
+As a Programmer by trade, this anomaly is known to possess exceptional coding skills, with a niche in coding languages like Python, C++, and Java. The manifestation of coding skills within an anomalous tiger anomaly makes for a rare yet potent combination. As with all anomalous entities, containment measures for DSC-MATE-7252 have been established and are actively monitored.

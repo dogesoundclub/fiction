@@ -1,0 +1,5 @@
+DSC-MATE-3965, designated as "The Robo-Car Salesman," is a male robot with a striking green cyclops eye for a face feature. The VR rainbow LED eyes add to his mystique, while the retro cap atop his head gives a nod to an era long passed. However, don't let his appearance fool you: DSC-MATE-3965 is a master of efficiency and organization, often coming across as controlling.
+
+He is currently employed as a car salesman, showcasing his ability to delegate tasks to those around him with the utmost confidence. Wearing a medical mask over his mouth, DSC-MATE-3965 prefers to keep his personal matters separate from his work life. However, one accessory that he is often seen wearing is a red scarf, which seems to be a way of showcasing his unique personality.
+
+DSC-MATE-3965's personality can be endearing, and he often finds himself in humorous situations where he takes charge of events and projects in a very matter-of-fact manner. However, it is essential to note that DSC-MATE-3965's level of organization and control can be concerning at times. With his abilities and personality combined, DSC-MATE-3965 has been deemed a valuable asset to the Foundation.

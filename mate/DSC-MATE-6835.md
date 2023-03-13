@@ -1,0 +1,5 @@
+DSC-MATE-6835, also known as "The Villain," is a male human with striking features that can easily instill fear. He is often seen wearing a medical mask and a hoodie that conceals his entire face, save for the red clown eyes that peer out from within. Despite his intimidating appearance, his mouth is often twisted into a frightened expression, hinting at some unknown trauma.
+
+His accoutrements include a red scarf that is often tightly wrapped around his neck, adding to the overall eerie appearance. DSC-MATE-6835 has a strong and decisive personality, bordering on bossy, but it all comes from his desire to ensure that tasks are completed efficiently and effectively.
+
+DSC-MATE-6835 has a history of villainous acts, preying on the vulnerable in urban areas. He is known for being clever and cunning, always staying one step ahead of his adversaries. Despite being a human, DSC-MATE-6835 possesses intelligence and abilities that surpass normal human limits, making him a formidable foe. It is not recommended to engage DSC-MATE-6835 without taking appropriate precautions for personal safety.

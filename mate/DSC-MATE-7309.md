@@ -1,0 +1,7 @@
+DSC-MATE-7309 is a humanoid primate species characterized by a two-color band on its forehead and normal glasses on its eyes. Commonly known as "The Mechanic," DSC-MATE-7309 serves as a valuable asset to the Foundation in the repair and maintenance of vehicles and other mechanical equipment.
+
+DSC-MATE-7309 may appear lighthearted and rebellious, often pushing boundaries and breaking rules for the sake of amusement. However, they have demonstrated an exceptional level of skill and a deep understanding of mechanics, earning their position as a trusted member of the Foundation's maintenance team.
+
+While on duty, DSC-MATE-7309 can frequently be seen sporting a silver chain accessory, which they claim is a good luck charm. Although they can be disruptive when seeking attention, DSC-MATE-7309 is a hard-working and loyal member of the Foundation, crucial to the function and success of various operations. 
+
+It is advisable to keep DSC-MATE-7309 out of close proximity to any anomalies that may provoke their rebellious tendencies, as they may not be able to control their risky behavior. Caution must be exercised when DSC-MATE-7309 is on site, as their playful nature has been known to cause incidents in the past.

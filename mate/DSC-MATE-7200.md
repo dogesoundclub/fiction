@@ -1,0 +1,7 @@
+DSC-MATE-7200, also known as "The Jester Farmer," is a human male of unknown age who works as a farmer in rural areas. He has distinctive orange stripes on his face, as well as a frightened mouth that gives him a perpetually worried appearance. DSC-MATE-7200 wears a short peak cap on its head, and a pair of goggles are fixed on his forehead, giving him a dashing look.
+
+DSC-MATE-7200 is known for its gold earring, which he adorns in his left ear as a good luck charm. He is also commonly seen carrying a candy stick, which he'll offer to anyone who strikes his fancy. DSC-MATE-7200 possesses an excellent sense of humor and loves amusing others, cracking jokes to lighten the mood, or telling funny stories from his youth.
+
+DSC-MATE-7200's ability to lift spirits through his charm and wit sometimes makes him forget that he's a farmer. On several occasions, he has unintentionally led farm animals astray while playfully chasing them. When interviewed, DSC-MATE-7200 claimed that he was simply trying to lighten the mood and that all he wanted was for everyone to have a good laugh.
+
+DSC-MATE-7200's jester-like demeanor can be alarming to human subjects, leading to adverse effects. DSC-MATE-7200's humorous antics may lead to a sense of "weirdness" and "unreality." Therefore, DSC-MATE-7200 is to be contained in a well-lit, optimized standard humanoid containment cell, away from the general populace, and be counter-interviewed monthly to assess for any cognitive deterioration or potential risks of information breaches.

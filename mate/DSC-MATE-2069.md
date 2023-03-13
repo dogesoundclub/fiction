@@ -1,0 +1,5 @@
+DSC-MATE-2069, also known as the "Flame Defender," is a female human with intriguing features. Her face is adorned with spots, and her lips are painted in a deep purple hue. Her eyes are a startling shade of blue, with a clown-like quality to their appearance. The top of her head is covered by a wild mass of untamed green hair that refuses to be arranged. The only other visible modification is her jade earring.
+
+Though her appearance makes her stand out in a crowd, it is her personality that truly sets her apart. DSC-MATE-2069 is a steadfast and dependable firefighter who takes her job seriously. She has an organized and reliable approach to her work, but it is her stubborn nature that often causes humorous situations. Despite her ability to keep her routines in check, DSC-MATE-2069 has a hard time embracing new ideas and unexpected challenges.
+
+As the flames dance around, DSC-MATE-2069's gold chain shimmers in the light of the fire. It is a reminder of her commitment to her duty as a firefighter, willing to go through the flames to save those in need.

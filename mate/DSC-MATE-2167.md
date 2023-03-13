@@ -1,0 +1,7 @@
+DSC-MATE-2167 is a curious case of a typical human real estate agent with an unusual set of accessories. However, their physical traits surely do not define their erratic and rebellious personality that always seeks new ways to push the boundaries. The subject seems to have a peculiar interest in defying rules and regulations, leading to peculiar and dangerous situations for themselves and others.
+
+DSC-MATE-2167's eyes resemble ski goggles and its ears sport a pair of green jade earrings, which seem to have no special effects on the subject's behavior. However, their silver chain and candy stick serve as a vital aid in expressing their mischievous tendencies. The chain itself is a tool in playful acts of teasing other individuals, while the candy stick speaks for itself as a treat for their impetuousness.
+
+Moreover, DSC-MATE-2167 is visibly known for finding ways to break the rules of the system or finding loopholes in the policies for entertainment purposes. Their behavior can lead to humorous situations at times, but also prove severely dangerous in situations where following the rules is necessary.
+
+Because of these traits, DSC-MATE-2167 is kept under a close watch and in containment measures that ensure public and personal safety. Any interaction with DSC-MATE-2167 must follow strict protocols and behavioral regulations to prevent any hazardous or uncontrollable outbursts from the subject.

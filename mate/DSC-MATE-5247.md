@@ -1,0 +1,5 @@
+DSC-MATE-5247 is a male Rabbit with unnerving red clown eyes that seem to glow, even in the faintest of lights. The creature wears a blue bandana on top of its head, and a pair of goggles resting above its forehead, almost as if ready to strike at any given moment. The Rabbit's ears are adorned with a single jade earring, which is likely its only means of vanity.
+
+DSC-MATE-5247 is a villain, and as such, is never seen without its signature gold chain and whistle, symbolizing the power and authority it holds over those under its command. Its personality can best be described as detail-oriented to an obsessive degree, often alphabetizing its spice rack or color-coding its closet. However, this trait can manifest in unpredictable and dangerous ways, making DSC-MATE-5247 a force to be reckoned with.
+
+DSC-MATE-5247's true nature and motives remain unclear, which only adds to the fear and unease felt by those who encounter it. Approaching DSC-MATE-5247 is not recommended, as it has been known to lash out with deadly force when threatened or confronted.

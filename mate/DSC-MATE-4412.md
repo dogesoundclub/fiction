@@ -1,0 +1,5 @@
+DSC-MATE-4412 is a notorious urban monkey creature that works as a programmer at an undisclosed location. With ski goggle eyes and a hoodie head, they sport conspicuous accessories such as a gold chain and a cigarette that they are often seen clutching between their fingers. Despite their humanoid appearance, it is important to remember that DSC-MATE-4412 is no ordinary human. 
+
+As the lone monkey amongst a sea of humans, DSC-MATE-4412 has developed a strong sense of independence and self-reliance, often seen resisting authority and rules that they feel are unnecessary. Such behavior often results in sneaky office absences, unpermitted leaves of absence, and rebellious actions. DSC-MATE-4412's true nature, and potential dangers that come along with it, have been kept under strict government surveillance for years, with only a select few having access to information about this unique creature. 
+
+In conclusion, DSC-MATE-4412 represents an unusual phenomenon unheard of in modern-day urban society. As a sentient monkey that boasts a distinctive rebel streak, this creature remains one of the most fascinating specimens in the DSC catalog.

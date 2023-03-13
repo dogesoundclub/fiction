@@ -1,0 +1,7 @@
+DSC-MATE-7526, also known as "Dr. Hare", is a male rabbit of unknown origin. Despite his meek appearance, DSC-MATE-7526 is a skilled physician and is often called upon to perform surgeries on other anomalous creatures. His frightened mouth and red clown eyes may seem intimidating at first, but don't be fooled - DSC-MATE-7526 is always eager to help those in need.
+
+DSC-MATE-7526's most notable feature is the LED headset he wears at all times. This headset allows him to communicate with other DSC personnel and provides him with vital information about his patients. Additionally, DSC-MATE-7526 is often seen wearing a gold chain and carrying a candy stick, which he claims helps to calm his nerves during particularly difficult procedures.
+
+Despite the dangerous nature of his profession, DSC-MATE-7526 has a love for adventure and enjoys taking risks. He has been known to participate in extreme sports, such as bungee jumping and skydiving, and has even gotten lost in the wilderness on occasion. These escapades often lead to humorous stories, which DSC-MATE-7526 tells with great enthusiasm.
+
+Overall, DSC-MATE-7526 is a valuable asset to the DogeSoundClub and a skilled physician. His love of adventure and willingness to take risks make him a unique addition to the Foundation's personnel roster.

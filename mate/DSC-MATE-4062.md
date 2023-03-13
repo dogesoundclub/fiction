@@ -1,0 +1,7 @@
+DSC-MATE-4062, also known as "The Boss," is a human male believed to be in his late 40s. As the head of a powerful mafia organization, he exudes an air of dominance and cool detachment. His appearance is striking, with a dazzling smile that can put anyone at ease - or hide his true intentions. 
+
+Upon closer inspection, one would notice his unusual eyes, which are protected by what looks like ski goggles, giving him an enigmatic appearance. His head is adorned with messy blonde hair, giving him a youthful look despite his age. His forehead is adorned with an unusual accessory - a goggle, which makes one wonder about its purpose.
+
+However, his most alarming accessory is his LED gas mask, which he wears in public to protect his identity, hinting at his deep involvement in illegal activities. DSC-MATE-4062 is highly intelligent and cunning, always relentlessly pursuing whatever it is he wants. He has a love for adventure, which explains why he frequently takes risks and tries out new things, often leading to humorous stories like surviving near-death experiences while bungee jumping or getting lost in the wilderness by accident. 
+
+DSC-MATE-4062's personality can be charming and hospitable, but beneath his facade is an aggressive and calculated individual, who will stop at nothing to achieve his goals. Those who stand in his way often face dire consequences. DogeSoundClub closely monitors him, for his involvement with the supernatural along with the odd goggle on his forehead make him a curious subject for further investigation.

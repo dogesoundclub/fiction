@@ -1,0 +1,7 @@
+Subject 8298, codenamed "The Reporter", is a human male with distinct physical features. His head is a typical shade of blonde, but adorned with orange stripes that can be seen tracing the contours of his face. The subject's ear is pierced with a single green cross earring, giving him a somewhat rebellious appearance. 
+
+Personality-wise, 8298 is a determined and assertive individual, exhibiting a strong presence in any given situation. However, his forward nature may come off as domineering and intimidating to some, but those who have worked with him know that his demeanor is simply a reflection of his desire to get things done effectively and efficiently. 
+
+The subject is a reporter, with a keen eye for detail and an uncanny ability to uncover secrets that others might miss. His sharp wit and skillful way with words make him a formidable opponent, and he's not one to let a good story slip through his fingers. To complete his image, the subject is often seen with a cigarette, puffing away thoughtfully as he uncovers the next big scoop. 
+
+As always, caution is advised when dealing with DSC-MATE-8298. While he may appear benevolent, his pursuit of the truth can often lead to unexpected consequences. Those who wish to engage the subject should do so with care... you never know what skeleton he might uncover next.

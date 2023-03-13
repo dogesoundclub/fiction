@@ -1,0 +1,7 @@
+DSC-MATE-5460, codenamed "The Fashionista," is a female human with distinctive orange stripes on her face, not arranged in any particular pattern. Her eyes are concealed behind normal glasses, and she has a mop of not-quite-arranged green hair on top of her head. Most strikingly, DSC-MATE-5460 has two color bands across her forehead and wears green cross earrings in both ears. 
+
+The Fashionista's unusual appearance is matched by her quick wit and love of debate. She often engages in playful arguments with friends and family members, simply for the pleasure of the argument. However, her sharp tongue can also lead to more serious confrontations, and DSC-MATE-5460 has been known to rub some people the wrong way with her sarcastic sense of humor. 
+
+Despite this, The Fashionista is highly creative, and her fashion designs are in high demand among certain circles. DSC-MATE-5460's eye-catching, imaginative clothing is often compared to wearable art, and her clients are willing to pay top dollar for her one-of-a-kind creations. However, while she may be an artist, The Fashionista is also a shrewd businesswoman, and she always makes sure to get her due. 
+
+In summary, DSC-MATE-5460, The Fashionista, is a highly unique individual with a distinctive appearance and a quick wit. While her sense of humor may rub some people the wrong way, her artistic talent and shrewd business sense have led to her success as a fashion designer in the urban fantasy world.

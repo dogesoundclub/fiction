@@ -1,0 +1,7 @@
+DSC-MATE-7049 is a humanoid creature who appears to be a male lawyer with distinct orange stripes across their face, purple cap with a headset, and a medical mask covering their mouth. Their eyes are concealed behind normal glasses, and their ears have been pierced with a green cross earring. Atop their forehead is an unusual feature of a two-color band. 
+
+Although DSC-MATE-7049 appears to be human, their characteristics suggest otherwise. They have a strong inclination towards independence and an aversion to seeking help, even when they are in dire need of it. This individual can be quite stubborn, as evident by their reluctance to ask for assistance in lifting a heavy piece of furniture or refusing to obtain a map when they are lost. 
+
+DSC-MATE-7049 has been observed to display a sense of fear and anxiety, especially when they encounter unfamiliar situations. Their frightened mouth indicates that they could be experiencing distress, even in the presence of minor provocations. Despite these traits, DSC-MATE-7049's legal profession requires them to overcome their fears and take charge of matters that affect their client's lives. 
+
+Potential personnel who may interview DSC-MATE-7049 must exercise caution when asking for information. DSC-MATE-7049 may not willingly provide assistance when questioned and may react negatively if pressured. It is advisable to keenly observe DSC-MATE-7049's actions and behavior and remain patient until they are ready to share what they know.

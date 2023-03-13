@@ -1,0 +1,11 @@
+Item #: DSC-MATE-4136
+
+Object Class: Euclid
+
+Special Containment Procedures: DSC-MATE-4136 is to be kept within its designated containment chamber at all times, with access granted only to Level 3 personnel or above. The chamber is to be outfitted with multiple metal cages and reinforced glass walls to prevent escape attempts. DSC-MATE-4136 is to be fed twice daily and is to be provided with all necessary amenities required for its comfort. In the event of an escape attempt, security personnel are to use tranquilizers or other non-lethal means to subdue DSC-MATE-4136.
+
+Description: DSC-MATE-4136 is a male tiger, exhibiting an unusual appearance for his species. DSC-MATE-4136 can be easily identified by the red beanie atop its head, silver chain around its neck, and the medical mask covering its mouth. DSC-MATE-4136 is also known to wear nerd glasses and a 2-color band on its forehead, as well as a jade earring adorning each ear. DSC-MATE-4136 exhibits a highly analytical and logical personality, as well as a tendency to engage in debates or arguments with others for its personal amusement.
+
+DSC-MATE-4136 currently works as a theater manager, utilizing its intelligence and analytical skills to plan and organize events. It has been observed that DSC-MATE-4136 enjoys being a part of the theater industry and may display a jovial demeanor towards those who share its passion. However, in the event that DSC-MATE-4136 feels its authority is being challenged or undermined, it may become hostile and argumentative. Caution is advised when dealing with DSC-MATE-4136, and researchers are advised to engage in informational conversations that avoid emotional or confrontational language.
+
+Addendum: Research notes have indicated that DSC-MATE-4136 has a high affinity for the dramatic arts and has expressed an interest in participating in productions beyond management duties. Testing is currently underway to determine the feasibility of integrating DSC-MATE-4136 into theatrical productions.

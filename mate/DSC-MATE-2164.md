@@ -1,0 +1,5 @@
+Subject 2164, also known as "The Jester", is a human male fast food worker with unique physical features. His face is dotted with spots and he frequently wears a frightened expression, often with his mouth agape. However, his most striking feature is his eyes. They are round, vivid blue and give the impression of clown makeup. His head is adorned with layers of green hair, which he styles in a flamboyant manner, and he is seldom seen without his signature gold chain.
+
+Despite his unusual appearance, The Jester possesses an infectious charm and charisma that make him the life of any party. He has a talent for telling jokes and can do silly dances that never fail to make others laugh. Though his antics can be amusing, there is an underlying sense of unease around him. It's as if he's hiding something dark and sinister, behind his playful exterior.
+
+Further investigation of Subject 2164 is recommended, as his behavior suggests he may be more than your average jovial fast food worker. Any anomalies should be immediately reported to DogeSoundClub personnel.

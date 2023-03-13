@@ -1,0 +1,5 @@
+DSC-MATE-7970, codenamed "The Emotional Mechanic," is a human female in her mid-twenties with a friendly smile and vibrant orange eyes. She is often seen wearing a choker and has a distinctive two-color band across her forehead. Her short orange hair is usually styled with a side part.
+
+Despite her occupation as a mechanic, DSC-MATE-7970 is known for her emotional sensitivity. She is easily moved to tears by sentimental moments in movies or TV shows, and has a fondness for music and art that evokes strong feelings. It is believed that her heightened emotions may be linked to her anomalous abilities, which have yet to be fully cataloged. 
+
+Caution is advised when interacting with DSC-MATE-7970, as her emotions can affect those around her. It is recommended that personnel limit emotional conversations and activities in her presence, to prevent any potential disruptions or breaches. DSC-MATE-7970 is under constant observation and all emotional outbursts are to be reported immediately to Site Administration.

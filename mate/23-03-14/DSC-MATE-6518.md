@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6518
+Description: DSC-MATE-6518 is a male rabbit of unknown origin, with a frightened mouth as a prominent face feature covered in a purple cap with a headset. Their forehead is adorned with a pair of goggles as well as a jade earring. DSC-MATE-6518 has displayed an addiction to cigarettes despite obvious physical discomfort.

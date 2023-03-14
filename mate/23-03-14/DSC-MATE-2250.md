@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2250
+Description: Subject 2250 appears to be a humanoid male of average height, weighing approximately 175 lbs. While physically appearing completely human, the subject displays anomalous eye coloration with red clown-like eyes. The subject's appearance is otherwise normal, with a hoodie covering his head and a two-color band adorning his forehead. Additionally, he wears a red scarf as his accessory.

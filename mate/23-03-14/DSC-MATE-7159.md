@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7159
+Description: DSC-MATE-7159 is a male humanoid identified as a fashion designer, with orange stripes on the face and a big smile. DSC-MATE-7159's eyes are reddish clown-style eyes, and it wears a short peak cap on its head, along with a red victory band on its forehead. Its ears have a green cross earring, and it wears a medical mask on the mouth. DSC-MATE-7159 carries a silver chain accessory.

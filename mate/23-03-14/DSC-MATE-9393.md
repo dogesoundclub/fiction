@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9393
+Description: Subject 9393 is a female human with orange eyebrow eyes and a tiara on her head. They commonly wear a medical mask over their mouth and goggles on their forehead. While they may appear laid-back and easy-going, 9393 has shown fierce loyalty and protectiveness over their loved ones.

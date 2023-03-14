@@ -1,0 +1,2 @@
+ID # : DSC-MATE-25
+Description: DSC-MATE-25 is a human male standing at 6 feet tall. The subject's face is covered in several spots resembling freckles, with a permanent smile on their face. DSC-MATE-25's eyes are the most notable feature, being a bright blue and resembling those typically seen on clown costumes. The subject's head is shaved except for a mohawk, with a set of goggles resting on their forehead. DSC-MATE-25 wears a jade earring on their right ear, and a medical mask over their mouth. A red scarf is present as an accessory.

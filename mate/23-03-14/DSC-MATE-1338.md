@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1338
+Description: DSC-MATE-1338 appears to be a human male of Caucasian descent, aged 47. Notable physical features include several dark spots on the face and a smile that appears to be permanent. The subject's eyes are unnaturally bright blue with a pupil resembling that of a clown. DSC-MATE-1338 is often seen wearing a police cap and a goggle on their forehead, as well as a gold earring and a silver chain. The subject frequently smokes cigarettes.

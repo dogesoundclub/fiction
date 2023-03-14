@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2460
+Description: 2460 is a sentient robot, resembling a human male. Its body is made up of various metal and plastic components arranged in the shape of a bipedal humanoid. Its head is covered by a red beanie, with ski goggle eyes and jade earring ears. It also wears a red scarf and carries a whistle as accessories.

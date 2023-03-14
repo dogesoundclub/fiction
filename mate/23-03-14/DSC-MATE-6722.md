@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6722
+Description: DSC-MATE-6722 appears to be a male monkey of the genus Macaca. It stands approximately 1.5 meters tall and its head is parted down the middle, revealing a pink scalp. DSC-MATE-6722 is often seen wearing a silver chain and smoking a cigarette. Its most notable feature is the permanent expression of a frightened mouth, giving it a perpetually vulnerable appearance.

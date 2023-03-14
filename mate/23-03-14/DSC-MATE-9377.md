@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9377
+Description: DSC-MATE-9377 is a female human with distinct orange stripes on their cheeks and a noticeable smile. DSC-MATE-9377's eyes feature orange eyebrow markings, and they are often seen wearing a purple cap with a headset, a choker, and carrying a cigarette.

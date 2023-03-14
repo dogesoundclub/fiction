@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7574
+Description: DSC-MATE-7574 is a female human with a short, witch-like hairstyle. Their face features purple lips and spots, with blue clown eyes. They wear a jade earring and a choker, often accompanied by a normal gas mask as their preferred accessory.

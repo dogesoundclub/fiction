@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7411
+Description: DSC-MATE-7411 is a male humanoid of the species Panthera tigris tigris (Tiger), identified as a train driver by profession. DSC-MATE-7411 is 1.76 meters tall and weighs 211 kilograms.

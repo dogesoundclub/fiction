@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4826
+Description: DSC-MATE-4826 is a male robot politician standing at 1.8 meters tall. It has a humanoid head with green hair in a purple cap, and jade earrings on its mechanical ears. DSC-MATE-4826 frequently sports a silver chain and a lit cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-684
+Description: DSC-MATE-684 is a male robot with a green cyclops eye, normal glasses, and a frightened mouth. The robot's head is covered by a red beanie with a goggle on the forehead, and it has a red cross earring on each side. DSC-MATE-684 is accessorized with a gold chain.

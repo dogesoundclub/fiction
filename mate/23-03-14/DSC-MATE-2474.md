@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2474
+Description: DSC-MATE-2474 appears to be a humanoid tiger with green hair in a purple cap. It has blue clown eyes and one gold earring on each ear. DSC-MATE-2474 is approximately 1.88 meters tall and weighs approximately 237 kilograms. DSC-MATE-2474 communicates in fluent English and exhibits knowledge of advanced mathematics and economics.

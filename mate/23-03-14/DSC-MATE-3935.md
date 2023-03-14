@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3935
+Description: Subject 3935 is a human male with distinctive orange stripes on his face. The subject also possesses unusual ski goggle-shaped eyes that are unlike any other human's. The subject's head has normal blonde hair and ears adorned with a green cross earring. Additionally, the subject is often seen wearing a gold chain around his neck and smoking a cigarette.

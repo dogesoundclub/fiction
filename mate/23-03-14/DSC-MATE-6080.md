@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6080
+Description: Item 6080 appears to be a male Bengal Tiger, standing at an impressive height of 6'4. The subject is adorned with a bucket hat atop its head, complemented by a red victory band upon its forehead. Additionally, the subject sports a pair of blue clown eyes which appear to remain open at all times, revealing a piercing gaze.

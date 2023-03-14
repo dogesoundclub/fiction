@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1224
+Description: Officer 1224 is a human male with a distinctive jade earring and a red scarf. Their most notable feature is their infectious smile, which they seem to wear even in the gravest of situations. Despite their profession as a police officer, Officer 1224 exhibits behavior that is more akin to a counselor or therapist. They have an innate ability to empathize with others and often take on their problems as their own.

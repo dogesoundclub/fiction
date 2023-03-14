@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1433
+Description: Subject 1433 is a male human, approximately 30 years old. He stands at 6'1" and weighs 185 pounds. His head is adorned with a blue bandana, while orange stripes decorate his face. He wears a pair of nerd glasses that obscure his eyes, and his ears are pierced with a jade earring. A gold chain can be seen around his neck, and he is often seen smoking a cigarette.

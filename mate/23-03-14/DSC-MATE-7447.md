@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7447
+Description: DSC-MATE-7447 is a human male in his mid-thirties with spots on his face and a frightened mouth. He usually wears a bucket hat on his head, a medical mask over his mouth, a green cross earring on his left ear, and a gold chain as an accessory. He has been observed to be quite reliable and organized, with a tendency towards stubbornness. 

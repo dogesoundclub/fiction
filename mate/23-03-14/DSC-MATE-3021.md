@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3021
+Description: DSC-MATE-3021 is a male monkey of the genus Macaca. DSC-MATE-3021 is 50 cm in height, weighed around 5 kg, and has features including but not limited to: Blue clown eyes, Purple cap with a headset, and a frightened mouth. DSC-MATE-3021 possesses human-level intelligence, and computer programming knowledge beyond what should be possible for its species. However, DSC-MATE-3021 is prone to panic attacks, and can be troublesome when presented with unforeseen circumstances. 

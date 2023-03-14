@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2866
+Description: DSC-MATE-2866 is a male humanoid rabbit, standing at roughly 5 feet tall. DSC-MATE-2866 wears normal glasses and has an unarranged green head, with a pair of goggles strapped to their forehead. DSC-MATE-2866 has a single jade earring on their left earlobe and frequently wears a gold chain around their neck.

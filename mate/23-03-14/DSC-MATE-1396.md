@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1396
+Description: DSC-MATE-1396 is a female human of average height and weight, with distinct facial features. Its orange stripes, red lip, and orange eyebrows are not naturally occurring and suggest cosmetic alteration. Additionally, DSC-MATE-1396's green hair appears to be intentionally unkempt.

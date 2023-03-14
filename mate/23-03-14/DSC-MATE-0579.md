@@ -1,0 +1,2 @@
+ID # : DSC-MATE-579
+Description: Subject 579 appears to be a female human of approximately 20 years old. She has a unique appearance, featuring spots on her skin and a perpetual smile. Her hair is styled in a witch short cut, and she has a single gold earring in each ear. The subject wears a silver chain around her neck at all times.

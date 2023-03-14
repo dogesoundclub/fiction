@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2568
+Description: DSC-MATE-2568 is a female human with orange stripes on its face and has blue clown eyes. DSC-MATE-2568 possesses a two color band and goggles over its forehead as well as gold earrings on its ears. DSC-MATE-2568 has a choker on its neck at all times. According to reports, DSC-MATE-2568 works as a firefighter in the local town.

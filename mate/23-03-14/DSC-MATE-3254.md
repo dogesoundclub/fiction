@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3254
+Description: DSC-MATE-3254 appears to be a male human with distinctive facial features. The subject has orange stripes painted on its face, which are visible even through its gas mask. DSC-MATE-3254 also has a clown mouth painted on its face, and its eyes are red with enlarged pupils resembling those of a clown.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6031
+Description: Subject 6031 is a male tiger with a distinctive appearance. He wears a bucket hat on his head and a jade earring on each ear. The subject also wears a red scarf and is frequently seen with a cigarette. Despite his unusual attire, Subject 6031 exhibits classic tiger features, such as sharp claws and a powerful physique.

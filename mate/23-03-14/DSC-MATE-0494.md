@@ -1,0 +1,2 @@
+ID # : DSC-MATE-494
+Description: DSC-MATE-494 is a robotic entity resembling a humanoid male with a green cyclops eye as its primary feature. Its face exhibits a frightened mouth, and its eyes are replaced with virtual reality rainbow LEDs. DSC-MATE-494 is often seen wearing a headset with LED lights, a gold chain, and smoking a cigarette. DSC-MATE-494 initially identified itself as a news anchor and communicated fluently in English language.

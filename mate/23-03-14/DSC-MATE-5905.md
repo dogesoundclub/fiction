@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5905
+Description: Subject 5905 is a male primate, commonly known as a monkey, standing at approximately 3 feet in height. The subject possesses a frightened mouth with sharp teeth, partially hidden behind a pair of nerd glasses which magnify his eyes. The subject's head is fitted with a headset with LED lights, which flash intermittently throughout the day. The subject has been observed wearing a red scarf, draped around his neck, and is often seen smoking a cigarette whenever provided access to the item.

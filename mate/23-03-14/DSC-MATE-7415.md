@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7415
+Description: DSC-MATE-7415 is a male human of average height and build with a distinctive mouth spot located on the left side of the mouth. The subject wears normal glasses on their brown eyes, and a silver chain around their neck. DSC-MATE-7415 also wears a jade earring on their left ear and often carries a candy stick as an accessory.

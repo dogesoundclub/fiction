@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2082
+Description: DSC-MATE-2082 is a male tiger approximately 2 meters in length and weighing 180 kilograms. DSC-MATE-2082 bears distinct features such as nerd glasses, a red beanie on its head and a goggle on its forehead. DSC-MATE-2082's ears are pierced, with a jade earring on its left ear. DSC-MATE-2082 also wears a red scarf and carries a candy stick as apparent accessories.

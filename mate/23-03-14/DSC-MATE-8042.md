@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8042
+Description: DSC-MATE-8042 appears to be a male tiger, measuring approximately 2 meters in length and weighing roughly 250 kg. DSC-MATE-8042 is capable of speech in various human languages, and has displayed a preference for English.

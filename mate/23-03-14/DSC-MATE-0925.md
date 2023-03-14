@@ -1,0 +1,2 @@
+ID # : DSC-MATE-925
+Description: DSC-MATE-925 is a human male of average height and weight. The subject's facial features are notable for the orange stripes across their cheeks and a prominent smile. The subject wears nerd glasses over their eyes and a purple cap with a headset covering the top of their head. There is a goggle on their forehead, and one green cross earring in each earlobe. A gold chain hangs around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4611
+Description: Subject 4611 is a human male of average height and weight, with distinctive orange stripes on their face. The subject wears large nerd glasses over their eyes and a short peak cap on their head, often adorned with a red victory band on their forehead. One green cross earring is visible in the subject's ear, and they are commonly seen wearing a red scarf as an accessory.

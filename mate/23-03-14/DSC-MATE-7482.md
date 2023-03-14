@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7482
+Description: DSC-MATE-7482 is a highly sophisticated robot with a unique physical appearance. DSC-MATE-7482 has a singular green Cyclops eye and a red beanie on top of its head. Its eyes are made of virtual reality jade LED and the robot is often seen smoking a cigarette while wearing a silver chain around its neck.

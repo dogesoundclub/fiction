@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1023
+Description: DSC-MATE-1023 is a female human with identifying spots on its face and purple lipstick. Its eyes are red with a clown-like appearance. Its head is blonde with an unusual pair of wings attached to it. DSC-MATE-1023 frequently wears a silver chain and an LED gas mask.

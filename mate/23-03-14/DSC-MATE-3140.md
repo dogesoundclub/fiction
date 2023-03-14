@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3140
+Description: DSC-MATE-3140 is a male Bengal tiger of average weight and size. DSC-MATE-3140 is distinguishable by their accessories, which include nerd glasses over their eyes, a blue bandana over their head, a silver chain, and a normal gas mask. DSC-MATE-3140 has also been known to wear a standard blue delivery uniform.

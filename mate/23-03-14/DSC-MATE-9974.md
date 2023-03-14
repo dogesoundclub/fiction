@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9974
+Description: DSC-MATE-9974 is a male rabbit with features typically found in a humanoid rabbit. It stands at approximately 1.8 meters from foot to ears. DSC-MATE-9974 has been observed to wear small, normal-sized glasses and a silver chain with a whistle attached to it. DSC-MATE-9974 also possesses a green head that, as per its request, has not been styled or cut. DSC-MATE-9974 is distinguished by its mouth, which is consistently in a frightened position.

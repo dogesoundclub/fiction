@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7662
+Description: DSC-MATE-7662 is a male tiger with a unique physical appearance. DSC-MATE-7662 has ski goggle-like eyes and a jade earring on each ear. DSC-MATE-7662 is always wearing a silver chain around his neck, which he has refused to take off since containment. DSC-MATE-7662 is locally known as the "golden voice" of the news channel and has become a household name in the city.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1432
+Description: Item #1432 is a male monkey of an unknown species. The subject stands at about 3 feet tall and weighs approximately 50 pounds. Item #1432's face features a frightened mouth expression and wears a pair of normal glasses. The subject also dons a police cap with a jade earring on the left ear. Item #1432 wears a gold chain and carries a whistle as accessories.

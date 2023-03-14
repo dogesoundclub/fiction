@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2071
+Description: DSC-MATE-2071 is a male monkey (species unknown) with a height of approximately 1.3 meters. It wears a bucket hat with a pair of ski goggles attached to the front and carries a cigarette in its hand. The subject speaks and communicates fluently in English.

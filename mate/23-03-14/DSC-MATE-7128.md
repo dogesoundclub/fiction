@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7128
+Description: 7128 is a male real estate agent of Human origin. The subject possesses a unique appearance with distinct features such as a prominent mouth spot and a wide, toothy smile. The subject's eyes are fitted with Jade LED lenses, giving them an unusual and distinct appearance. Additionally, the head is parted Pink while the ears are adorned with a Jade Earring. The subject can often be seen wearing a red scarf and carrying a Candy Stick.

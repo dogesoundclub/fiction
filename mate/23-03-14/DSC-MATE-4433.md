@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4433
+Description: Subject 4433 appears to be a male human with distinctive facial features. The subject sports orange stripes and a broad smile, which make them instantly recognizable. They wear a red beanie and have gold earrings in their ears. The subject's most notable feature, however, is their VR jade LED eyes. 

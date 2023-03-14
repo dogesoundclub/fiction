@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3993
+Description: DSC-MATE-3993 is a male robotic entity appearing to be a standard delivery driver. DSC-MATE-3993 is 1.8 meters tall and is made up of durable alloys and metals. DSC-MATE-3993 is fitted with a single green cyclops eye and a pair of horned rim glasses to disguise its true nature. DSC-MATE-3993's head is covered by a red beanie and features a goggle mounted atop it. A silver chain is draped around DSC-MATE-3993's neck, and a normal gas mask is worn covering its mouth and nose. DSC-MATE-3993 has a red cross earring on its left ear.

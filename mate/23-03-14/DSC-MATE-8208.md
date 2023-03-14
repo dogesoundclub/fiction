@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8208
+Description: DSC-MATE-8208 appears to be a human male of African-American descent in their mid-20s. The subject is notable for the presence of various spots across their face, particularly around the cheeks and forehead. DSC-MATE-8208 also sports a prominent smile and wears thick, black-framed nerd glasses over their eyes.

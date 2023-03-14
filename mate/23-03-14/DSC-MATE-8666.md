@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8666
+Description: DSC-MATE-8666 appears to be a normal human female in her mid-twenties. However, DSC-MATE-8666 has been observed wearing a black hoodie as a form of uniform as a traffic officer, and is always seen wearing a gold chain around her neck. On duty, DSC-MATE-8666 also wears a normal gas mask, which is typical for urban environments.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1305
+Description: DSC-MATE-1305 is a male tiger hybrid with a blue bandana covering its head and jade earrings in its ears. It wears a red scarf around its neck and a gas mask over its snout. DSC-MATE-1305's most distinctive feature is its normal glasses, which it wears regularly. When questioned about its ability to see through the glass, DSC-MATE-1305 has remained unresponsive.

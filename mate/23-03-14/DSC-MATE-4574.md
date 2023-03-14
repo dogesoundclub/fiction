@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4574
+Description: DSC-MATE-4574 is a human male traffic officer with a unique appearance. DSC-MATE-4574 has a distinct mouth spot and wears nerd glasses. DSC-MATE-4574 also wears a red scarf and smokes cigarettes. DSC-MATE-4574's most notable features are its bucket hat and jade earring. DSC-MATE-4574 can be identified by its forehead's red victory band.

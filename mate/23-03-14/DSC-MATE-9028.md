@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9028
+Description: DSC-MATE-9028 is a robotic entity, appearing as a male beautician, with a unique set of physical features. Its face features a single green cyclops eye and a frightened mouth, with horned rim glasses acting as its eyes. DSC-MATE-9028 can often be seen sporting a red beanie and a silver chain around its neck, with a red cross earring in its ear. It also wears an LED gas mask as an accessory.

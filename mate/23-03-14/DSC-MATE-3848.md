@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3848
+Description: DSC-MATE-3848 is a 35-year-old male human identified as [REDACTED], a news anchor for [REDACTED] station. DSC-MATE-3848's most notable features are its peak spike head, orange stripes on its face, and a pair of goggles resting on its forehead. DSC-MATE-3848 also wears jade earrings and tends to speak in an animated, enthusiastic manner, often engaging in unconventional behavior during interviews.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3095
+Description: Subject 3095 appears as an average human female in her early thirties, standing at approximately 5'5". Her most distinct feature is the orange stripes that cover her face and the red lips that are always slightly parted. She wears normal glasses that obscure her eyes and a pair of green cross earrings, as well as a choker around her neck.

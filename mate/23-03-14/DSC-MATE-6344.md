@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6344
+Description: DSC-MATE-6344 is a female human with blue clown eyes and an unarranged green head, standing at approximately 170 cm tall. DSC-MATE-6344's most distinct features are her gold earrings and chain, often sported by her during containment. Her job occupation is currently that of a beautician.

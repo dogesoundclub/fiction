@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6403
+Description: DSC-MATE-6403 is a female human of average build and height, with distinctive features including orange stripes on her forehead and red lips. The subject's hair is blonde and appears to have a wing-like structure on her head. Her most notable facial feature is her red clown-like eyes. DSC-MATE-6403 often wears a gold chain around her neck as an accessory.

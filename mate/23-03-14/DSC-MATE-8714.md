@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8714
+Description: Subject 8714 is a human female with facial features characterized by distinctive spots. Their most notable features are their blue clown eyes, causing onlookers to feel an unsettling sense of unease. The subject has blonde hair which is usually covered by an ushanka, and they commonly wear goggles on their forehead as well as an unusual green cross earring on their right ear. Subject 8714 also sports a silver chain, the origins of which are unknown, and a normal gas mask.

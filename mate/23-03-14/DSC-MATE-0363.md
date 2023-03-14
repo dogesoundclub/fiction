@@ -1,0 +1,2 @@
+ID # : DSC-MATE-363
+Description: Subject 363 was a male human news anchor with distinctive spots scattered across his face, which he would often conceal behind thick nerd glasses. His head was encased in a metal purple helmet, giving him an imposing appearance. The subject was always seen with a cigarette in hand, emitting a cloud of smoke that seemed to linger unnaturally.

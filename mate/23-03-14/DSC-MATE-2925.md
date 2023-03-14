@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2925
+Description: DSC-MATE-2925 is a female human, with orange stripes appearing on their face as a prominent facial feature. The subject's eyes are a vibrant shade of green and emit a luminous, jade-colored light, which is believed to be a manifestation of a latent anomalous faculty possessed by DSC-MATE-2925. DSC-MATE-2925's head features a prominent set of blonde wings, which have not yet been functionally analyzed. The wings themselves appear to be devoid of feathers and are seemingly made of a metallic substance similar to hair strands.

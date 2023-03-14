@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5636
+Description: DSC-MATE-5636 is a Human female in her early 30s, standing at approximately 170 cm and weighing around 60 kg. They have a cheerful personality and often displays a light-hearted demeanor. DSC-MATE-5636 shows exceptional proficiency in law enforcement, hence recruited to the police force initially. However, they display a tendency to forget things, lose track of time, and easily get sidetracked, mostly when not involved in their daily activities. 

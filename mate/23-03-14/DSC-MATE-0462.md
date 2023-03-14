@@ -1,0 +1,2 @@
+ID # : DSC-MATE-462
+Description: Item 462 is a male monkey of the genus Macaca, measuring 51 cm in height and weighing 13.6 kg. A distinguishing feature of Item 462 is its red clown eyes, which are believed to be a pigment mutation. Its mouth is often in a frightened expression, which has been noted to be a result of its relocation to Foundation custody.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7720
+Description: DSC-MATE-7720 appears to be a male tiger of the Bengal subspecies (Panthera tigris tigris). The subject is approximately 3.5 meters in length and weighs approximately 230 kg. DSC-MATE-7720 has exhibited traits indicative of high intelligence and is capable of human-like speech, although it does not use these vocalizations except when necessary.

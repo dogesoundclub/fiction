@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2137
+Description: DSC-MATE-2137 is a male human of average height and build. Its most notable facial feature is its spots, which cover approximately 50% of its face. Its eyes are covered by normal glasses and its mouth often appears frightened. DSC-MATE-2137 is often seen wearing typical veterinarian attire, including a hoodie and gold chain accessory.

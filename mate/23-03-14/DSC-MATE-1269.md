@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1269
+Description: DSC-MATE-1269 is a male human with unusual facial features. Orange stripes are present on both sides of their face, resembling the markings of a tiger. Their eyes are obscured by black nerd glasses. DSC-MATE-1269 often wears a green bucket hat and a red victory band across their forehead. A jade earring is present on their left ear, and they often wear a red scarf around their neck.

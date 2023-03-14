@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5173
+Description: DSC-MATE-5173 is a humanoid female, identified as a News Anchor. DSC-MATE-5173 has a distinctive smile, and her eyes are red clown eyes. DSC-MATE-5173's head resembles that of a 00s school girl, and she is usually seen wearing a choker.

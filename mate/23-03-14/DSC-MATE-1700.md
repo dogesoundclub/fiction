@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1700
+Description: Subject 1700 appears as an average human male in their early thirties with a slim built of average height but with a distinguishing appearance that sets them apart. Subject 1700 dons a purple baseball cap atop their head, with vibrant green hair to match. They wear a jade earring that catches the faintest lighting, and behind Nerd glasses, their eyes possess an unusual sparkle.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2339
+Description: The entity formerly designated as 2339 was a male humanoid of the Homo sapiens species, appearing to be in his mid-thirties. He was a car salesman by profession, known for his uncanny ability to connect with others on a deep level.

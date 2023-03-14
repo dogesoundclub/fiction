@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2359
+Description: DSC-MATE-2359 is a female human of average height and weight. The subject's most distinctive feature is its rainbow festival headwear, which it wears at all times while working as a delivery driver. Additionally, it wears a pair of goggles on its forehead and a green cross earring on both ears. DSC-MATE-2359 also wears a silver chain around its neck as an accessory.

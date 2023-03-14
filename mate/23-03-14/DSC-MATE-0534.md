@@ -1,0 +1,2 @@
+ID # : DSC-MATE-534
+Description: DSC-MATE-534 is a male humanoid figure that resembles a Siberian tiger (Panthera tigris altaica), standing at approximately 6'9" tall and weighing 250 lbs. The subject's physical features embody those of a tiger, including striped fur, sharp claws and long teeth, and a tail that facilitates balance and agility.

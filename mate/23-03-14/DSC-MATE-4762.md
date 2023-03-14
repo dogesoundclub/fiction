@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4762
+Description: DSC-MATE-4762 is a male rabbit with a red beanie and a LED gas mask. The subject is a highly skilled beautician and has been observed to possess advanced knowledge of hair styling, makeup application, and manicures. DSC-MATE-4762 is highly sociable and enjoys interacting with humans, often offering unsolicited grooming advice to personnel assisting in containment procedures.

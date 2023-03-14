@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4726
+Description: DSC-MATE-4726 is a male rabbit of the Oryctolagus cuniculus genus. It stands at an average height of 50 cm and has blue clown eyes, which appear to glow in dimly lit areas. It constantly wears a hoodie with a red scarf draped around the neck and is often seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4082
+Description: 4082 is a robot designed to provide medical assistance in various forms, ranging from simple check-ups to complex surgeries. 4082 stands at a height of 6 feet, 2 inches and has a sleek and elegant design, with a purple cap adorned with a headset, horned-rim glasses for eyes, and a medical mask covering its mouth. Additionally, a red scarf is always worn around its neck.

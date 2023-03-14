@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6506
+Description: Subject 6506 appears to be a young male human, with spotted skin and normal eyes behind glasses. The head of the subject has been replaced with a metallic purple substance and the subject is often seen wearing a medical mask over their mouth. They wear a silver chain around their neck and a jade earring on their left ear. 

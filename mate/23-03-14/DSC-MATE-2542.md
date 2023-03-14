@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2542
+Description: DSC-MATE-2542 is a male monkey of unknown species, roughly 58 cm in height and weighing roughly 7 kg. DSC-MATE-2542 currently works for the Foundation as a security guard, patrolling various sites across the globe.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5121
+Description: DSC-MATE-5121 is a female human, approximately in her mid-30s. She possesses short witch-like hair and is typically seen wearing a gold chain and a jade earring. DSC-MATE-5121 is capable of forming sentimental attachments to inanimate objects, such as giving them names or talking to them as if they were alive.

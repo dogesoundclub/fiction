@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5561
+Description: Item 5561 is a male robot, measuring 6 feet tall, weighing approximately 200lbs, with a humanoid appearance. It is equipped with a green cyclops eye, featuring VR Jade LED technology to project holographic displays. The robot's head is adorned with a doge hat, while a medical mask is fitted on the mouth.

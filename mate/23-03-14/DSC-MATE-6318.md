@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6318
+Description: DSC-MATE-6318 is a male robot with a distinct appearance. His singular eye is a green Cyclops eye, and his goggles serve as additional visual sensors. DSC-MATE-6318 wears a police cap and a red Cross earring as well as a gold chain and an LED gas mask.

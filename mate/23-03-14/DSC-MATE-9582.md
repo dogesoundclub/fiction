@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9582
+Description: DSC-MATE-9582 is a male Bengal tiger that displays several human-like attributes, including the ability to communicate in English and an affinity for human clothing and accessories. DSC-MATE-9582 is employed as a Traffic Officer in the city, having been granted this position as a result of its anomalous abilities.

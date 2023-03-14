@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6215
+Description: DSC-MATE-6215 is a humanoid robot designed to operate as a train driver. It is approximately 1.8 meters tall and possesses a slender frame. Its head is adorned with a short peak cap and silver chain accessory. It wears a visible horned-rim glasses, and a forehead goggle which it appears to use during its duties. Additionally, DSC-MATE-6215 sports a red cross earring and a whistle used in railway signaling procedures.

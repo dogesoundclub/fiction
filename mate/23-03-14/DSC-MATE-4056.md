@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4056
+Description: DSC-MATE-4056 is a male monkey of the species, scientifically known as Chlorocebus aethiops, commonly referred to as the "Vervet monkey." DSC-MATE-4056 has several distinct physical features, including a frightened mouth, normal glasses over its eyes, a red beanie over its head, gold earrings on its ears, and a gold chain and cigarette as accessories. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2154
+Description: DSC-MATE-2154 is a male, anthropomorphic tiger with glasses that give the appearance of a "nerd". DSC-MATE-2154's appearance is distinctive by its frightened mouth and the red victory band placed on its forehead. DSC-MATE-2154 wears a hoodie, a red scarf, and is often seen smoking a cigarette. DSC-MATE-2154 is employed as a programmer and has extensive knowledge of computer programming languages.

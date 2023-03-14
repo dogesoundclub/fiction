@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3354
+Description: DSC-MATE-3354 appears to be a human male in his early forties, of Italian descent with a normal build. Subject is often seen wearing a short peak cap, red scarf and goggles on his forehead. Subject's eyes are concealed by ski goggles which are always on. DSC-MATE-3354 is often seen with a lit cigarette that seemingly never burns down or goes out.

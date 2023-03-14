@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2548
+Description: Subject 2548 is a female human of average height with distinctive features on its face, including spots and a purple lip. Its eyes are a bright orange color and are topped with unusual, elongated eyebrows. The subject's head is commonly adorned with rainbow-themed clothing, while its ears are often decorated with a red cross earring. Its mouth is covered with a medical mask as a habitual accessory. Finally, the subject is almost always wearing a choker around its neck.

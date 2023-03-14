@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1351
+Description: DSC-MATE-1351 is a male robot designed to resemble a humanoid car salesman. The body structure of the robot is made of aluminum alloy with an acrylic skin layer. It is approximately 6 feet tall and weighs around 200 pounds. The most distinctive feature of DSC-MATE-1351 is its green cyclops eye located in the center of its forehead. The robot's head is covered with a police cap and it has a red cross earring on its left ear. DSC-MATE-1351 also wears a normal gas mask as an accessory.

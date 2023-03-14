@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6401
+Description: DSC-MATE-6401 is a human female of average height, with orange striped face paint and bright red lipstick. They typically wear a rainbow-colored festival hat and a two-color band across their forehead. DSC-MATE-6401 possesses standard eyesight and wears a pair of normal glasses. They also wear green cross earrings, a gold chain and frequently smoke cigarettes.

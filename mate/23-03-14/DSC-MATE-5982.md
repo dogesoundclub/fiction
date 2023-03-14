@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5982
+Description: Subject 5982 appears to be a human male of average height and build, with blonde hair and normal glasses over their eyes. Their most notable features are orange stripes on their face and a red victory band on their forehead. The subject also wears a pair of goggles on their forehead and a gold earring on each ear, as well as a gold chain around their neck. They often carry a cigarette with them.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7824
+Description: DSC-MATE-7824 is a human male of average height and weight. DSC-MATE-7824 exhibits a distinctive red scarf, metal-purple head, and a jade earring on each of the ears. Notably, DSC-MATE-7824 possesses a unique facial feature, a black spot above its mouth. DSC-MATE-7824 is known to wear nerdy glasses and is known for having a broad smile on its face at all times.

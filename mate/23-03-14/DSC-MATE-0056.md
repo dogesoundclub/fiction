@@ -1,0 +1,2 @@
+ID # : DSC-MATE-56
+Description: DSC-MATE-56 is a middle-aged human male, standing at 1.83 meters tall and weighing 87 kilograms. DSC-MATE-56 has an unusual feature on his mouth, which appears to be a spot. The mouth spot is red in color and seems to be bulging, causing his frightened mouth appearance. DSC-MATE-56 wears normal glasses and a blue bandana on his head. He also wears a silver chain around his neck and carries a candy stick with him. 

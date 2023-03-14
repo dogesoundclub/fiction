@@ -1,0 +1,2 @@
+ID # : DSC-MATE-313
+Description: DSC-MATE-313 is a female human police officer with a unique appearance. She has spots on her face, and her eyes are equipped with VR Jade LED technology. Her hair is blonde with a wing, and she wears a red cross earring. DSC-MATE-313 wears a medical mask as a precautionary measure, and a choker as an accessory.

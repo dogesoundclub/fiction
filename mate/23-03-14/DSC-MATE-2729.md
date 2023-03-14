@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2729
+Description: 2729 appears to be a male monkey with an unnerving combination of red clown eyes and a perpetual frightened mouth. Its head is adorned with green hair and a purple cap. Despite its bizarre appearance, it has managed to rise to a position of political power and is known for its reliability and organizational skills. However, its stubbornness and resistance to change can cause disruptions in its routine.

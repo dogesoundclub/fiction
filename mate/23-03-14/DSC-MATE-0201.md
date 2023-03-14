@@ -1,0 +1,2 @@
+ID # : DSC-MATE-201
+Description: Subject 201 is a male human of average height and build with blonde hair and blue clown eyes. He is typically seen wearing a gold earring and carrying a candy stick. Despite his appearance, subject 201 is a skilled banker and has risen quickly through the ranks at his financial institution.

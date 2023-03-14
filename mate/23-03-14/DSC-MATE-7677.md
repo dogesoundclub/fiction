@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7677
+Description: DSC-MATE-7677 is a humanoid entity with the physical appearance of a middle-aged female human. DSC-MATE-7677 has spots on their face and purple lips. DSC-MATE-7677 wears normal glasses and on top of their head, a pink rabbit is seen. They have a goggle on their forehead and Jade earrings in their ears. They normally wear a gas mask for protection against airborne hazards.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8949
+Description: Subject 8949 is a female human of average height and weight. The most notable feature is the orange stripes adorning her face, which are believed to be cosmetic in nature. The subject also wears a retro cap, with a two-color band on her forehead and a jade earring on each side of her head. She is often seen wearing a gold chain as an accessory.

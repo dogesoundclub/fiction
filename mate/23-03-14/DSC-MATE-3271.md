@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3271
+Description: Subject 3271 appears to be a human male in his late thirties. His most notable feature is his perpetual grin and his bright red clown eyes, which are most likely due to an anomalous mutation. He wears a doge hat, a red scarf, and often can be found smoking a cigarette. Subject 3271's natural charm and charisma make him a master of salesmanship and socializing, but also make him difficult to contain. He thrives in social situations and can easily manipulate those around him, making him a potential threat to the public.

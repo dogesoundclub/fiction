@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3814
+Description: Subject 3814 is a male rabbit with blue clown eyes and a hood covering his head. His frightened mouth often adds to his timid demeanor. 3814 is adorned with a silver chain around his neck, and he is often seen holding a candy stick in his paw. They have a unique feature on their forehead, a 2 color band. Despite their outward appearance, 3814 has shown incredible technical ability when it comes to machines.

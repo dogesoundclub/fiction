@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2254
+Description: DSC-MATE-2254 is a female human of average height and build. She has distinctive spots on her face and blue Clown Eyes, seemingly without the use of any makeup or prosthetics. DSC-MATE-2254 wears a Purple Cap with a Headset for communication, and a Red Cross Earring on her left ear. She is often seen wearing a Gold Chain and a Normal Gas Mask as part of her train driving uniform.

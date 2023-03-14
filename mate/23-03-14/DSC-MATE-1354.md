@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1354
+Description: DSC-MATE-1354 is a Bengal tiger with an unnatural ability to manipulate emotions. It stands at 3.5 meters long and 1.2 meters tall, weighing approximately 196 kilograms. DSC-MATE-1354's eyes are bright red and take the form of clown eyes. Its head is not arranged naturally, seemingly frozen in a mocking expression. DSC-MATE-1354 wears a red cross earring on its left ear along with a gold chain on its neck. It carries a whistle around its neck at all times, which DSC-MATE-1354 uses to manipulate emotions.

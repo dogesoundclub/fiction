@@ -1,0 +1,2 @@
+ID # : DSC-MATE-404
+Description: Subject 404 is a human male standing at approximate height of 5'7'' with an average build. The subject's most striking feature is the brightly painted orange stripes on their face and a permanent, unnervingly wide smile. In addition, subject 404 is often seen wearing a worn-out doge hat and sporting a green cross earring on their left ear. They are officially employed as a beautician, mainly focusing on hair and makeup for their clients.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3569
+Description: DSC-MATE-3569 appears to be a fully functional automobile salesman with a humanoid robot body. It stands at approximately 5 feet and 9 inches tall and appears to be dressed in a standard automotive salesman attire, with a gold chain accessory around its neck. DSC-MATE-3569's head is fitted with a headset that has several LED lights attached.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4080
+Description: DSC-MATE-4080 is a female human of undetermined age, standing at approximately 1.68 meters tall. DSC-MATE-4080 is recognizable by their distinctive orange stripes, which appear prominently across their face. Additionally, DSC-MATE-4080 has bright orange eyebrows and wears a gas mask with LED lighting on the front.

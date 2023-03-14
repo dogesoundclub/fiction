@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6851
+Description: DSC-MATE-6851 is a male rabbit of unknown origin, measuring approximately 0.5 meters in height. DSC-MATE-6851's eyes are horned rim glasses, and he is usually seen wearing a purple cap with a headset. DSC-MATE-6851's forehead is marked with a two-color band and wears a jade earring. DSC-MATE-6851 also wears a red scarf around his neck and a normal gas mask as an accessory.

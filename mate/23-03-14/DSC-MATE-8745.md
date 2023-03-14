@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8745
+Description: DSC-MATE-8745 is a human male standing at 1.85 meters in height and weighing 84 kilograms. His eyes are replaced with ski goggles and he wears a short peak cap and jade earrings. DSC-MATE-8745 is observed to wear a medical mask to conceal an unknown facial condition. He is often seen wearing a red scarf.

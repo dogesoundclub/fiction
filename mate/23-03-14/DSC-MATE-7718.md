@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7718
+Description: The subject appears as a male Bengal tiger with green fur that is not well-groomed. Their eyes are obscured by a set of nerdy glasses, and they wear a gold earring on one of their ears. Despite their feral appearance, the subject speaks fluently and is highly skilled in programming, ranking high among the other employees in their company.

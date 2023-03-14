@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6786
+Description: DSC-MATE-6786 appears to be a male tiger, standing approximately 1.8 meters in height. DSC-MATE-6786 is capable of speaking fluently in multiple languages, and appears to possess a high level of intelligence and emotional intelligence.

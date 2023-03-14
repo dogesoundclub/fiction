@@ -1,0 +1,2 @@
+ID # : DSC-MATE-505
+Description: Subject 505 appears to be a human male with frightened mouth and blue clown eyes. They have an unarranged green wildhair, with a two-color band and goggles always affixed to their forehead. The subject is always seen wearing a medical mask and a silver chain around their neck.

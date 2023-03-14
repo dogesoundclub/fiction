@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8577
+Description: Subject 8577 is a male human of indeterminate age, typically found wearing a Doge hat and a medical mask. Its eyes are obscured by normal-looking glasses, and its ears are adorned with a green cross earring. The subject's most notable trait is a large, red scarf that it typically wears wrapped around its neck.

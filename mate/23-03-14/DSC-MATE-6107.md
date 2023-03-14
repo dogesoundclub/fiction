@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6107
+Description: DSC-MATE-6107 is a human female in her mid-thirties, standing at approximately 5'6" in height. DSC-MATE-6107 is noted for their distinctive appearance, which includes a red lip, blue clown eyes, and blonde hair worn in an ushanka. DSC-MATE-6107 also regularly wears a medical mask and a gold chain.

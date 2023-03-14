@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8171
+Description: DSC-MATE-8171 is a female human with orange stripes around the edges of her face, accompanied by purple lips and orange eyebrows. DSC-MATE-8171's forehead features a two-color band, and it is often seen wearing a medical mask over its mouth, which is assumed to be a response to air pollution. DSC-MATE-8171's head is covered with a hoodie that also features an orange stripe.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7913
+Description: Entity 7913 is a male Monkey, measuring approximately 1.2 meters in height when standing upright. It exhibits a number of anomalous traits, including VR Rainbow LED eyes, a Doge hat, a red scarf, and a whistle. The entity is able to speak fluently in English, and possesses an IQ that is significantly higher than the average human.

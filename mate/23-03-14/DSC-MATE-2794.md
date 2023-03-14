@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2794
+Description: DSC-MATE-2794 is a male human of average height and build. Despite being a creature of organic makeup, DSC-MATE-2794 possesses several anomalous physical features. Notable traits include a mouth spot located on the lower left-hand corner of its face, ski goggle-shaped eyes and a police cap atop its head. DSC-MATE-2794 is often seen wearing a red scarf or other similar accessories.

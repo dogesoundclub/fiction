@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7467
+Description: DSC-MATE-7467 appears to be a male Monkey salesman. It is approximately 1.8 meters in height, and weighs approximately 70 kilograms. DSC-MATE-7467 is notable for the 2-color band on its forehead and the goggles resting on top of it. It also has a frightened mouth shape, normal glasses, and a gold earring. DSC-MATE-7467 wears a silver chain and carries a whistle.

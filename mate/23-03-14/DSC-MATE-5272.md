@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5272
+Description: Item #5272 is a mafia boss of human origin, with an ordinary physical appearance except for its distinct features. It wears an orange-striped suit with nerd glasses that cover its eyes, a red beanie on its head with a two-color band on its forehead, and a green cross earring on its ear. It is often seen wearing a medical mask, thought to conceal an unknown identity or protect it from any contamination.

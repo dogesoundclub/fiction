@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2887
+Description: Subject 2887 is a humanoid of the species Homo sapiens with distinctive facial feature of purple lip. The subject appears to be a female with normal glasses for eyes. Additionally, the subject has a pink rabbit head and red cross earring on each of its earlobes. Subject's mouth is covered with a medical mask while a silver chain serves as an accessory.

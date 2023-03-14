@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9782
+Description: DSC-MATE-9782 has the appearance of a human male in his mid-30s, with a preference for nerd glasses and a metal purple head. DSC-MATE-9782 also has a gold earring in one ear and a silver chain as an accessory. DSC-MATE-9782 is a veterinarian by trade, but has demonstrated exceptional social skills and charisma, which have caused some humorous situations and unusual outcomes in situations.

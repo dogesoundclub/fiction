@@ -1,0 +1,2 @@
+ID # : DSC-MATE-585
+Description: DSC-MATE-585 appears to be a male monkey with blue clown-like eyes and a single jade earring in their right ear. They wear a silver chain around their neck and carry a candy stick at all times. DSC-MATE-585 has displayed above-average intelligence and is highly observant and attentive to details. They have an excellent memory and can recall even the smallest details of events or conversations.

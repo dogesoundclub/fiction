@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3963
+Description: Subject is a male human with distinct physical features, including spots on their face and ski goggle-like eyes. The subject is often seen wearing a bucket hat and a medical mask over their mouth, with a silver chain and a green cross earring as accessories.

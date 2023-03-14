@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7735
+Description: DSC-MATE-7735 is a human male, approximately 42 years of age, standing at 6'2" and weighing at 195 pounds. The subject's face features spots, and his eyes are red clown eyes, suggesting possible ties to an anomalous circus or entertainment group. DSC-MATE-7735 frequently wears a green-colored headpiece that appears to be of jade material and a gold chain accessory.

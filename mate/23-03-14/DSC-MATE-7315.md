@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7315
+Description: DSC-MATE-7315 is a male human that presents abnormal physical features. The subject possesses red clown eyes, covered in green hair, and wears a purple cap. DSC-MATE-7315 also presents spots all over its face and a clown mouth. On its forehead, DSC-MATE-7315 can be seen wearing a pair of goggles. Additionally, the subject wears a gold earring and a silver chain.

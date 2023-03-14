@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1891
+Description: DSC-MATE-1891 is a female human with a distinctive spotted face and a constant smile. Their eyes are a bright shade of blue and are noted to resemble clown eyes. DSC-MATE-1891's head and clothing exhibit a rainbow festival aesthetic. They often wear a red cross earring and a silver chain. DSC-MATE-1891 is frequently observed smoking a cigarette.

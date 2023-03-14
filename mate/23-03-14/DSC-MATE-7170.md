@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7170
+Description: DSC-MATE-7170 is a male monkey, standing at approximately 3 feet in height, with a frightened mouth as its most prominent facial feature. DSC-MATE-7170 wears normal glasses, a blue bandana around its head, and has a goggle attached to its forehead. It also sports a gold earring in one of its ears.

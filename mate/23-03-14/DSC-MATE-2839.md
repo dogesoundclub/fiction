@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2839
+Description: DSC-MATE-2839 is a humanoid entity known for its distinctive appearance. His face features bright orange stripes, complemented by a pair of thick nerd glasses. DSC-MATE-2839 sports a police cap on his head, along with a jade earring in each ear. Additionally, he is often seen wearing a red scarf and holding a cigarette.

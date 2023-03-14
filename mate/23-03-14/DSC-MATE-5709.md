@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5709
+Description: Item 5709 refers to a human male, Caucasian, in his mid-forties, with blonde hair, wearing a red victory band on his forehead, and a gold earring. He is often seen wearing a gold chain and an LED gas mask. Item 5709 also sports normal glasses and a frightened mouth.

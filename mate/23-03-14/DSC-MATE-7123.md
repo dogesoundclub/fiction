@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7123
+Description: DSC-MATE-7123 is a female human of approximately 40 years of age, with orange stripes on the left side of her face, and a purple lip. They wear normal glasses and a purple cap with a headset on their head, as well as a green cross earring. DSC-MATE-7123 wears a medical mask over their mouth, and is frequently seen with a gold chain around their neck.

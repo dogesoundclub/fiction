@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9077
+Description: Agent 9077 appears to be a male tiger in the guise of a Real Estate Agent. The subject usually dons a hoodie with nerd glasses, accentuated by a gold chain around its neck and a cigarette dangling from its lips. It is known to display rebellious tendencies at times, often bending or breaking rules for seemingly innocuous reasons. The subject possesses an analytical, intuitive, and independent streak, making it difficult to predict its actions at times.

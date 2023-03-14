@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9395
+Description: DSC-MATE-9395 appears to be an advanced robot designed to work as a banker. DSC-MATE-9395 has a retro cap on its head, with a pair of goggles resting on its forehead. Its eyes are a vibrant jade green color, with LED lights serving as the iris. DSC-MATE-9395 has a gold earring in each ear, and wears a gold chain around its neck. The most distinctive feature of DSC-MATE-9395, however, is the LED gas mask that it wears over its face. The gas mask is fitted with different colored LED lights and appears to serve no functional purpose.

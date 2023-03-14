@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2502
+Description: DSC-MATE-2502 is a human female news anchor with orange stripes on her face, pig tails for hair, and red cross earrings. Despite her unusual appearance, DSC-MATE-2502 appears to possess a charismatic persona that attracts a wide viewership demographic. DSC-MATE-2502 has an inherent drive for knowledge and can often be found engrossed in books, research or documentaries. DSC-MATE-2502 is also fiercely passionate about sharing her newfound knowledge with the public and using it to enrich the populace. 

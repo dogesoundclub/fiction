@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7388
+Description: DSC-MATE-7388 is a human male with distinctive spots on their face, and a perpetually friendly smile. The subject's eyes are covered by a pair of ski goggles, and they wear their hair in a mohawk style. DSC-MATE-7388 is often seen wearing a silver chain around their neck.

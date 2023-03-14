@@ -1,0 +1,2 @@
+ID # : DSC-MATE-66
+Description: DSC-MATE-66 is a human male with spotted skin and a permanent smile. DSC-MATE-66 wears large nerd glasses and a medical mask covering his mouth. DSC-MATE-66's head is covered in a metal purple material, and he wears a green cross earring in his left ear. DSC-MATE-66 also wears a silver chain as an accessory.

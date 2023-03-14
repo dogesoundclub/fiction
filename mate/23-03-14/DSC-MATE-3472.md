@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3472
+Description: 3472 is a male human, with blue clown eyes and spots on his face, giving him an overall unusual appearance. He wears a metal purple helmet on his head and a jade earring on his left ear. The subject is often found wearing a normal gas mask, likely due to his profession as a veterinarian.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1222
+Description: Dr. 1222 is a human male with orange stripes adorning his face, which give the impression of a feline. He maintains a permanently cheerful disposition and a smile spreads across his face whenever he speaks. The subject wears normal glasses and a red victory band on his forehead. He also wears a green cross earring along with a gold chain.

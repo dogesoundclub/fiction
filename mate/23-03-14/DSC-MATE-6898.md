@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6898
+Description: Subject 6898 displays blue clown eyes, making them quite noticeable in a crowd. In addition, she wears a green cross earring in her left ear, and a medical mask covers her mouth. A gold chain is also a common accessory.

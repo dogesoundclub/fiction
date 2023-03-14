@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7010
+Description: Subject 7010 is a male human of average height and weight. They possess a mouth spot and frightened mouth on their face, which appears to be a result of a previous medical condition. Their eyes are red clown eyes, and they wear a medical mask over their mouth. Subject 7010 also wears a jade earring and a silver chain around their neck.

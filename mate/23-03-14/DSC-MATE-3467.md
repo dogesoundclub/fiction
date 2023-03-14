@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3467
+Description: Item #3467 is a male primate with a doge hat on its head and horn-rimmed glasses covering its eyes. It wears a jade earring in its left ear, a gold chain around its neck, and it is often seen holding a cigarette. Despite its humanoid appearance, Item #3467 is, in fact, a monkey.

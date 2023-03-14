@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6261
+Description: DSC-MATE-6261 is a male Tiger, standing at approximately 187cm in height, with a slight weight increase of 89kg. DSC-MATE-6261 appears to have a frightened mouth and wears horned rim glasses over his green eyes, adding to his calm exterior. DSC-MATE-6261 has a doge hat on his head and possesses a single red cross earring in one of his ears.

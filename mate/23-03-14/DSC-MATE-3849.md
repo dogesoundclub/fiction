@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3849
+Description: DSC-MATE-3849 appears to be a male rabbit with VR jade LED eyes and a gold earring in one ear. Its most notable feature is a perpetually frightened mouth that is shaped like an 'O'. When not engaged in fashion design, DSC-MATE-3849 often engages in playful banter and attempts to tell jokes, though it rarely succeeds in making others laugh. 

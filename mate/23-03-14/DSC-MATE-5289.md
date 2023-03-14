@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5289
+Description: 5289 is a human female with vibrant rainbow-colored hair worn in a ponytail. Her face is adorned with orange stripes and a pair of orange eyebrows. Rainbow glitter decorates her forehead, giving her a festival look. 5289 is frequently seen with a single gold earring in her left ear and a cigarette in the right hand. Her demeanor is generally calm and unchanging, indicative of someone with a calm confidence.

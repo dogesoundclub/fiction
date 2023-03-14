@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7046
+Description: 7046 was a human male of average height and weight. The most notable feature was the Doge hat, worn over the subject's head at all times. The forehead featured a two-color band, which seemed to correspond with the subject's mood. The subject also sported a jade earring in each ear.

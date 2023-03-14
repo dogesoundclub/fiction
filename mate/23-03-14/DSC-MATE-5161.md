@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5161
+Description: Officer 5161 is a male human with distinctive clown mouth and red clown eyes, a signature feature that has both amused and terrified civilians. He often covers his head with a hoodie to maintain anonymity during low-profile investigations. Officer 5161 is always seen wearing a silver chain, the origin of which is unknown. Despite his unsettling appearance, he is a highly skilled and experienced police officer with an impressive record.

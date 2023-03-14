@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9630
+Description: DSC-MATE-9630 is a male monkey, approximately 1.2 meters in height. They possess a set of shade glasses which are consistently worn, obscuring their eyes. The head is not well arranged and often displays a green coloration, while gold earrings are present in the ears. DSC-MATE-9630 is frequently observed wearing a red scarf and a normal gas mask.

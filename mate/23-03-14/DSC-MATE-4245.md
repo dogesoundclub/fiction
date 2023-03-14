@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4245
+Description: DSC-MATE-4245 is a male specimen of the species Macaca fuscata (Japanese macaque), measuring approximately 30cm tall and weighing around 3 kg. Its fur is a reddish-brown color, with a light-colored face that is hairless except for a beard and mustache. DSC-MATE-4245 is often seen wearing a purple cap with a headset, and a pair of nerd glasses.

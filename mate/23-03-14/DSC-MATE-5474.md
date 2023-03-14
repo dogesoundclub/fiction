@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5474
+Description: DSC-MATE-5474 is a male human news anchor with various unusual physical features. DSC-MATE-5474 has spots across his face and wears ski goggle lenses as his eyes. DSC-MATE-5474's head has a green coloration that appears to be naturally occurring, but has never been verified. DSC-MATE-5474 wears gold earrings in both ears.

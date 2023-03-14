@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9115
+Description: DSC-MATE-9115 is a human woman with a distinctive set of features that make her stand out in any crowd. Her most prominent feature is her purple lipstick, which appears to be a permanent feature of her appearance. She also possesses a pair of VR jade LED eyes that give off a faint glow in the dark. DSC-MATE-9115 wears a bucket hat covering her short hair, and a pair of jade earrings adorns her ears.

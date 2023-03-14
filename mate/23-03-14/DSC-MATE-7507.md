@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7507
+Description: Item #7507 appears to be a monkey, standing roughly three feet tall, with blue clown eyes and a purple cap fitted with a headset. The monkey is always seen with a red scarf, which it seems to cherish greatly. The monkey exhibits a scared facial expression, with a frightened mouth that often trembles.

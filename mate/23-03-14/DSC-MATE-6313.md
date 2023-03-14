@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6313
+Description: 6313 is a male monkey with green fur and a frightened expression. Its most notable facial feature is a mouth that appears permanently open in fear. 6313 wears goggles on its forehead, which are believed to have been put there by its former owner. It is also regularly seen wearing a red scarf, claimed to have been given to it by a former mate. It is highly recommended that caution is exercised when around 6313, as it has been observed to be highly reactive and unpredictable when feeling cornered or threatened. 

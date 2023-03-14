@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5495
+Description: Subject 5495 is a male human with a rather joyous disposition, as evidenced by his constantly smiling expression. However, caution must be taken as he has an unsettling feature of having red clown eyes, which can potentially frighten and/or psychologically damage civilians. Subject wears a bucket hat with two color bands across their forehead and a goggle on the forehead with unknown functionality. 

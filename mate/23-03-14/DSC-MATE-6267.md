@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6267
+Description: DSC-MATE-6267 is a human male of unknown age and origin. Despite appearing fully organic, DSC-MATE-6267 seems to possess cybernetic enhancements, which include a metal purple head, gold earring-shaped ears, VR jade LED eyes, and a mouth spot. DSC-MATE-6267 prefers to accessorize with a silver chain and candy stick.

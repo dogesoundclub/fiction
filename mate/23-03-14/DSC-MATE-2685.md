@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2685
+Description: DSC-MATE-2685 is a male tiger with an unusual appearance. It wears a blue bandana around its head and a medical mask over its mouth, with nerd glasses perched atop. DSC-MATE-2685 also sports a red scarf as its primary accessory.

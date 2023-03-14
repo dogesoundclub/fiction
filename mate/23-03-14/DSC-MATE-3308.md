@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3308
+Description: Subject 3308 is a humanoid of the female gender, with a distinctive appearance. Spots cover their face, which is adorned with bright red lipstick that contrasts sharply with their pale skin. Their eyes are the most striking feature, possessing an almost demonic quality with bright red sclera and jet black pupils, visually resembling those of a clown. Subject wears a retro cap on their head with green cross earrings in their ears, a silver chain around their neck and carries a normal gas mask as an accessory.

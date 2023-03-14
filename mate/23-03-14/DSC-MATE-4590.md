@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4590
+Description: DSC-MATE-4590 is a human male, approximately 32 years of age, with striking orange stripes on his face. He wears normal glasses and a green layered headpiece, as well as an LED gas mask. The mask has been shown to flicker when DSC-MATE-4590 is aroused or stimulated.

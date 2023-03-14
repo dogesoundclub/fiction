@@ -1,0 +1,2 @@
+ID # : DSC-MATE-367
+Description: Identification number 367, also known as "The Villain", is a human female with distinct face markings resembling large spots. Her most noticeable feature is her constant, unnerving smile. She wears normal glasses on her eyes, and a red cross earring on her left ear. The Villain's most distinctive accessories are a choker and a normal gas mask, which she wears at all times.

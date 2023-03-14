@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8742
+Description: Item 8742 is a human male, measuring six feet five inches in height with an athletic build. The subject possesses multiple spots on the face, which appear to be freckles. The eyes of the subject are hidden behind ski goggles that maintain an opaque finish. The individual's head is shaven, resembling a monk, with a set of silver goggles on top. 

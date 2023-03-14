@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3001
+Description: DSC-MATE-3001, also known as "The Monkey Firefighter," is a male monkey standing at approximately 1.2 meters in height. DSC-MATE-3001's most notable feature is its ski goggle shaped eyes, which give it heightened vision up to two kilometers. DSC-MATE-3001 has a frightened mouth and a quirky parted pink head with a gold earring on its right ear. It always carries a candy stick as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9547
+Description: DSC-MATE-9547 is a male rabbit that appears to have undergone genetic modification to enhance its physical appearance. It has jade-colored LED eyes, wears a doge hat on its head, a jade earring on each ear, a silver chain around its neck, and carries a candy stick as an accessory. It stands at approximately 30 cm in height and has a weight of around 2 kg.

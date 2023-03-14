@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1176
+Description: DSC-MATE-1176 is a human male in his mid-thirties, standing at approximately 6 feet tall. They present themselves as a successful Mafia boss, claiming ownership over several criminal organizations across the city. DSC-MATE-1176's facial features consist of a wide and insincere smile, ski goggle-shaped eyes, and a medical mask over their mouth. A gold earring is visible on their left ear, and they frequently don a short peak cap, with a goggle fixed on their forehead.

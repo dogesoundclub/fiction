@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5332
+Description: DSC-MATE-5332 is a male humanoid with the appearance of a monkey. They possess a red clown eyes that glow in low light environments. Subject 5332 is often seen wearing a hoodie and a gold chain as their accessories.

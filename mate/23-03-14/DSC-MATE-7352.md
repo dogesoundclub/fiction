@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7352
+Description: DSC-MATE-7352 is a young adult human female with orange stripes and red lip makeup. Her eyes are augmented with VR Jade LEDs that emit light within a range of spectral frequencies, and her head is characterized by short witch-styled hair.

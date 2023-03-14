@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2505
+Description: Item #2505 is a male monkey of undisclosed species, resembling the coloration of a capuchin. Its eyes are covered by ski goggles, and a blue bandana is tied on its head. The subject has a gold earring on its left ear, and a silver chain draped around its neck. Its most notable characteristic is the candy stick it frequently carries around. The candy stick is to be considered a potential threat to personnel and must be removed from the subject's possession at all times.

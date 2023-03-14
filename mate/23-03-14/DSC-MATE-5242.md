@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5242
+Description: DSC-MATE-5242 is a male robot designated as a beautician. It stands approximately 1.8 meters in height and weighs approximately 80 kg. Despite its designation, DSC-MATE-5242 appears to have been constructed from various pieces of scrap metal and electronic components.

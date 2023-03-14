@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6196
+Description: DSC-MATE-6196 is an advanced robotic humanoid approximately 1.8 meters in height and weighs approximately 75.2 kilograms. DSC-MATE-6196 displays several humanoid features such as arms, legs, and torso, as well as a singular green cyclops eye on its face. The entire exterior of DSC-MATE-6196 appears to be covered in an unknown alloy, which has proven resistant to all attempts to damage or penetrate it.

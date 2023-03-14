@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1600
+Description: DSC-MATE-1600 is a humanoid robot standing at 1.8 meters tall. It has a police cap on its head at all times, while its ears consist of a red cross earring. Its mouth is always covered by a medical mask, and it has a red scarf as an accessory. DSC-MATE-1600's primary function is programming, and it is highly skilled in computer coding and hacking.

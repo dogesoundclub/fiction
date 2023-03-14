@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5407
+Description: Item #5407 appears to be a male human of average build and height. The subject is always seen wearing a blue bandana on their head and a gold chain around their neck. The most notable feature of the subject is their constantly present smile, which seems to be genuine in nature.

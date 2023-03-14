@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4505
+Description: Item 4505 appears to be a bipedal, mammalian species identified as Homo sapiens. They stand at an average height and weight for their species, with the distinguishing feature of orange stripes present on their face. Item 4505's head is covered by a red beanie and rests upon jade earrings. Nerd glasses are present on their eyes and they frequently wear a silver chain as an accessory.

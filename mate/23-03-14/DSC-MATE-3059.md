@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3059
+Description: Item #3059 is a delivery driver robot, standing at approximately 6 ft 5 inches tall. It has a humanoid frame, made out of lightweight metal and fitted with VR Rainbow LED eyes, which allow it to display a range of colors and expressions. Item #3059 has a police cap for its head, and a red cross earring on each ear. It is most frequently seen wearing a bright red scarf around its neck and a normal gas mask on its face.

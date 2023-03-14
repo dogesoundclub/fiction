@@ -1,0 +1,2 @@
+ID # : DSC-MATE-959
+Description: DSC-MATE-959 is a male human of indeterminate age, identified to have a job as a real estate agent. It possesses unique facial features such as orange stripes on its cheeks and a frightened expression. DSC-MATE-959 has blue clown eyes, and sports green hair in a purple cap. Its forehead is adorned with a two-color band and a pair of goggles. It is observed to always carry a candy stick as an accessory.

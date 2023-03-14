@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1460
+Description: DSC-MATE-1460 appears to be a humanoid monkey possessing a blue bandana, with horned rim glasses and a frightened mouth. DSC-MATE-1460 is dressed in formal attire, with a gold chain accessory. Its species has not been identified as of yet. 

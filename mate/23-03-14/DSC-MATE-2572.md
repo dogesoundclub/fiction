@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2572
+Description: Subject 2572 is a female human with notable physical characteristics, including spotted skin and purple lips. She is often seen wearing a hooded sweatshirt, obscuring her hair and face from view. her most notable features being her blue clown-like eyes and a cigarette, which she is often seen smoking. Her personality is infectious and her ability to connect with others is unparalleled. She is known to engage with strangers, often getting them to open up about their personal lives or sharing humorous anecdotes to bring people closer.

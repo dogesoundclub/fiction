@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8135
+Description: 8135 is a male tiger in the prime of his life standing at 6'2". The subject is well-built and muscular with distinctive blue fur and a blue bandana tied around his head. His eyes are hidden behind horn-rimmed glasses, and a jade earring hangs from each ear. The subject is usually seen wearing a medical mask which he appears to be frightened through his mouth. Despite being fully capable of speaking, the subject communicates through a series of growls, snarls, and other vocalizations commonly associated with wild tigers.

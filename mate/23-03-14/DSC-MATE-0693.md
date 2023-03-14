@@ -1,0 +1,2 @@
+ID # : DSC-MATE-693
+Physical Description: Officer Curious appears to be a normal human male at first glance. However, his distinguishing features include a brightly colored mohawk atop his head, pierced ears adorned with gold earrings, and unusual blue clown eyes that seem to sparkle with intellect.

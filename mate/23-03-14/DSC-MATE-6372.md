@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6372
+Description: Identification number 6372 is a human Traffic Officer named [REDACTED]. The subject is a male with a normal blonde hair and wears nerd glasses. The most notable feature on this subject is a mouth spot which is prominently located on the subject's chin. This spot appears to be invisible to the naked eye, and can only be seen by the subject when he looks in the mirror.

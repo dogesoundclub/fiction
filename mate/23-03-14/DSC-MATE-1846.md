@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1846
+Description: DSC-MATE-1846 is a human female with distinct physical features. She has a purple lip, unarranged green hair, and a green cross earring on both ears. Her mouth is always obscured by a medical mask, and she wears a black choker around her neck.

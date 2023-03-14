@@ -1,0 +1,2 @@
+ID # : DSC-MATE-426
+Description: DSC-MATE-426 is a humanoid robot with a green cyclops eye and a doge hat on its head. It is often seen wearing a red scarf and smoking a cigarette. Despite its mechanical nature, DSC-MATE-426 possesses a unique personality that can be both reliable and organized, while also stubborn and resistant to changes in routine.

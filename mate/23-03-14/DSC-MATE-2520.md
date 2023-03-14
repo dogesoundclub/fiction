@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2520
+Description: DSC-MATE-2520 appears to be a male Bengal tiger possessing unusual facial features. Its eyes are replaced with VR Jade LED lenses, its ears adorned with a Red Cross earring, and its mouth obscured by a medical mask. DSC-MATE-2520 also wears a silver chain around its neck. It is capable of speech in English.

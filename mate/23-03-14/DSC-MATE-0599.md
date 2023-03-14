@@ -1,0 +1,2 @@
+ID # : DSC-MATE-599
+Description: DSC-MATE-599 is a human female of ██ years old, with characteristic orange hair on one side of their face, jade earrings on both ears, and spots on their face. Additionally, DSC-MATE-599 is often seen with red lipstick and smoking a cigarette. 

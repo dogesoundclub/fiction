@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5303
+Description: Subject 5303 is a male human of average height and weight, with distinctive spots covering his face. He has thick green layers and a green cross earring, and is often observed carrying a cigarette. While seemingly harmless, subject 5303 has been known to exhibit behavior consistent with obsessive-compulsive disorder. This behavior may manifest in the form of color-coding objects or alphabetizing random items.

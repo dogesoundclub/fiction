@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3351
+Description: Subject 3351 is a male human of average height and build. The most notable feature of his appearance is the orange stripes that run across his face, giving him an almost feline appearance. He wears a bucket hat on his head and a red victory band across his forehead.

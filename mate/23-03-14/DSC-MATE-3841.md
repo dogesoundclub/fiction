@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3841
+Description: Subject 3841 is a male human of average height and build, with a frightened mouth and a purple cap adorned with a headset. The subject's forehead is marked with two color bands, and they wear a jade earring and a gold chain. The most notable accessory worn by the subject is an LED gas mask, which encapsulates their face.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8852
+Description: DSC-MATE-8852 is a humanoid individual of the female sex, identified as a delivery driver in the public sector. DSC-MATE-8852’s most notable feature is the orange stripes on her face, paired with a constant smile, and a bucket hat. Her eyes are replaced with violet-and-red LED screens, constantly switching between various animations, including what appears to be rainbow visuals. DSC-MATE-8852 also possesses golden earrings and a cigarette, which she frequently smokes.

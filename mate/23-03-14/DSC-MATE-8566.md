@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8566
+Description: DSC-MATE-8566 is a male human with distinctive facial features. They have orange stripes running down both cheeks, and their eyes are permanently fixed to resemble those of a clown, with irises appearing red. DSC-MATE-8566 is usually seen wearing a red beanie on their head, with a two-color band on their forehead. It is believed that these features are the result of an unidentified anomalous effect.

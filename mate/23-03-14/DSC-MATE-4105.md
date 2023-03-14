@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4105
+Description: DSC-MATE-4105 is a male human of African-American descent, approximately 5'11" in height and weighing 175 pounds. DSC-MATE-4105 identifies himself as a licensed veterinarian named Dr. ████████. DSC-MATE-4105's facial features include distinctive spots on his cheeks, a wide smile, and red clown eyes. DSC-MATE-4105's forehead is marked with a two-color band and he wears a pair of goggles on his forehead. DSC-MATE-4105 routinely dons a medical mask, which conceals his mouth.

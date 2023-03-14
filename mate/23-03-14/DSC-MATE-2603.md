@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2603
+Description: DSC-MATE-2603 appears to be a normal human male of average height and build, except for the red clown eyes and spots on his face. DSC-MATE-2603 always wears a gas mask and a red scarf, along with a gold earring in one ear and a goggle on his forehead.

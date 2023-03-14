@@ -1,0 +1,2 @@
+ID # : DSC-MATE-720
+Description: DSC-MATE-720 appears to be a male rabbit, approximately 2 feet tall, with a head adorned with a police cap and thick nerd glasses. DSC-MATE-720 is commonly seen wearing a silver chain pet collar around his neck and always carries a candy stick in his pocket.

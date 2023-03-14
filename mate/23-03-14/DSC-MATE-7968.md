@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7968
+Description: DSC-MATE-7968 appears to be a typical human male in his mid-thirties, standing at 1.8 meters tall and weighing approximately 85 kilograms. It is a real estate agent by profession, but possesses anomalous traits that make it unsuitable for regular human interaction.

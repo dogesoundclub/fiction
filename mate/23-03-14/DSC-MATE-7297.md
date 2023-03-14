@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7297
+Description: Subject 7297, also known as "Dr. Smiles," is a male human of average height and build. The subject's face is marked with numerous spots, which have been identified as freckles. Dr. Smiles wears normal glasses and his forehead is marked by a distinctive two-color band. The subject can often be seen wearing a jade earring and a silver chain around his neck. Additionally, Dr. Smiles is rarely seen without a cigarette.

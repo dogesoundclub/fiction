@@ -1,0 +1,2 @@
+ID # : DSC-MATE-916
+Description: DSC-MATE-916 is a human female of average height and build. It has a purple lip and wears a pair of normal glasses. Additionally, DSC-MATE-916 wears a jade earring, silver chain, and a normal gas mask. DSC-MATE-916 works as a banker and is capable of regular human functions.

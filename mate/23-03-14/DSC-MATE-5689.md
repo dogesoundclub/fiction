@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5689
+Description: DSC-MATE-5689 appears to be a female human in her mid-forties, with a strikingly unique appearance. Her face is adorned with orange stripes and a warm smile, with her eyes being a bright red, reminiscent of a clown. DSC-MATE-5689's head is adorned with rainbow festival attire, and her ears have an intricate jade earring.

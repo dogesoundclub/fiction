@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7654
+Description: 7654 is a humanoid entity appearing to be a middle-aged male of the human race. It stands at approximately 6 feet tall and weighs approximately 190 pounds. Its face displays orange stripes, a clown mouth, and eyes that are red with an unusual iris pattern, all of which are permanent and cannot be removed. The head is parted pink, and the entity has green cross earrings on both ears. While in public, it conceals its mouth with a medical mask.

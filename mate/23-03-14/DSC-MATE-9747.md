@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9747
+Description: DSC-MATE-9747 is a male anthropomorphic rabbit with an unknown origin. DSC-MATE-9747 wears a purple cap with a headset, a red victory band on the forehead accompanied by a jade earring, gold chain around neck, and frequently seen with a cigarette. The exact nature of the materials DSC-MATE-9747's clothing is made of is unknown, and any attempt to remove or acquire these artifacts must have O5 Council's approval.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9538
+Description: DSC-MATE-9538 is a male tiger approximately 2.5 meters in length and weighing approximately 250 kilograms. DSC-MATE-9538 possesses an unusual set of cybernetic enhancements, including VR jade LED eyes, a goggle attachment on its forehead, a blue bandana tied around its head, and a gold earring on its left ear. DSC-MATE-9538 also wears a silver chain around its neck and carries a whistle with it at all times.

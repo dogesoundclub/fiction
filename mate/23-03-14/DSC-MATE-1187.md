@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1187
+Description: Item 1187 is a male human of average height and weight, with noticeable spots on its face. The most distinctive feature is its perpetually cheerful smile, which makes it stand out in a crowd. It tends to wear a police cap on its head, and has a two-color band on its forehead.

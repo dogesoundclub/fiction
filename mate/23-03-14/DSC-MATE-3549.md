@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3549
+Description: Subject 3549 is a female human with a distinct complexion, featuring spots across her face, and bright red lips. Most notably, she possesses blue clown-like eyes that have proven to be unsettling to some. Subject 3549 has a singular silver chain accessory which she is often seen wearing.

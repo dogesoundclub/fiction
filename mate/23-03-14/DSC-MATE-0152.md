@@ -1,0 +1,2 @@
+ID # : DSC-MATE-152
+Description: DSC-MATE-152 appears to be a male Bengal tiger with unique physical traits. Their eyes resemble ski goggles, and they adorn a police cap on top of their head. They also have a red cross earring on each ear and two accessories. The first being a silver chain around their neck, and the second an LED gas mask covering their mouth and nose.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3505
+Description: DSC-MATE-3505 is a female human with purple lips and pig tails. It wears a medical mask and normal glasses that obstruct detailed observation of its face. DSC-MATE-3505 can often be seen wearing a red cross earring and carrying a silver chain on its person. DSC-MATE-3505's personality is that of a traditionalist with no-nonsense attitude, known to tell jokes and stories it has inherited through its family or community. 

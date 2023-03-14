@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4436
+Description: DSC-MATE-4436 is a human male identified by its unique features, including a mouth spot, VR Rainbow LED eyes, a retro cap, and a green cross earring. DSC-MATE-4436 carries two accessories at all times, a red scarf, and a candy stick.

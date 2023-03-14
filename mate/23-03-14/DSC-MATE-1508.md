@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1508
+Description: DSC-MATE-1508 is a female human, identified as a veterinarian. It is visually distinct due to the presence of multiple spots on its face, as well as a constant smile. Its eyes are bright red, and resemble that of a clown. DSC-MATE-1508's head is covered by a black hoodie, with a two-color band across its forehead.

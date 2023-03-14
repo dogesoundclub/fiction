@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3042
+Description: Item 3042 appears to be a humanoid robot that stands at 5'8" in height. Its face consists of a single green cyclops eye that rotates and scans its surroundings. A headset with LED is attached to the top of its head, and it is often seen wearing a silver chain necklace.

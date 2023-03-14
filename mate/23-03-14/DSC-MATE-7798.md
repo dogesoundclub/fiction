@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7798
+Description: Subject 7798 is a human female with distinctive spots on her face and a constant smile on her lips. The most striking feature of 7798, however, is her VR Rainbow LED eyes and the tiara on her head. The nature of her enhancements is currently unknown, but they are not deemed harmful to herself or others.

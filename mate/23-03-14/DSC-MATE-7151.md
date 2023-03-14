@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7151
+Description: DSC-MATE-7151 is a male human, identified as a security guard within the urban fantasy division. DSC-MATE-7151 stands at 6'1" with a muscular build, and is often seen wearing a police cap, green cross earring, gold chain, and a normal gas mask. DSC-MATE-7151's nerdy glasses give the appearance of a stereotypical nerd, which contrasts heavily with their strong physique.

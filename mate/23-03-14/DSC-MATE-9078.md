@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9078
+Description: DSC-MATE-9078 is a female human, identified as a car salesman by trade. They have spotted skin and wear normal glasses. They often have their hair styled in two pigtail braids and wear a two-color band on their forehead, as well as a pair of goggles placed atop their forehead. DSC-MATE-9078 can often be seen smoking cigarettes as a form of relaxation.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3476
+Description: DSC-MATE-3476 is a male human of average height and weight. His distinct facial features include orange stripes across his cheeks and a mouth permanently fixed in a frightened expression. His eyes have been replaced with ski goggles. DSC-MATE-3476 always wears a purple cap with a headset, and a single jade earring in his left ear. He is also frequently seen with a gold chain around his neck.

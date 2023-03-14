@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4890
+Description: 4890 is a robotic humanoid with a green cyclops eye and a frightened-mouth facial feature. Its LED eyes emit a distinct jade hue. 4890's head is covered by a hoodie, and it wears a red scarf around its neck. It carries a whistle as an accessory on its person, and is aged at approximately 8 years.

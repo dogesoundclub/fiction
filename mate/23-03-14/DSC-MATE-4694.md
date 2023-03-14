@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4694
+Description: DSC-MATE-4694 is a humanoid entity identified as a farmer. Subject displays average human physical characteristics, with the exception of the addition of nerd glasses and goggles on the forehead, as well as a jade earring on the right ear. DSC-MATE-4694's primary anomalous trait is its exceptional brainstorming abilities. The subject displays a constant need to come up with new and creative ideas, often at a rapid pace.

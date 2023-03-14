@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3586
+Description: DSC-MATE-3586 is a humanoid entity with orange stripes on their face and a pink rabbit head. They have red cross earrings and a choker around their neck. Their eyes are VR Jade LED and they often are seen with a cigarette in their hand. They have the physical appearance of a female human.

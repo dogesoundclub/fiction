@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6869
+Description: DSC-MATE-6869 appears to be a male human in his mid-30s, of average height and build. DSC-MATE-6869's most distinctive feature is a large, circular spot located near the corner of his mouth. This is commonly referred to as a "mouth spot." Additionally, DSC-MATE-6869 is frequently seen wearing a red beanie on his head, as well as a jade earring in his left ear. Other notable accessories worn by DSC-MATE-6869 include a silver chain and a candy stick.

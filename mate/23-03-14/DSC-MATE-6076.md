@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6076
+Description: DSC-MATE-6076 appears to be a male robot with a frightened mouth and wears a pair of nerd glasses. Its head is not arranged and is green in color. DSC-MATE-6076 also wears a jade earring and a red scarf, as well as an LED gas mask. On its forehead, DSC-MATE-6076 has a pair of goggles.

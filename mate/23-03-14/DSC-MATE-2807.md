@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2807
+Description: Subject 2807 is a female human with spots on her face, purple lips, and red clown eyes. Her head is a distinct shade of green with two color bands on her forehead and goggles resting on top of them. She has red cross earrings and wears a choker necklace. Subject 2807 is fond of smoking and is rarely seen without a cigarette. It is advised that no one consume the smoke produced by the cigarette as it may contain memetic agents that can have adverse effects on the human mind.

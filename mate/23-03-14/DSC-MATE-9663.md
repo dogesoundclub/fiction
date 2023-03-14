@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9663
+Description: Subject 9663 is a male human with distinct physical features. He has a unique mouth spot located on his lower lip, which may serve as a marker for identification purposes. The subject also has green hair, which is often covered by a purple cap. Additionally, the subject is often seen wearing a gold earring, gold chain, and carrying a candy stick.

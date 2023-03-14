@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6453
+Description: DSC-MATE-6453 appears to be a male Human Hollywood News Anchor. Their face features a distinctive mouth spot and an unnaturally wide smile. His eyes resemble ski goggles, and he is often seen wearing a red beanie and gold earring. DSC-MATE-6453 frequently carries a candy stick.

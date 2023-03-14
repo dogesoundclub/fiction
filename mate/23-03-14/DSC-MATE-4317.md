@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4317
+Description: DSC-MATE-4317 is a human male who goes by the name [REDACTED]. DSC-MATE-4317 is a fast food worker and appears to be an ordinary human male wearing a retro cap on his head with a red victory band around his forehead. DSC-MATE-4317's ears are adorned with a jade earring and he wears a silver chain around his neck. DSC-MATE-4317 is often seen with a candy stick in his mouth.

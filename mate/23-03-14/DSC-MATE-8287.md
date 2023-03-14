@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8287
+Description: Subject 8287, a male human with a striking head of mohawk, displays an abnormal set of blue clown eyes and a noticeable spot on his mouth which catches the attention of anyone who makes eye contact with him. His jade earring and silver chain complement his unusual appearance, but it is his infectious smile that disarms most individuals. Despite his profession as a lawyer, Subject 8287's impulsiveness can sometimes lead him astray, often making decisions on emotions without considering the consequences.

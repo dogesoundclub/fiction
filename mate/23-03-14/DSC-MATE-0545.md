@@ -1,0 +1,2 @@
+ID # : DSC-MATE-545
+Description: DSC-MATE-545 is a male rabbit, standing at 15 centimeters in height and weighing approximately 500 grams. The rabbit's most notable feature is its red clown eyes, which emit an eerie glow in low light conditions. DSC-MATE-545's fur is primarily white, with a green tuft of hair protruding from the rabbit's purple cap, complemented by jade earring.

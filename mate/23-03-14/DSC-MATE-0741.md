@@ -1,0 +1,2 @@
+ID # : DSC-MATE-741
+Description: DSC-MATE-741 is a human female police officer with distinct purple markings on her face, including a large spot on her left cheek and purple lip coloration. DSC-MATE-741's eyes require corrective lenses in the form of normal glasses. DSC-MATE-741's communication headset is always visible under her cap.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-842
+Description: DSC-MATE-842 has displayed the ability to manipulate the emotions of those around it through a form of unexplained telepathy. Those who come into contact with DSC-MATE-842 report feeling overwhelmingly happy and willing to do almost anything for the rabbit, leading to instances of staff attempting to release the DSC from containment.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6017
+Description: DSC-MATE-6017 is a human female of Caribbean descent, born in Trinidad and Tobago in 1986. The defining feature of DSC-MATE-6017 is the presence of bright orange stripes on her face, which run from her forehead to her cheekbones. Her eyebrows are also orange, and her head and ears have an orange hue to them. DSC-MATE-6017 has a gold earring and often wears a gold chain around her neck.

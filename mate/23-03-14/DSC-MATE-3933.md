@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3933
+Description: 3933 is a  male electrician of average height and build. The subject is easily recognizable by their blue clown eyes, short peak cap and an earring shaped like a green cross. Additionally, 3933 wears a gold chain around their neck, and has a two color band on their forehead.

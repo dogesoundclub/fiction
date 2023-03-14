@@ -1,0 +1,2 @@
+ID # : DSC-MATE-657
+Description: The Mechanic is a male Tiger of average size and weight. His eyes are currently unknown due to the use of medical masks to prevent his bites and scratches. He sports a green jade earring in his left ear and is often seen wearing a red scarf around his neck. Despite his fierce appearance, The Mechanic is known to have a soft spot for sentimental moments in movies or TV shows, as well as music and art that evoke strong feelings.

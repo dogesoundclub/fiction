@@ -1,0 +1,2 @@
+ID # : DSC-MATE-120
+Description: DSC-MATE-120 is a human male, standing at 1.86 meters in height and weighing approximately 86 kilograms.DSC-MATE-120 has an unusual feature on their mouth in the form of a small spot that is visible when they speak. Additionally, their mouth takes on a look of fear even in non-threatening scenarios, earning DSC-MATE-120 the nickname of "Frightened Mouth". Further inspection reveals a 2 color band on DSC-MATE-120's forehead and gold earring on their left ear.

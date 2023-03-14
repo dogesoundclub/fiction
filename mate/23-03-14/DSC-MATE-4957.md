@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4957
+Description: DSC-MATE-4957 is a male tiger of undetermined age that has undergone a complete transformation into a humanoid form resembling a male human. Its height is approximately 1.8 meters and it weighs approximately 180 kilograms. DSC-MATE-4957 has green hair in a purple cap, wears horned rim glasses, and commonly wears a red scarf. It also wears a jade earring and carries a whistle as an accessory.

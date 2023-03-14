@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6119
+Description: DSC-MATE-6119 is a male tiger wearing a bucket hat and a medical mask, with distinctive red clown eyes. The tiger displays an unusual physical trait in the form of a two-color band on its forehead, and a silver chain as an accessory.

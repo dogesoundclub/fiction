@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2265
+Description: DSC-MATE-2265 is a male human with a frightened expression on their mouth. The subject frequently wears a police cap and a jade earring, along with a gold chain and nerd glasses. DSC-MATE-2265 also possesses an LED gas mask, which they claim is a fashion statement.

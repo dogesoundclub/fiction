@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3931
+Description: Item 3931 is a human male who works as a delivery driver. They are approximately 185 cm tall and weigh around 80 kg. One of the most noticeable features of Item 3931 is the spots on their face, as well as the clown mouth. They also have blue clown eyes that seem to stare deep into the observer's soul, and they constantly wear a medical mask over their mouth. The subject is often seen wearing a retro cap, which covers their head and a pair of goggles, which are located on their forehead.

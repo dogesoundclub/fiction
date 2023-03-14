@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8871
+Description: Subject 8871 is a male rabbit of abnormal size and reddish fur. Their most notable feature is a pair of red clown eyes that are often mistaken for an exotic ocular condition. The subject's head is not arranged in the typical fashion for a rabbit, but rather appears as if someone has taken a toy and glued various pieces together.

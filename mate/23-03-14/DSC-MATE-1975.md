@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1975
+Description: DSC-MATE-1975 is a human female, approximately 32 years of age. Physical traits of note include short black hair, glasses, and a red cross earring on their left ear. DSC-MATE-1975 is often seen wearing a black choker.

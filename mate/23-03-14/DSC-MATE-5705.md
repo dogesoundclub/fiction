@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5705
+Description: DSC-MATE-5705 is a male human police officer, identified by the orange stripes on his face and peak spike on his head. He is often seen wearing nerd glasses, and frequently carries a cigarette. DSC-MATE-5705 has a frightened expression on his mouth, which belies his penchant for spontaneous activities.

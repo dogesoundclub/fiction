@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7611
+Description: 7611 is a male lawyer robot with a distinctive green cyclops eye. The subject wears a short peak cap and a jade earring as its ears. Additionally, 7611 adorns itself with a gold chain and a normal gas mask. Its mechanical body is intricately designed with a sleek black and silver finish.

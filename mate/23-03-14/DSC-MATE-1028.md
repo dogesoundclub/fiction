@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1028
+Description: DSC-MATE-1028 is a male human with a unique feature on his mouth, resembling a spot. The subject has replaced his eyes with Virtual Reality Jade LED technology, which allows him to see a digital overlay on his surroundings. DSC-MATE-1028 accessorizes his head with a hoodie and wears a red scarf and carries a candy stick at all times.

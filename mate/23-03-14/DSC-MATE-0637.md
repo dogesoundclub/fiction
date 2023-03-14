@@ -1,0 +1,2 @@
+ID # : DSC-MATE-637
+Description: Item 637 is a humanoid with distinctive facial features. The most notable feature is the orange stripes across their face, which they may use to intimidate others. The facial feature is complemented by a red lip, which adds to the overall intimidating quality of the item. Additionally, their red clown eyes are reminiscent of certain demon summoning rituals.

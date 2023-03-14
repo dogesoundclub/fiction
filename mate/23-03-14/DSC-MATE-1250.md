@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1250
+Description: DSC-MATE-1250 is a humanoid entity that identifies as a tiger. Its body is covered in orange and black fur, and it possesses red clown eyes that are able to see in the dark. DSC-MATE-1250 is always seen wearing a red beanie on its head, with a red cross earring on each ear. It also wears a gold chain around its neck and carries a whistle in its pocket. DSC-MATE-1250 is believed to have originated from an unknown alternate dimension.

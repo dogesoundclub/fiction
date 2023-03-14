@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9861
+Description: DSC-MATE-9861 is a female human, in her mid-30s with normal glasses and a headset with LED lights. DSC-MATE-9861 also wears a two-color band on their forehead and a gold chain around their neck. DSC-MATE-9861's most notable trait is her fondness for cigarettes, and always keeps one with her.

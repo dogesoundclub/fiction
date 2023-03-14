@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3718
+Description: DSC-MATE-3718 is a male rabbit of unknown origin. It appears to be a farmer, based on its attire and behavior. DSC-MATE-3718 wears a purple cap with green hair, which seems to be a distinguishing feature among its species. Additionally, the rabbit has two color bands on its forehead and a gold earring on each ear. It also wears a gold chain around its neck and carries a candy stick with it at all times.

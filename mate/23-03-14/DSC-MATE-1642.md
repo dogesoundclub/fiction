@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1642
+Description: DSC-MATE-1642 is a male rabbit with a frightened mouth and unknown eyes. Its head is adorned with a purple cap and a headset, while its ears are pierced with a gold earring. DSC-MATE-1642 is often seen wearing a gold chain around its neck as an accessory.

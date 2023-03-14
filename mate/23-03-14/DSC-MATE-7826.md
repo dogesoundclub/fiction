@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7826
+Description: DSC-MATE-7826 is a fashion designer with a unique style, often sporting a retro cap and a green cross earring in one ear. Their most notable feature is their bright red lipstick and orange eyebrows that are highly visible against their pale skin.  DSC-MATE-7826 can often be seen wearing a medical mask over their mouth, which they claim is due to allergies but this has yet to be confirmed.

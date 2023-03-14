@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4480
+Description: DSC-MATE-4480 appears as a male rabbit, standing at approximately 0.6 meters in height. Its fur is a shade of green, appearing disheveled and unbrushed. The eyes of DSC-MATE-4480 are obscured by horned rim glasses, while a single golden earring is visible on the left ear.

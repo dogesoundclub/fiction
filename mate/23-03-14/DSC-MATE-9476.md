@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9476
+Description: DSC-MATE-9476 is a human male with striking orange stripes on his face. The subject has red clown eyes and wears a monk's head. DSC-MATE-9476 also has a gold earring and wears a red scarf along with a normal gas mask.

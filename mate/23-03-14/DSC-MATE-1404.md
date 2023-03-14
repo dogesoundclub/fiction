@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1404
+Description: Subject 1404 is a male tiger humanoid, standing at 6'3" with an athletic build. His physical appearance includes red clown eyes, a red beanie, and a red cross earring. He also wears a gold chain around his neck. The subject's most distinctive feature is the LED gas mask, which emits a constant humming sound and illuminates his surroundings in a green hue. Despite the mask's appearance, there is no gas being emitted.

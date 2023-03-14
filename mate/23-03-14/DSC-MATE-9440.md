@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9440
+Description: Subject 9440 is a human male with a distinctive mark located on the lower left side of his mouth, referred to as a "mouth spot." In addition, he is always seen wearing a headset with an illuminated diode, the purpose of which is currently unclear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6529
+Description: Item 6529 appears to be a male European rabbit with the physical ability of speech and wearing human clothing. The item is often seen wearing a bucket hat, a pair of horn-rimmed glasses, a jade earring, a gold chain, and carrying a whistle. Although the item appears to possess normal rabbit characteristics, its intellect and communication skills exceed that of its species. Item 6529 has identified itself as a politician and has exhibited knowledge of governmental procedures and policies. 

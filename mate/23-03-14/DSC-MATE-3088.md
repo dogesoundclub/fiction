@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3088
+Description: DSC-MATE-3088 appears to be a female human farmer with distinctive spots on her face and a smile that rarely fades. She has green hair that is often styled in a braid and wears a purple cap over it. Her choker is an intricate design made of silver and emerald.

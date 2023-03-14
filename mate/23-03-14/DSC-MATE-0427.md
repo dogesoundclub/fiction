@@ -1,0 +1,2 @@
+ID # : DSC-MATE-427
+Description: DSC-MATE-427 is a male human identified as a news anchor by occupation. He has orange stripes on his cheeks, a constant smile, and red clown eyes. DSC-MATE-427 wears a red beanie with a 2 color band on his forehead and a green cross earring that is ever present on his ears. He wears a medical mask that covers his mouth at all times.

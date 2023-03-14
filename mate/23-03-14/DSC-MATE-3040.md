@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3040
+Description: DSC-MATE-3040 is a male human of average height and weight, and sports several distinctive features. His skin is marked with numerous spots, and he wears a pair of thick-framed nerd glasses over his eyes. He is often seen wearing a short peak cap on his head, and goggles on his forehead. He also wears a gold earring in one ear, and a red scarf around his neck. DSC-MATE-3040 is frequently seen smoking a cigarette.

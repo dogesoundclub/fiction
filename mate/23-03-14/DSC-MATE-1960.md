@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1960
+Description: DSC-MATE-1960 is a male monkey, standing approximately 0.9 meters tall and weighing approximately 20 kilograms. DSC-MATE-1960 is non-anomalous in appearance, except for the following items of clothing and accessories: a bucket hat present on its head, jade earring wearing on its ears, and a gold chain draped around its neck.

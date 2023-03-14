@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3060
+Description: DSC-MATE-3060 is a sentient, male Monkey of the Macaca fuscata species, standing at approximately 1.2 meters tall. The subject possesses a human-like language capacity and has demonstrated a level of intelligence comparable to that of a human with an IQ of 110.

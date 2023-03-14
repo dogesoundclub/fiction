@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9641
+Description: DSC-MATE-9641 is a juvenile male tiger in its early twenties, standing at 6'2" and weighing approximately 200 kg. DSC-MATE-9641 has been genetically modified to possess humanoid characteristics, including opposable thumbs, the ability to stand upright, and human-level intelligence. DSC-MATE-9641 has demonstrated the ability to communicate verbally in multiple languages, including English, Mandarin, and Spanish, and is currently employed as a programmer at [REDACTED].

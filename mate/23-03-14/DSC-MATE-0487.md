@@ -1,0 +1,2 @@
+ID # : DSC-MATE-487
+Description: Subject 487 appears to be a female human of average height and weight, with no outwardly abnormal features. However, closer inspection shows that its face is adorned with orange stripes and its eyes glow with a rainbow of LED lights that resemble a virtual reality headset. Its head appears to be that of a pink rabbit, complete with floppy ears that bear a red cross earring. Most strikingly, Subject 487 consistently wears a choker with an unknown symbol etched into it.

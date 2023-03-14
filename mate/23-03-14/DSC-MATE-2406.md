@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2406
+Description: DSC-MATE-2406 is a male simian genetically resembling a type of monkey (Papio hamadryas). The subject is observed wearing a "Doge" hat and shaded glasses. DSC-MATE-2406's atypical appearance is further accentuated with the addition of a cigarette, which it appears to smoke consistently.

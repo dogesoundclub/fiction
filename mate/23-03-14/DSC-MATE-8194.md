@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8194
+Description: DSC-MATE-8194 is a male rabbit measuring approximately 1.2 meters in height. It is outfitted with a blue bandana and a pair of nerdy glasses, giving it an intellectual appearance. DSC-MATE-8194 also sports a gold earring and is frequently seen with a cigarette in its mouth.

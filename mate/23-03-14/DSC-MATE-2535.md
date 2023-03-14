@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2535
+Description: DSC-MATE-2535 appears to be a male rabbit, standing at approximately 1 meter tall when measured from head to toe. Its face features a frightened mouth, which often twitches in nervousness. DSC-MATE-2535's eyes are replaced with VR jade LED screens, providing it with enhanced visual capabilities. DSC-MATE-2535 is often seen wearing a purple cap with a headset, which allows it to communicate with its subordinates.

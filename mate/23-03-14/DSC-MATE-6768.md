@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6768
+Description: DSC-MATE-6768 is a male human approximately 27 years of age. The most distinctive feature of DSC-MATE-6768 is the orange stripes on its face. DSC-MATE-6768 possesses ski goggle eyes and a green cross earring in each ear. DSC-MATE-6768 is often seen wearing a police cap on its head and has a goggle on its forehead. DSC-MATE-6768 frequently wears a gold chain and smokes cigarettes.

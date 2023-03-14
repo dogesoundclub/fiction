@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9020
+Description: DSC-MATE-9020 appears to be a male tiger, approximately 2.5 meters in length and standing at approximately 1.2 meters at the shoulder. The subject's distinct feature is a pair of ski goggles that function as eyes. The tiger also has a green head with the goggles arranged on its forehead. DSC-MATE-9020 is often seen wearing a red scarf and smoking a cigarette. Additionally, DSC-MATE-9020 has an earring made of jade. 

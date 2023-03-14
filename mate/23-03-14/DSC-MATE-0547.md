@@ -1,0 +1,2 @@
+ID # : DSC-MATE-547
+Description: DSC-MATE-547 is a humanoid creature with orange stripes on its face and a metal purple head. DSC-MATE-547's forehead features a pair of goggles, and it wears a medical mask over its mouth. Furthermore, DSC-MATE-547 is known to wear a red scarf.

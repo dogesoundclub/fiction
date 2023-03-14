@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6751
+Description: DSC-MATE-6751 is a female human with distinctive physical features. Notably, DSC-MATE-6751 has bright orange stripes on its face, complemented by a red lip. Its blonde hair is often seen worn in an ushanka, with a two-color band on the forehead. It also wears a red cross earring.

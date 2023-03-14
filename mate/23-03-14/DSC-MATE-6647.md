@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6647
+Description: DSC-MATE-6647 is a female humanoid entity who identifies herself as a banker. DSC-MATE-6647 possesses unique facial features, including multiple spots on the face and purple lips, as well as blue clown eyes. DSC-MATE-6647 is typically seen wearing a purple cap with a headset, which covers the forehead's distinctive feature—the two-color band.

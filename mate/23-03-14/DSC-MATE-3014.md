@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3014
+Description: DSC-MATE-3014 is a male humanoid with green layers on its head, blue clown eyes, and a clown mouth. DSC-MATE-3014's ears have a gold earring. DSC-MATE-3014's physical attributes are similar to that of a typical human, except for its facial features. The subject has displayed no anomalous physical properties. The anomalous property of DSC-MATE-3014 lies in its psychological traits.

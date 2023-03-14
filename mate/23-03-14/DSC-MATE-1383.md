@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1383
+Description: Officer 1383 is a male tiger, standing six feet tall on two legs. His bright red clown eyes add to his intimidating appearance, as does his black hoodie which is always pulled up to resemble a tiger's head. He carries a red scarf and candy stick which he often twirls in his paws, and which can make him seem playful despite his fearsome appearance.

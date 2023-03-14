@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5277
+Description: Subject 5277, also known to his colleagues as "Dr. Bananas," is a 5'5" bipedal monkey species. It displays human-like intelligence and the ability to speak fluent English. It wears a blue bandana on its head and nerdy glasses on its eyes, giving it a unique appearance. The subject's ears host a gold earring on the right ear, with a silver chain hanging around its neck. Most notably, it wears an LED gas mask to aid in breathing outside its natural environment, as well as to obscure its identity.

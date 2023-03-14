@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9670
+Description: Subject 9670 is a human male, identified as a theater manager by profession. The subject presents with distinct physical characteristics such as orange stripes on the face and a prominent smile. The eyes possess a distinct ski goggle-like appearance. The subject also sports a mohawk hairstyle and a medical mask covering the mouth in public.

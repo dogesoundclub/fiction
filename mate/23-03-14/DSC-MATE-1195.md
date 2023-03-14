@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1195
+Description: DSC-MATE-1195 is a human female with orange stripes on her face and pigtail hair. She wears jade earrings that glow in the dark. DSC-MATE-1195 has a vivid imagination and loves to indulge in creative hobbies, such as writing poetry, creating cosplay costumes, or collecting unusual objects.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5013
+Description: DSC-MATE-5013 is a male news anchor robot who stands at approximately 1.8 meters in height. DSC-MATE-5013 is highly distinctive in appearance, with a green cyclops eye and a frightened mouth. DSC-MATE-5013's uniqueness is further amplified by its purple cap with a headset on its head, and its jade earring.

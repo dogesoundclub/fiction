@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6176
+Description: DSC-MATE-6176 appears to be a humanoid rabbit, standing at 1.2 m. with large, floppy ears and a distinctive gold earring. DSC-MATE-6176 is typically seen wearing a top hat with the face of a dog inscribed on it, which it insists is a symbol of power and status. Further analysis of its outfit reveals an LED gas mask covering its face, presumably to protect it from harmful particles in the air.

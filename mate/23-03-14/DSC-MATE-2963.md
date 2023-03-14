@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2963
+Description: DSC-MATE-2963 is a humanoid entity of the female sex, identified as a banker in a major bank in [REDACTED]. Subject features orange stripes along her forehead and purple lips. DSC-MATE-2963’s eyes are fitted with normal glasses. DSC-MATE-2963's head displays a 90’s-style brown hair while wearing a red cross earring on her right ear. DSC-MATE-2963's mouth is consistently covered by a medical mask.

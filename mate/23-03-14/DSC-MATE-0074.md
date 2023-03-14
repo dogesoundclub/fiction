@@ -1,0 +1,2 @@
+ID # : DSC-MATE-74
+Description: DSC-MATE-74 is a humanoid fashion designer of the female gender. DSC-MATE-74 displays a distinct appearance, with a pink rabbit head and jade earring ears. DSC-MATE-74’s face features are red lip and spots. DSC-MATE-74 is capable of speech, is fluent in English, and exhibits human-like behavior with exception to its physical appearance. DSC-MATE-74 has shown no unusual strength or abilities. DSC-MATE-74 displays a personality trait of being outgoing and social, which may lead them to behave in an overly friendly or attention-seeking manner.

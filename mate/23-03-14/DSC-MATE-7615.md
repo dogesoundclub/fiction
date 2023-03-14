@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7615
+Description: DSC-MATE-7615 is a male human of average height and build, with orange stripes on their face that resemble tiger stripes. The subject appears to be in their mid-30s and wears a red beanie on their head at all times. The subject's face also has a frightened mouth expression and VR jade LED eyes. DSC-MATE-7615 has a goggle attached to their forehead and a green cross earring on their left earlobe. The subject is always seen wearing a silver chain around their neck.

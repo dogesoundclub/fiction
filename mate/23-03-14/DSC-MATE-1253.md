@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1253
+Description: DSC-MATE-1253 is a male tiger, sporting blue clown eyes and a blue bandana on its head. Its left ear is pierced with a jade earring and its mouth is always covered by a medical mask. DSC-MATE-1253 is known to possess an anomalous ability to control and manipulate flames, making it an extremely useful asset to the Foundation in cases of fire-based anomalies.

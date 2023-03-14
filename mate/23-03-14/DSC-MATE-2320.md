@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2320
+Description: DSC-MATE-2320 is a humanoid male of the Homosapien species, standing at 5’11’’ with a slender build. It has a distinctive mouth spot on the upper lip and tends to display a frequent smile, revealing its straight and white teeth. DSC-MATE-2320's eyes are shielded by a pair of nerd glasses, which serve no apparent anomalous functions but are simply used for vision correction.

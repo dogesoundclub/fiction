@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6349
+Description: DSC-MATE-6349 is a male monkey of the species Macaca nigra, measuring approximately 1 meter in height and weighing 25 kg. DSC-MATE-6349's most distinguishing features are the horned rim glasses which it wears over its small black eyes and the doge hat it constantly dons upon its head. DSC-MATE-6349 further accessorizes with a red scarf and candy stick.

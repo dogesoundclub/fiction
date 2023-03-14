@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9606
+Description: DSC-MATE-9606 is a male Rabbit beautician, standing tall at 1.5 ft (0.46 m) and weighing approximately 5 lbs (2.27 kg). They have VR Rainbow LED eyes and wear a blue bandana on their head, with a goggle on their forehead. DSC-MATE-9606 has a gold earring on their left ear and wears a gold chain around their neck. They often carry a candy stick with them, which they use as a pacifier for stress relief.

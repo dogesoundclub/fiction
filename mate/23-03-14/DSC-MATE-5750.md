@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5750
+Description: DSC-MATE-5750 is a human male who stands at 1.8 meters. Facial features for DSC-MATE-5750 include orange stripes and a friendly smile. DSC-MATE-5750 wears normal prescription glasses and a red beanie on its head. DSC-MATE-5750 is seen wearing a gold chain around its neck. 

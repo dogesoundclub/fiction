@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1266
+Description: DSC-MATE-1266 appears to be a monkey of currently unknown species, standing approximately 0.9 meters in height. They possess red clown eyes that emit a faint glow, even in complete darkness. DSC-MATE-1266's head is covered by a hooded sweatshirt, which appears to be their possession of choice. DSC-MATE-1266 is also known to carry a whistle, which they use for communication as well as for its perceived entertainment value.

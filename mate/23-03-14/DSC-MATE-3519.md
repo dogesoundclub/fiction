@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3519
+Description: DSC-MATE-3519 is a human male identified as an electrician. It stands at 6 feet tall and weighs approximately 170 pounds. DSC-MATE-3519's facial features include a frightened mouth and ski goggle-like eyes. Its forehead consists of a peak spike and gold earrings are present on both ears. DSC-MATE-3519 is also known to wear a red scarf around its neck.

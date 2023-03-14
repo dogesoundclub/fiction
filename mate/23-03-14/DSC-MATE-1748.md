@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1748
+Description: Subject 1748 is a male monkey of an unknown species that stands approximately 3 feet tall. He wears distinctive red beanie with a two-color band on his forehead, sporty nerd glasses, and accessorizes with a silver chain necklace and a candy stick. Despite his animalistic appearance, 1748 is highly intelligent and can communicate with human beings through sign language.

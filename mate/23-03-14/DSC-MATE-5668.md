@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5668
+Description: DSC-MATE-5668 is a male tiger that exhibits remarkable human-like traits and mannerisms. DSC-MATE-5668 presents a frightened appearance with a constantly agape mouth, and he is often observed wearing horn-rimmed glasses to aid in his visualization ability. DSC-MATE-5668 often displays a blue bandana tied around his head and a jade earring affixed to his left ear. In addition to a gold chain around his neck, DSC-MATE-5668 frequently carries a candy stick which provides him with a sense of happiness and calmness.

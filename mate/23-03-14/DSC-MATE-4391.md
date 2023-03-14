@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4391
+Description: Item #4391 is a female human identified as a firefighter working in the city. The subject appears to be in her early twenties and has a head resembling that of a 00s school girl. Her eyes are covered by normal glasses, and her ears have a red cross earring. 

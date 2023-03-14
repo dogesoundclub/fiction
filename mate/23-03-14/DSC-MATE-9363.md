@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9363
+Description: 9363 is a human male of average height, with a distinct green layered hairdo. The subject's face features a prominent mouth spot, and their eyes are often concealed behind prescription glasses.

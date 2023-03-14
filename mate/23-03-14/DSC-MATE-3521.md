@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3521
+Description: Subject 3521 is a human male with orange stripes on their face, and a permanent smile. The eyes of the subject resemble ski goggles, and they have green hair in a purple cap. They often wear a red scarf as an accessory. Subject 3521's profession is that of a beautician, primarily practicing hair and nail styling.

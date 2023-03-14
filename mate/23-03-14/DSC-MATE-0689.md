@@ -1,0 +1,2 @@
+ID # : DSC-MATE-689
+Description: DSC-MATE-689 appears to be a female human with purple lips, orange eyebrows, and a purple cap with a headset. She has a 2-color band on her forehead, red cross earrings, and wears a medical mask. DSC-MATE-689 also wears a choker as an accessory. Her personality is strong and decisive, making her come across as bossy or intimidating. This behavior is due to her Mafia boss occupation.

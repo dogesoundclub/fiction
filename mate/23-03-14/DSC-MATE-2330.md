@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2330
+Description: DSC-MATE-2330 is a female human with distinctive spots on their face and red lips. They wear normal glasses and have pigtail hairstyles on the head. DSC-MATE-2330 has a two-color band feature on their forehead, and they wear gold earrings and chains as accessories. The subject works as a news anchor, primarily focusing on paranormal and urban fantasy news stories.

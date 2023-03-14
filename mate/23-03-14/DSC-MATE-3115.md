@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3115
+Description: DSC-MATE-3115 is a robotic entity that resembles a humanoid farmer. It stands at approximately 1.8 meters in height and weighs approximately 250 kilograms. DSC-MATE-3115’s exterior is primarily composed of an unknown metal alloy reinforced with plating plates, giving it a sturdy and durable structure. 

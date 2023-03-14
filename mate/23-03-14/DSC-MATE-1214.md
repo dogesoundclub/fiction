@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1214
+Description: Item 1214 is a humanoid robot designed to mimic the appearance of a middle-aged human male. It stands at approximately six feet tall and wears a normal gas mask over its face. Its head is not arranged green, and it sports a green cyclops eye that glows in the dark.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1704
+Description: DSC-MATE-1704 is a male anthropomorphic rabbit with an average height of six feet. They have a pair of nerd glasses that matches their police cap. DSC-MATE-1704's physical attributes are non-anomalous. However, the gas mask that they always carry around seems to emit some kind of frequency that causes distress to biological beings. Test subjects that were exposed to DSC-MATE-1704's gas mask demonstrated extreme irritability and anxiety.

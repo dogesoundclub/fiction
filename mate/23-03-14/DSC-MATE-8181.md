@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8181
+Description: DSC-MATE-8181 is a human male, standing at 5'11". DSC-MATE-8181 has a distinctive mark on their mouth, resembling a spot. DSC-MATE-8181 has noticeable ski goggle eyes, often wearing a blue bandana around their head and a jade earring on their left ear.

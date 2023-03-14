@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9277
+Description: Subject 9277 is a male member of the Homo sapiens species. The subject's face features orange stripes, and they have blue clown eyes. The subject's head is perpetually covered in unkempt green hair, and they sport a gold earring in one ear. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6214
+Description: Officer 6214 is a robotic police officer, standing at approximately 6 feet tall. He has a frightened expression on his mouth and wears horned rim glasses over his eyes. His purple cap has a headset attached, and he has a pair of goggles on his forehead. Officer 6214 accessorizes with a red scarf.

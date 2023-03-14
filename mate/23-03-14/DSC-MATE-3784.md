@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3784
+Description: Subject 3784 appears as a middle-aged human male with a mouth spot and nerd glasses. His head is not arranged green, and he has a two-color band on his forehead, along with goggles. He wears a medical mask and a silver chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1097
+Description: DSC-MATE-1097 is a female human, approximately 28 years of age, with distinctive blue clown eyes and a perpetual smile. DSC-MATE-1097 displays numerous cosmetic modifications, including a tiara, dual-colored forehead band, a silver chain, and a single jade earring.

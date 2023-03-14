@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5531
+Description: Subject 5531 appears to be a young human female with distinctive features. Her face is adorned with spots and a purple lip, but it is her eyes that truly stand out - they are a bright red clown-like color that may be associated with a potential cognitohazardous effect. Her clothing and hairstyle give her the appearance of a 00s school girl, and she wears a red cross earring as well as a silver chain.

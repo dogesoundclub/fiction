@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2070
+Description: DSC-MATE-2070 is a male humanoid with a frightened mouth and blue clown eyes. The subject's head is covered with green hair in a purple cap, with a goggle on his forehead. DSC-MATE-2070 is always seen wearing a red scarf, and a green cross earring on each ear.

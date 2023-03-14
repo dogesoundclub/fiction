@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5573
+Description: 5573 is a male humanoid of average height, weighing around 186 pounds. His eyes are unremarkable, except for the presence of normal glasses present on his person at all times. 5573's head is covered in a thick, green layer of unknown substance, resembling moss. His mouth is concealed by a standard medical mask, which he wears regularly.

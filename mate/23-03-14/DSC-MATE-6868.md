@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6868
+Description: DSC-MATE-6868 is a humanoid entity, appearing to be a human male of average height and build. Its most notable features are its blue clown eyes and a spot on its mouth. DSC-MATE-6868's head hair is pink and parted. A pair of goggles are worn on its forehead, and it has a gold earring in one ear. Its face is covered by a medical mask, and it wears a red scarf around its neck.

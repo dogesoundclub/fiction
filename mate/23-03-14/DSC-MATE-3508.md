@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3508
+Description: DSC-MATE-3508 is a male tiger with a natural talent in beauty and grooming services. It possesses a unique style, with a 2-colored band on its forehead, glasses, Doge hat, and gold earring. DSC-MATE-3508 often smokes a cigarette when offered one, but shows no signs of addiction or dependency.

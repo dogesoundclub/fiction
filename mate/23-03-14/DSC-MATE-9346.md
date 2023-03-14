@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9346
+Description: DSC-MATE-9346 is a male tiger of unknown origin. The subject stands at 2 meters in height and weighs approximately 250 kg. DSC-MATE-9346 displays remarkable intelligence and possesses the ability to speak fluently in multiple languages.

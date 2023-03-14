@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5557
+Description: Subject 5557 is a male tiger, measuring approximately 9 feet in length and weighing 600 pounds. The subject's physical appearance is unique and flamboyant, with a purple cap donning a headset, jade earrings, a red scarf, and a two-color band on the forehead. The subject's eyes are concealed behind a pair of normal glasses. Additionally, the subject carries a whistle which it uses for communication.

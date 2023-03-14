@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6254
+Description: DSC-MATE-6254 is a male tiger of the Indochinese subspecies. Unknown origins, credentials have been forged proof of being a licensed veterinarian. DSC-MATE-6254 stands at 210 cm and weighs approximately 338 kg.

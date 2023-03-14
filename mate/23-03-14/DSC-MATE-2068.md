@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2068
+Description: DSC-MATE-2068 appears to be a normal human male of Hispanic descent, about 35 to 40 years of age. It is currently employed as a police officer, assigned to a precinct in the city of [REDACTED]. DSC-MATE-2068's anomalous properties manifest in its facial features - specifically, a large, circular spot on its upper lip, and oversized clown-like blue eyes which appear to be permanently fixed in a wide, toothy smile. DSC-MATE-2068 is also frequently seen wearing a short peak cap and a gold chain. 

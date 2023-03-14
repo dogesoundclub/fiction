@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3301
+Description: Upon initial inspection, 3301 appears to be a human female who works as a car salesman. However, closer inspection reveals several anomalous features that set 3301 apart from other humans. The most prominent feature is the bright orange stripes that adorn their face, and their eyes resemble orange eyebrows. Additionally, 3301's head is that of a pink rabbit, and they wear a red cross earring on their right ear. Their mouth is almost always concealed by a medical mask.

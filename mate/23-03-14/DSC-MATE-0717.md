@@ -1,0 +1,2 @@
+ID # : DSC-MATE-717
+Description: DSC-MATE-717 is a female human that currently works as a banker. DSC-MATE-717's most notable features are the orange stripes on her face and her constant smile. DSC-MATE-717 often wears normal glasses and her head resembles that of a 00s school girl. She is also usually seen wearing one gold earring and a medical mask covering her mouth. DSC-MATE-717's gold chain is her only accessory.

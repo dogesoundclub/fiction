@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8853
+Description: DSC-MATE-8853 is a female human with distinctive physical features. She has red clown eyes, 90s brown hair, a pair of goggles resting on her forehead, and wears gold earrings, silver chains, and a cigarette. Her most notable feature is her purple lip.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3478
+Description: DSC-MATE-3478 is a female human specimen with unique features. Facial features include orange stripes on the cheeks and a red lip. DSC-MATE-3478 has VR Rainbow LED eyes, which changes colors when DSC-MATE-3478 displays different emotions. DSC-MATE-3478 has 90s brown hair, jade earrings, a medical mask, and silver chains around the neck. DSC-MATE-3478 serves as a banker of a major banking corporation in the Western United States.

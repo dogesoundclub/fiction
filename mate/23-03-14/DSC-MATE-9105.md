@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9105
+Description: DSC-MATE-9105 is a male tiger, standing approximately 2.2 meters tall and weighing approximately 220 kilograms. Their fur is a mixture of dark and light orange, with black stripes covering their entire body. DSC-MATE-9105 wears normal glasses and has a silver chain around their neck.

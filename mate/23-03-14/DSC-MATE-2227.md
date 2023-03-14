@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2227
+Description: DSC-MATE-2227 is a human female, 25 years of age, with distinct facial features. DSC-MATE-2227 has spots covering both cheeks and a red lip. The eyes are fitted with VR Rainbow LED contact lenses, further enhancing their distinct look. DSC-MATE-2227's head is adorned with a tiara and sports jade earrings on both ears. DSC-MATE-2227 is often seen smoking a cigarette and engaging in spontaneous decision-making.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7417
+Description: DSC-MATE-7417 is a male Bengal tiger, standing at approximately 2.5 meters in height and weighing roughly 450 kg. It wears normal glasses and a bucket hat on its head, while a silver chain hangs from its neck. Along with an earring, it’s forehead features unique two-color bands. Despite being a carnivorous species, DSC-MATE-7417 has displayed no signs of hostility or aggression towards its handlers.

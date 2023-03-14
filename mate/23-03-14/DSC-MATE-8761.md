@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8761
+Description: Subject 8761 is a human male, approximately 25 years of age, with a distinctive mouth spot and eyes that emit a jade LED light, resembling virtual reality. The subject often wears a blue bandana wrapped around their head and a green cross earring in their right ear.

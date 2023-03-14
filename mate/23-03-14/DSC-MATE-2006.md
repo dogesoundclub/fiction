@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2006
+Description: DSC-MATE-2006 is a humanoid robot that stands at 5'10" and weighs approximately 220lbs. Its appearance is that of a security guard, wearing a hoodie and a whistle around its neck. Its eyes are VR Jade LED giving it the ability to see in low light conditions. DSC-MATE-2006 has a dry sense of humor that often catches people off guard. Even if it doesn't consider itself the life of the party, it has a way of delivering deadpan jokes that can be surprisingly funny.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1941
+Description: Item 1941 is a young human female, aged approximately 24 years old, standing at 5'5" in height. Item 1941, also known as the "Delivery Driver," has spots on her face along with purple lips, VR jade LED eyes, and witch short hair. The subject wears a gas mask at all times, and is always seen wearing a silver chain necklace and green cross earring.

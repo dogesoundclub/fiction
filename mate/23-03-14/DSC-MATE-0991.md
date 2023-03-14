@@ -1,0 +1,2 @@
+ID # : DSC-MATE-991
+Description: Subject 991 is a female human with unique physical features. Their face is adorned with spots and a striking red lip, but what catches the attention most are their vibrant blue clown eyes. They wear a bucket hat atop their head and a red cross earring in each ear. In addition, they often conceal their mouth behind a medical mask and wear a silver chain as an accessory.

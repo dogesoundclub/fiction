@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7416
+Description: DSC-MATE-7416 is a male rabbit, standing 50 cm tall on their hind legs, with red clown eyes and a permanent frightened expression on their mouth. DSC-MATE-7416's head is covered with green hair and a purple cap, featuring a 2-color band on their forehead. DSC-MATE-7416 is always seen wearing a red scarf and a whistle around their neck.

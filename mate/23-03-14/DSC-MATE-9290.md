@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9290
+Description: DSC-MATE-9290 is a male tiger, standing at 6'4", with a proportionate build. They wear horn-rimmed glasses over their amber eyes and a classic police cap on their head. Their forehead features a distinctive red and white 2-color band.

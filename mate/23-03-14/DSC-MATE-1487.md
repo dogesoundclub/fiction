@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1487
+Description: DSC-MATE-1487 is a male human with a charismatic demeanor, serving as a prominent leader of a mafia organization. Its distinct features include blue clown eyes and a police cap, along with a green cross earring and a normal gas mask that it often dons during confrontations.

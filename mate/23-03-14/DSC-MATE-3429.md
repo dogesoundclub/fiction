@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3429
+Description: DSC-MATE-3429 is a male Tiger, standing at approximately 6 feet tall when on its hind legs. It has green hair in a purple cap, with a red victory band on its forehead, red cross earring on each ear, and horned rim glasses over its eyes. It also wears an LED gas mask at all times.

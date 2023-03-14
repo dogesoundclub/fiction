@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4500
+Description: DSC-MATE-4500 is a male humanoid with green, layered skin and numerous dark spots scattered throughout its body. The subject is often seen wearing a red scarf and a normal gas mask, though these items do not appear to be integral to its containment or health.

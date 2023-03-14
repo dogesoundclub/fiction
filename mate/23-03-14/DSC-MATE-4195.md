@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4195
+Description: DSC-MATE-4195 is a human female politician, identified by their two-color band on their forehead and gold earring on their ear. DSC-MATE-4195's most notable feature is their smile, which is often seen when they engage in conversation or public speaking. In addition, DSC-MATE-4195 is frequently seen smoking a cigarette, an accessory they seem to hold onto even when prohibited from doing so.

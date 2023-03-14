@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1129
+Description: DSC-MATE-1129 is a human male of average height with green layers covering his head. DSC-MATE-1129 has a unique feature in the form of a mouth spot, which appears to be a dark, circular marking on the left side of his mouth. DSC-MATE-1129 prominently wears a jade earring on his left ear and a silver chain around his neck. Additionally, DSC-MATE-1129 can often be seen with a candy stick in his mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9503
+Description: DSC-MATE-9503 is a monkey of the male sex, standing approximately 1.5m tall. DSC-MATE-9503 possesses a unique appearance, including wearing nerd glasses and a Doge hat on its head, and sporting a jade earring on each of its ears. Additionally, DSC-MATE-9503 wears a red scarf and is often seen carrying a candy stick as an accessory. DSC-MATE-9503 exhibits excellent communication skills and displays a personality that is outgoing and social, often seeking attention from those around him.

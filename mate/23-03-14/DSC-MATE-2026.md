@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2026
+Description: DSC-MATE-2026 is a male Siberian tiger, weighing approximately 250 kg, standing at 1.5 meters tall. DSC-MATE-2026 is distinguishable by its golden earring on its left ear and a silver chain around its neck. It wears a medical mask on its mouth, the reason for which is unknown. DSC-MATE-2026's eye color is unknown due to its refusal to open its eyes in the presence of Foundation personnel.

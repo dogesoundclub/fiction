@@ -1,0 +1,2 @@
+ID # : DSC-MATE-516
+Description: DSC-MATE-516 is a human female who works as a police officer. Their uniform consists of a purple cap with a headset and goggles on the forehead, jade earrings, and a silver chain. They also often carry a lit cigarette.

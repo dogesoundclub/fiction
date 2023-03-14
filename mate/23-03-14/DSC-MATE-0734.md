@@ -1,0 +1,2 @@
+ID # : DSC-MATE-734
+Description: DSC-MATE-734, also known as the "Reporter", appears to be a human female of average height and weight, with distinctive spots on her face, a purple lip, and orange eyebrows. She is known for wearing a silver chain as an accessory. DSC-MATE-734 has a natural charm and charisma that makes her immediately likable to most humans. This personality trait has led to her being used by the Foundation to gather information on anomalous events in the city.

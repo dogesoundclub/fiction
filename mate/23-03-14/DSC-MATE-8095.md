@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8095
+Description: DSC-MATE-8095 is a male human, identified as a lawyer, with a frightened expression constantly etched on his face. He wears a purple cap with a headset, a jade earring on his left ear, a red scarf around his neck and a normal gas mask that covers his nose and mouth. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3570
+Description: Subject 3570 is a human male in his mid-twenties with a sly smile always present on his face. He often wears a hooded sweatshirt, adorned with a two-color band on his forehead. In addition, he is regularly seen sporting a gold chain and candy stick as accessories. Despite his ordinary appearance, 3570 displays an extraordinary analytical and logical mind, often making witty observations and delivering ironic jokes in his trademark dry, deadpan manner.

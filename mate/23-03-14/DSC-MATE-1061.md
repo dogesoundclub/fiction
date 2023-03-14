@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1061
+Description: DSC-MATE-1061 appears to be a human female news anchor with several distinguishing features. The subject has a spotted facial pattern, and their hair is dyed orange on one side. DSC-MATE-1061 also wears a red cross earring on their left ear and normal glasses.

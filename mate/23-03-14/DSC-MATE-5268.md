@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5268
+Description: Item #5268 is a human female of average height with short flowing black hair, adorned with a gold earring in each ear. The eyes of #5268 are of a unique VR jade LED color. They draw attention when surrounded by natural light that glows like an evergreen forest in a foggy night. 

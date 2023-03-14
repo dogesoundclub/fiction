@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8664
+Description: Subject 8664 is a human male, known to be a high-ranking member of the mafia. The subject has several distinct physical features, including a large spot on his mouth, eyes that resemble ski goggles, a red beanie on his head, and a green cross earring on each ear. During containment, the subject must wear a medical mask to prevent the spread of potential diseases.

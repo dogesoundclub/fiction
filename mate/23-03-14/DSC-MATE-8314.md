@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8314
+Description: DSC-MATE-8314 is a humanoid male of the Homo sapiens species with orange stripes painted on his face. Its height measures 1.8 meters, and its weight is 80 kilograms. DSC-MATE-8314 is a successful politician who is highly efficient and organized in his work, almost to the point of being controlling. This trait poses no harm to other persons, but it can lead to humorous situations in which DSC-MATE-8314 takes charge of group projects and tasks others in a strictly matter-of-fact way.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9936
+Description: Subject 9936 is a highly advanced robot designed to perform banking functions. It has a sleek, modern appearance and is able to communicate in a variety of languages. Subject 9936 possesses horned rim glasses for eyes and a jade earring in its left ear. It is often seen smoking a cigarette, despite not requiring any form of sustenance.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2025
+Description: DSC-MATE-2025 is a female human with distinctive orange stripes across her face and red clown eyes. She wears a red lip and a medical mask covering her mouth while on duty. Her head is adorned with rainbow festival colors, and she wears gold earrings and a silver chain as accessories.

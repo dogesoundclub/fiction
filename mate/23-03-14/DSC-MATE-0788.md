@@ -1,0 +1,2 @@
+ID # : DSC-MATE-788
+Description: DSC-MATE-788 is a human female, approximately in her mid-twenties, with orange stripes on her face, and red clown eyes. DSC-MATE-788 is commonly observed wearing rainbow festival headgear, red cross earrings, and a gold chain. DSC-MATE-788's personality is that of a strong-willed and independent individual, resistant to any kind of authority or rules deemed unnecessary. DSC-MATE-788 has displayed several instances of rebellious behavior such as sneaking out of her office early and taking unauthorized absences.

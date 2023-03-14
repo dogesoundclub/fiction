@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4789
+Description: DSC-MATE-4789 appears to be a human male, approximately 35-40 years of age, and identified as a real estate agent. DSC-MATE-4789 is distinguishable by its orange striped facial features and is commonly found wearing a short peak cap, a gold earring, ski goggle eyes, and a medical mask. Upon initial observation, DSC-MATE-4789's smile appears to be a permanent feature.

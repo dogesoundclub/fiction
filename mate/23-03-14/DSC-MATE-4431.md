@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4431
+Description: DSC-MATE-4431 is a male robot of unknown origin and design, with a primary function as a beautician. DSC-MATE-4431 stands at approximately 1.7 meters tall and weighs approximately 68 kilograms. DSC-MATE-4431's design incorporates a green cyclops eye as its primary visual component, while its secondary eyes are represented by nerd glasses. DSC-MATE-4431's head is adorned with a blue bandana, while its ears are pierced with jade earrings. It wears a gold chain as an accessory.

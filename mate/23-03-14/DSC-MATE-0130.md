@@ -1,0 +1,2 @@
+ID # : DSC-MATE-130
+Description: DSC-MATE-130 is a robot identified as a Delivery Driver, with a frightened mouth and nerd glasses for eyes. The robot wears a short peak cap on its head and a silver chain as an accessory, with a jade earring on its right ear.

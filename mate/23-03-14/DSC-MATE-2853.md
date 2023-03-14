@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2853
+Description: DSC-MATE-2853 is a male tiger who specializes in courier services. His appearance is adorned with a purple cap, nerd glasses, and a headset. DSC-MATE-2853 has a distinguishable goggle accessory atop of their forehead, with a red scarf used to protect its neck. A medical mask covers its mouth.

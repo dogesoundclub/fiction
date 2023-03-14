@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1227
+Description: DSC-MATE-1227 is a male rabbit of unknown origin. Its appearance is unique, featuring blue clown eyes, a purple cap with a headset, and a single jade earring. DSC-MATE-1227 identifies itself as a lawyer and displays traits typical of one, such as a no-nonsense attitude and valuing tradition. However, DSC-MATE-1227 also possesses a playful side, telling jokes and stories passed down through its family or community. Personnel are advised not to engage in these activities with DSC-MATE-1227, as they can lead to unpredictable behavior.

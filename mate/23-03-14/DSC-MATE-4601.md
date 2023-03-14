@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4601
+Description: DSC-MATE-4601 is a male tiger, standing at 2.7 meters when upright. It is easily identified by its green hair in a purple cap and two-color band on the forehead. DSC-MATE-4601's eyes are notable, as they resemble blue clown eyes, and it possesses a frightened mouth as its primary facial feature. DSC-MATE-4601 has a seemingly friendly and humorous demeanor, which can lead to mischief and rule-breaking.

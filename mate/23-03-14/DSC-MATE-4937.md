@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4937
+Description: DSC-MATE-4937 is a male tiger of average height and weight. Its most notable feature is its face, specifically its frightened mouth and its eyes, which consist of VR Rainbow LED technology. Additionally, DSC-MATE-4937 wears a purple cap with a headset, gold earrings, and a medical mask. It also wears a red scarf as an accessory.

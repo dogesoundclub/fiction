@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9320
+Description: DSC-MATE-9320 is a male tiger with a distinctive bucket hat that it refuses to remove. DSC-MATE-9320 exhibits a frightened mouth and wears nerd glasses, combined with a gold earring, giving it a peculiar and somewhat eccentric appearance. DSC-MATE-9320 also wears an LED gas mask as an accessory, despite it not providing any sort of benefit or function to the subject.

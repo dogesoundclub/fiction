@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9089
+Description: Item 9089 is a male robot with the appearance of a firefighter. Its eyes are made of VR Jade LED and it wears a police cap on its head, as well as a medical mask over its mouth. Its most distinguishable accessory is the gold chain it always wears around its neck.

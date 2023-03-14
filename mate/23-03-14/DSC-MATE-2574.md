@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2574
+Description: Item #2574 appears as a seemingly harmless white rabbit, but with a dark twist. Its eyes are blood-red and possess an eerie clown-like quality. The rabbit wears a bucket hat adorned with a red victory band, and carries a candy stick as its signature accessory. Despite its small stature and cute appearance, Item #2574 is undeniably dangerous and with a penchant for cruelty.

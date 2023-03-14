@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4769
+Description: 4769 appears to be a male human with orange stripes present on their face, resembling those of a wildcat. They often wear normal glasses that obscure their eyes and a gold earring in their right ear. In addition, they regularly use a standard gas mask as their protective accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7827
+Description: DSC-MATE-7827 is a male human of African descent, standing at approximately 5 feet 10 inches tall. DSC-MATE-7827's most notable feature is the presence of multiple spots on his skin, giving him a distinctive appearance. DSC-MATE-7827 wears a gold earring in his left ear and a silver chain around his neck. DSC-MATE-7827 displays a frightened expression on his face, with a mouth that is often agape or trembling.

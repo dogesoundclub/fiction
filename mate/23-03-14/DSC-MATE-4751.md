@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4751
+Description: 4751 is a female human security guard with unique physical and personality traits. Her face is marked with spots and features red lips, while her eyes are strikingly blue clown eyes. Her head is adorned with various accessories, completing her rainbow festival appearance, including a green cross earring and a gold chain.

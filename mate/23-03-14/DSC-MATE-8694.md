@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8694
+Description: Subject 8694 is a male tiger standing at 5 feet tall, weighing over 300 pounds. He has a permanent red beanie on his head and bejeweled gold earring on right ear. His eyes appear to be a VR Rainbow LED display, which reacts to his emotions. Additionally, he carries a candy stick, which he sucks on whenever he is idle.

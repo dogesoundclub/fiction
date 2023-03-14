@@ -1,0 +1,2 @@
+ID # : DSC-MATE-885
+Description: DSC-MATE-885 is a male tiger, measuring approximately 2.5 meters in length with distinctive ski goggle-like eyes and a disarranged green head fur. DSC-MATE-885 is always seen wearing a red scarf and a gold earring in its left ear. Its mouth is typically seen in a frightened expression, but it is capable of emoting a wide range of expressions.

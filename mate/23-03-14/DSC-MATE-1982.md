@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1982
+Description: Subject is a male human of unknown age, commonly known as 'Traffic Officer'. Subject possesses a distinct clown mouth and red clown eyes which are deemed to be anomalous. They wear a typical police cap with a red victory band on their forehead and are seen to sport a golden earring on one of their ears. It is unclear how subject acquired this eccentric appearance, and further investigation is ongoing.

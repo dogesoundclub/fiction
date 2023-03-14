@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2248
+Description: 2248 is a female human, standing at approximately 5’7” and weighing roughly 120 lbs. She has orange stripes on her cheeks and a distinctively purple lip. Her hair is blonde with an unusual, feathered appearance, and she wears jade earrings. The subject is often seen wearing a choker and a LED gas mask.

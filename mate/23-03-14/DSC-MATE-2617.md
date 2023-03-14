@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2617
+Description: Subject 2617 is a male human of average height and weight. They have a distinct feature of spots on their face, coupled with a constant smile. The subject wears normal glasses to correct vision, and a medical mask covers their mouth, limiting communication with others. Their forehead bears a two-color band, which has yet to be determined its significance. The subject also sports a jade earring in their left ear and a gold chain around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2270
+Description: DSC-MATE-2270 is a male rabbit of undetermined age and origin. Its face is marked with a perpetually frightened expression, and its eyes are similar in appearance to ski goggles. DSC-MATE-2270 also wears a hooded sweatshirt, which it reportedly acquired during a protest against a clothing company with unethical labor practices.

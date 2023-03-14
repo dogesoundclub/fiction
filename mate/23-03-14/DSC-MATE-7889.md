@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7889
+Description: DSC-MATE-7889 is a male robot of unknown origin, appearing to be of humanoid design. Its head is adorned with a purple cap and headset, as well as a goggle on its forehead. Its eyes are obscured by normal glasses. DSC-MATE-7889's ears are fitted with a gold earring. Its overall appearance is that of an eccentric electrician.

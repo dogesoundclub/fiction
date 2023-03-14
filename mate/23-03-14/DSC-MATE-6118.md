@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6118
+Description: DSC-MATE-6118 appears as a male tiger with a frightened mouth, often seen wearing a hoodie, and accessorizes with a gold chain and a candy stick. DSC-MATE-6118 is highly skilled at selling cars and is capable of charming even the most skeptical customers, often leading to immediate purchases.

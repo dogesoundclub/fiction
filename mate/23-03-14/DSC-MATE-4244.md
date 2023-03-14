@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4244
+Description: Subject 4244 is a male Siberian tiger measuring six feet in length and weighing approximately 400 pounds. It displays evidence of human-like tendencies such as wearing nerd glasses, a bucket hat, a jade earring, a medical mask, and a gold chain. Despite having undergone no discernible mutations, it possesses unheard-of abilities to understand human language and complete human-dexterity tasks.

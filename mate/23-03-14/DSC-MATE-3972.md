@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3972
+Description: Subject 3972 is a female human with striking features, including pig tails and noticeable spots on her face. The individual stands at a height of 5'8" and weighs approximately 140 pounds. Her most distinguishing feature is the VR Rainbow LED eyes, which are constantly shifting in color and brightness. Additionally, her ears feature a red cross earring, adding to the subject's already unique appearance.

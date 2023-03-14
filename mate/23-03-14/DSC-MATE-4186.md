@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4186
+Description: Subject 4186 is a male Bengal tiger with unique blue clown eyes. The subject's head is adorned with green hair in a purple cap and a medical mask conceals the mouth. Additionally, the tiger possesses two color-banded features on its forehead and a gold chain around its neck.

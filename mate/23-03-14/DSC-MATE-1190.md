@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1190
+Description: 1190 is a male human measuring at 1.78m, and weighing approximately 65kg. The subject's facial features are unique and consist of a mouth spot and clown mouth. The eyes are red and reminiscent of those seen on a circus clown. The subject is most often seen wearing a police cap, indicating a prior career in law enforcement. The forehead is adorned with a 2 color band, and the subject is never without a gold earring on one ear.

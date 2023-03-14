@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3331
+Description: Subject 3331 appears as a female human with striking facial features. Their face is adorned by orange stripes that run across their cheeks and nose. Their eyes are deep red with clown-like characteristics, and they have a metallic blue head. Their ears feature a single golden earring, and they often wear a silver chain and smoke cigarettes. They stand at a height of 6'1" and carry themselves with purposeful movements.

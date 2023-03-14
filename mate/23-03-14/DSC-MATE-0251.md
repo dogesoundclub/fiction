@@ -1,0 +1,2 @@
+ID # : DSC-MATE-251
+Description: DSC-MATE-251 appears to be a human female of average height and weight with spots on their face and red lips. Their eyesight appears to be normal, requiring eyeglasses for reading. DSC-MATE-251's head is decorated in a rainbow festival style including a goggle on their forehead. They also wear a jade earring as an accessory and frequently smoke cigarettes.

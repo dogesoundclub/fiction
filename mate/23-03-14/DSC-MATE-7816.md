@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7816
+Description: Item 7816 is a male, human fast food worker with an unusual appearance. His face is frequently adorned by a wide, friendly smile, and his eyes resemble those of ski goggles. His head is covered in unkempt, bright green hair, and a goggle is frequently found propped on his forehead. He is also known to have adorned himself with a jade earring, a silver chain necklace, and a gas mask.

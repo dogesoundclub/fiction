@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1640
+Description: DSC-MATE-1640 is a male human of average height and build. Their most distinctive feature is their frightened mouth, which is constantly twitching and trembling, as well as their red clown eyes. DSC-MATE-1640 wears a purple cap with a headset, a two-color band on their forehead, and a jade earring in each ear. DSC-MATE-1640 also wears a silver chain around their neck and is often seen holding a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8036
+Description: Subject 8036 is a male humanoid with metal purple head and possesses striking green cross earring and a gold chain. The most prominent feature of subject 8036 is a spotted mouth that changes color and shape depending on the subject's current emotional state. In typical meetings, subject 8036 can be seen wearing a gas mask that was created from common materials.

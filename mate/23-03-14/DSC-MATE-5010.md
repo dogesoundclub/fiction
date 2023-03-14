@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5010
+Description: Item #5010 is a human male identified as a beautician. He stands at approximately 6 feet tall and has a mohawk hairstyle. His most notable feature is his smile that radiates an unsettling charm. He often wears nerd glasses, a red scarf, and a green cross earring. Item #5010 also carries a candy stick at all times.

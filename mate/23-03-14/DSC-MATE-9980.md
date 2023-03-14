@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9980
+Description: DSC-MATE-9980 is a male rabbit with blue bandana covering its head and a gold earring. DSC-MATE-9980 possesses a frightened mouth appearance that never leaves its face. Additionally, DSC-MATE-9980 can be identified by its silver chain and cigarette that it often carries around.

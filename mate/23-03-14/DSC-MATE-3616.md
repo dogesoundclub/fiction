@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3616
+Description: DSC-MATE-3616 is a humanoid robot, standing at 1.8 meters in height and weighing approximately 70 kilograms. Its body is predominantly silver, with various highlights and accents of metallic green. DSC-MATE-3616's distinguishable features include a large, moving cyclopean green eye, a set of horned rim glasses over its eyes, and a short peak cap covering its head. DSC-MATE-3616 also wears a jade earring on its left earlobe, and a silver chain around its neck.

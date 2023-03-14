@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8401
+Description: Subject 8401 is a male human, approximately 35 years of age, with a mouth spot and a smile that never fades from his face. His eyes are covered by ski goggles, and he wears a purple cap with a headset attached to it. Subject 8401 is often seen wearing a green cross earring and a medical mask, which he claims is due to allergies.

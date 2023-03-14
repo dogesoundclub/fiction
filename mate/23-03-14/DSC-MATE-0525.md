@@ -1,0 +1,2 @@
+ID # : DSC-MATE-525
+Description: DSC-MATE-525 is a male robot with a green Cyclops eye as its most prominent facial feature. It has a ski goggle for eyes, and a short peak cap as its head. DSC-MATE-525 wears a medical mask to conceal its mouth and has a gold earring on each ear. It is often seen wearing a gold chain as its accessory.

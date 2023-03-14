@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1814
+Description: DSC-MATE-1814 appears to be a Caucasian male with various facial features often associated with clowns. DSC-MATE-1814's face exhibits small spots and a mouth that appears to be designed for clown makeup. The eyes of DSC-MATE-1814 are red, indicating the presence of a rare genetic mutation that causes the eyes to appear as such. DSC-MATE-1814's head is shaved, with a single Mohawk that runs down the middle of the head. Additionally, DSC-MATE-1814 has a gold earring present in the left ear.

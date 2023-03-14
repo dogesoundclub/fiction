@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4291
+Description: DSC-MATE-4291, a male Siberian tiger, displays significant intelligence and is capable of human language. DSC-MATE-4291 has been observed to possess a wide variety of skills including planning and organization, which coupled with its tendency for spontaneity, have made it an effective and formidable leader of a criminal organization.

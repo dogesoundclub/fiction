@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7181
+Description: DSC-MATE-7181 appears to be a male tiger measuring 2.2m in length and weighing 258kg. It appears to be approximately 7 years old based on dental analysis. DSC-MATE-7181 appears to be sentient and is capable of speech in the English language. DSC-MATE-7181 is adorned with a nerd glasses and Doge hat on his head, a jade earring on each ear, a silver chain around its neck, and is often seen holding a cigarette.

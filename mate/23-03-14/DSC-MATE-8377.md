@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8377
+Description: DSC-MATE-8377 appears to be a male rabbit of average height and build, with normal glasses for vision, ears pierced with a gold earring, and a red scarf with a diamond-shaped pattern around his neck. DSC-MATE-8377 has normal rabbit fur, but it is noted that the rabbit's fur takes an unarranged green color in certain exposures to sunlight. DSC-MATE-8377 has exhibited the ability to control movements and actions of civilians within a radius of 10 meters.

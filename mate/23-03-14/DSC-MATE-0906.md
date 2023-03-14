@@ -1,0 +1,2 @@
+ID # : DSC-MATE-906
+Description: DSC-MATE-906 is a female human of indeterminate age, currently working as a Beautician at a salon in █████████, ███████. Her most striking features are her purple lips and her vivid VR Jade LED eyes. DSC-MATE-906's hairstyle is a classic "witch short" bob, and she often wears lab goggles on her forehead.

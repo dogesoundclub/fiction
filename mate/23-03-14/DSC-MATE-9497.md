@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9497
+Description: DSC-MATE-9497 is a human male with multiple spots on his face and a frightened mouth. The subject's head is adorned with a mohawk and a jade earring on each ear. DSC-MATE-9497 frequently wears a gold chain and a normal gas mask as accessories.

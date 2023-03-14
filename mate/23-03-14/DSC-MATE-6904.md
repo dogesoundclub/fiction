@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6904
+Description: DSC-MATE-6904 is a female human of average build and height, with a preference for a hooded clothing style. DSC-MATE-6904 is identified by a distinct feature of bright red lipstick, as well as the silver chain accessory she tends to wear around her neck. DSC-MATE-6904 is a reporter and has been known to have a distinct fascination with thrill-seeking activities and experiences.

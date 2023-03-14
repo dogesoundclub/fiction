@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1481
+Description: DSC-MATE-1481 has the appearance of a common domesticated rabbit, however, it is found wearing a doge hat on its head, a two-color band on its forehead, a gold earring on its left ear and carrying a candy stick as an accessory. DSC-MATE-1481 is a skilled mechanic with an aptitude for fixing almost any mechanical object.

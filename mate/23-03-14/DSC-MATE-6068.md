@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6068
+Description: Item #6068 is a male tiger, with a height of 6 feet and weight of approximately 500 pounds. The subject appears to be well-groomed, sporting a gold earring and chain, and wears normal glasses. However, what sets Item #6068 apart is the LED gas mask on its face, which it claims to wear as a statement piece.

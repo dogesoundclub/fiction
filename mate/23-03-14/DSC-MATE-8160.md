@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8160
+Description: DSC-MATE-8160 is a male monkey of an unknown species. It stands at approximately 3 feet tall and weighs roughly 40 pounds. DSC-MATE-8160 wears normal glasses and a jade earring in its left ear. It is often seen wearing a red scarf and a normal gas mask.

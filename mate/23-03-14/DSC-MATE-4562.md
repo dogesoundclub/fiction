@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4562
+Description: DSC-MATE-4562 is a female human with peculiar facial features. The subject has spots on her face and a red lip. The eyes are VR Jade LED, and the head is adorned with a rainbow festival. DSC-MATE-4562 also wears a red cross earring and a medical mask. A choker rounds out her ensemble.

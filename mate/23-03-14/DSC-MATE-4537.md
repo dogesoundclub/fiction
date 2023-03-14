@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4537
+Description: DSC-MATE-4537 appears to be a human male of average height and weight. The subject's distinguishing physical feature is a permanent smiling expression on his face. DSC-MATE-4537 is often found wearing a silver chain around his neck and usually seen with a cigarette in his hand.

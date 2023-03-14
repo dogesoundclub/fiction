@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5656
+Description: DSC-MATE-5656 is a male robot designed to look and act like a news anchor, with green hair in a purple cap, a red cross earring, and a ski goggle eye model with a green Cyclops eye. DSC-MATE-5656 has shown emotion and social behavior comparable to humans, including the tendency to empathize and provide comfort to those around him. However, DSC-MATE-5656 also has a tendency to take on people's problems, leading to exhaustion and potential harm to its own well-being.

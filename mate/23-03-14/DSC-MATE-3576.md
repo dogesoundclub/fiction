@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3576
+Description: DSC-MATE-3576 appears to be a rabbit of anomalous origin who has been identified as the head of a criminal organization commonly referred to as the "Warren Triad." DSC-MATE-3576's eyes are Jade LED and visibly process information at a rate far beyond that of non-anomalous creatures. DSC-MATE-3576's head is adorned with a blue bandana, and two accessories: a red scarf, and a candy stick.

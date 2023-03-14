@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5900
+Description: DSC-MATE-5900 appears as a human female with blue clown eyes and a contagious smile. Her head is adorned with a tiara, and a two-color band is present on her forehead. DSC-MATE-5900 is often seen wearing a silver chain as an accessory. Despite its anomalous traits, DSC-MATE-5900 otherwise appears to be a normal human.

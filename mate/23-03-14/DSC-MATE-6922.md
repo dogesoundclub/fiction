@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6922
+Description: DSC-MATE-6922 is a male rabbit named ██████ who wears a green bucket hat and normal glasses for everyday use. They are often seen with a jade earring hanging from one of their long ears. DSC-MATE-6922 possesses the ability to speak and understand human languages fluently, and they use this to their advantage in their career as a reporter.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5366
+Description: DSC-MATE-5366 appears to resemble a Bengal tiger with notable fashion accessories such as a blue bandana and a red cross earring. Its frightened mouth and nerd glasses give the impression of an anxious and intelligent individual. DSC-MATE-5366 is noted for its rebellious behavior, often finding ways to bend or outright break containment procedures. Despite this, DSC-MATE-5366 is a skilled mechanic and enjoys using its abilities to repair and maintain mechanical objects within its containment chamber.

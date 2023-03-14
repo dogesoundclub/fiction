@@ -1,0 +1,2 @@
+ID # : DSC-MATE-620
+Description: Subject 620 is a human female in her late twenties, with brown hair styled in a 90s fashion. The subject has red clown eyes, which emit an aura of unpredictability and mischief. She also commonly wears a medical mask, which may or may not be used for its intended purpose.

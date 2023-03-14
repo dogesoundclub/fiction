@@ -1,0 +1,2 @@
+ID # : DSC-MATE-739
+Description: DSC-MATE-739 is a human female with bright orange stripes across their face and a permanent smile. DSC-MATE-739's eyes are red clown eyes, and their head is that of a pink rabbit. They have a two-color band on their forehead and goggles resting on their forehead. DSC-MATE-739 wears a gold earring on one ear.

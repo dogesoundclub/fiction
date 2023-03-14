@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2820
+Description: DSC-MATE-2820 is a human male with orange stripes on its face, a prominent smile, and VR Jade LED eyes. It wears a doge hat and a green cross earring on its left ear. DSC-MATE-2820 also wears a gold chain as an accessory and is often seen holding a candy stick.

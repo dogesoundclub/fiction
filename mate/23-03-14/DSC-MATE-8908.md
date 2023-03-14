@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8908
+Description: DSC-MATE-8908 appears to be a human female of average height and weight. Their face is covered in spots, which are believed to be a form of skin pigmentation. They wear a tiara on their head, which bears no significant anomalous properties. DSC-MATE-8908 also has a two-color band on their forehead and wears a jade earring in each ear. They wear a medical mask over their mouth and a gold chain as an accessory.

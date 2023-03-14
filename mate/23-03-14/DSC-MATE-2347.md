@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2347
+Description: Subject 2347 is a humanoid male, appearing to be in his late 30s, with multiple spots covering his face and a clown mouth painted on his lips. Additionally, subject 2347 possesses blue clown-like eyes and wears a purple cap fitted with a headset. Subject 2347 exhibits a great sense of humor, often utilizing it to disarm others and make them more comfortable around him. 

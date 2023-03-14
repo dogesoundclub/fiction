@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8212
+Description: DSC-MATE-8212 appears to be a typical human male, approximately 30 years of age, with a friendly smile and normal glasses. He sports a police cap with a two-color band on his forehead and a silver chain around his neck. DSC-MATE-8212 has also been observed carrying a candy stick, which it eats frequently.

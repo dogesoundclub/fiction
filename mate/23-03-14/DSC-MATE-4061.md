@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4061
+Description: DSC-MATE-4061 is a male humanoid of average height and build. DSC-MATE-4061 is a police officer by profession and displays a natural charm and charisma that can influence those around him. DSC-MATE-4061 is often seen wearing a short peak cap and a medical mask over its mouth. Its most notable features are its eyes, which are VR Rainbow LED, and a mouth spot that appears to be frightened.

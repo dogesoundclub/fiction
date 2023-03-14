@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7535
+Description: DSC-MATE-7535 is a male rabbit of approximately 1m in height. DSC-MATE-7535 is often seen wearing a purple cap with a headset, a silver chain around their neck, and a whistle on their person. DSC-MATE-7535 possesses a unique forehead feature in the form of a two-color band around their brows. Their ears are decorated with a single gold earring.

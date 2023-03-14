@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7532
+Description: DSC-MATE-7532 appears to be a monkey of the species Macaca fascicularis, standing approximately 1.2 meters tall and weighing 25 kilograms. Its most distinguishing feature is the bright green hair on its head, which it styles with a purple cap. DSC-MATE-7532 also wears a single gold earring in its right ear.

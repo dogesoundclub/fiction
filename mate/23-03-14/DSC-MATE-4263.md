@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4263
+Description: DSC-MATE-4263 appears to be a human male in his mid-twenties, measuring 175 cm in height and weighing approximately 70 kg. It possesses a unique facial feature, identified as a small spot located near the right corner of its mouth. DSC-MATE-4263 also has a tendency to exhibit a frightened expression through its mouth.

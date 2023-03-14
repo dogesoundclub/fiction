@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6328
+Description: DSC-MATE-6328 is a male monkey of unknown origin, standing at approximately 1 meter tall. DSC-MATE-6328 is primarily distinguished by its choice in apparel, including a red beanie hat and a gold earring. Its eyes are covered by thick nerd glasses. DSC-MATE-6328 also possesses opposable thumbs and a prehensile tail.

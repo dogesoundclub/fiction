@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9935
+Description: Subject #9935 is a human male who possesses a unique set of abilities that make him a dangerous and unpredictable villain. His eyes are constantly shielded by thick nerd glasses. He has an unruly mop of green hair that is never combed or styled. On his left ear, he wears a golden earring that is usually obscured by his messy hair.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3635
+Description: DSC-MATE-3635 is a macaque monkey, measuring approximately 45 centimeters in height and 70 centimeters in length. DSC-MATE-3635 is distinguishable from other macaques due to its mohawk hairstyle on its head, and its fashion accessories, which include shade glasses, goggles, and a silver chain.

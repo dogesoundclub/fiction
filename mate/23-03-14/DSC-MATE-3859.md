@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3859
+Description: DSC-MATE-3859 is a robotic male farmer with. DSC-MATE-3859 has a green cyclops eye incorporated on its face that displays its current task status. DSC-MATE-3859 stands at an impressive 8 feet tall and weighs approximately 500 pounds. DSC-MATE-3859 dons a bucket hat on its head and wears normal glasses to improve visual accuracy on specialized equipment. While DSC-MATE-3859 may lack traditional ears, it has a red cross earring worn as an affectionate nod to its creators.

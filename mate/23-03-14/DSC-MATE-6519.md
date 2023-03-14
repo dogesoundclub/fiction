@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6519
+Description: DSC-MATE-6519 is a male rabbit of the Leporidae family, measuring approximately 45 cm tall with blue "clown" eyes that gleam in the dark. The subject's head is covered by a hoodie, under which large ears and buck teeth are visible. The rabbit always wears a red scarf around their neck as an accessory. DSC-MATE-6519 has been documented to have a tendency to shed at an unusually high rate, leading to complications on a quarantine level.

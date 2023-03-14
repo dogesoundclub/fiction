@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3969
+Description: DSC-MATE-3969 is a female human with unique facial features including spots and a purple lip. DSC-MATE-3969's eyes are red and appear similar to those of a clown. DSC-MATE-3969's head is often adorned with a bucket hat and gold earrings. DSC-MATE-3969 is typically seen wearing a choker as an accessory.

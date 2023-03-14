@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2797
+Description: DSC-MATE-2797 is a male tiger humanoid that appears to be wearing a police cap on its head, with ski goggle eyes and a silver chain around its neck. DSC-MATE-2797 stands approximately 2.5 meters tall and possesses considerable strength, agility and speed.

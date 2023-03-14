@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5625
+Description: DSC-MATE-5625 is a female human with several distinct facial and head features. The face features include orange stripes and purple lip. The eyes are red clown eyes. The head is green with edge curls. DSC-MATE-5625 also wears a choker and frequently carries a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3093
+Description: DSC-MATE-3093 appears to be a male Bengal tiger with a height of 2.3 meters and weight of approximately 400 kg. The subject possesses a distinctive red scarf and cigarette which is always present in its mouth. DSC-MATE-3093 shows signs of extreme anxiety, often appearing frightened or distressed.

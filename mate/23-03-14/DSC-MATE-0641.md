@@ -1,0 +1,2 @@
+ID # : DSC-MATE-641
+Description: DSC-MATE-641 is an anomalous Monkey of the genus Macaca, with a unique physical appearance. Its head is perpetually covered by a black hoodie with two color bands running horizontally. DSC-MATE-641's eyes are a startling red, resembling clown makeup, and are known to shift in color depending on its emotional state. DSC-MATE-641 is mostly docile but will display sudden aggressive behaviors when it perceives a threat to its safety.

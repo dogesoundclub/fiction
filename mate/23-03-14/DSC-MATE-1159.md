@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1159
+Description: DSC-MATE-1159 is a human male of unknown age who identifies himself as a farmer. He stands at approximately 1.8 meters tall and has several distinctive physical features, including spotted skin and a perpetually frightened mouth. His eyes appear to be artificially colored blue, resembling clown makeup. DSC-MATE-1159 often wears a doge hat on his head and a jade earring on his left ear, as well as a silver chain around his neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5331
+Description: The subject, a male human identified as 5331, possesses unique physical features that are noteworthy. The subject has a distinctive spot on his mouth and a permanent smile that is ever-present regardless of the situation. The subject's eyes are an intense blue and resemble those of a clown. His head is adorned with green hair and a purple cap. A two-color band is also present on his forehead, along with a red scarf worn as an accessory. The subject is frequently seen with a candy stick, which appears to be his preferred snack.

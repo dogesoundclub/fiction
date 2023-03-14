@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6159
+Description: Item 6159 is a female with distinctive facial features, including spots, red lipstick, and red clown eyes. The subject's head is adorned with green hair in a purple cap, with goggles on their forehead and a medical mask covering their mouth. They frequently wear a silver chain, which is speculated to be of personal significance.

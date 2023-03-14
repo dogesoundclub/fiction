@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6173
+Description: DSC-MATE-6173 appears to be a male rabbit with red clown eyes and a frightened mouth. It wears a purple cap with a headset on top and a goggle on its forehead. It has gold earrings and a gold chain around its neck.

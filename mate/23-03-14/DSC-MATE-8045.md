@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8045
+Description: Subject 8045 is a female human with distinct features that portray a pink rabbit on her head. Her face features orange stripes and a broad smile. Her forehead bears a two-color band, and she adorns her ears with gold earrings. Subject 8045’s traits may seem unusual for a human, but her species remains as such.

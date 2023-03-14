@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5696
+Description: 5696 appears as a standard humanoid delivery robot, equipped for ground transportation. The robot is distinguishable by the red cross earring and red scarf worn in addition to its uniform, as well as the short peak cap upon its head and nerd glasses upon its eyes. 5696 has demonstrated a strong sense of independence as well as resistance to authority, often exhibiting rebellious behavior such as taking days off of work without authorization.

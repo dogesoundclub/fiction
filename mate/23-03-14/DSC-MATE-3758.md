@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3758
+Description: DSC-MATE-3758 is a human male, approximately 32 years of age, standing at 5'11". The subject's most notable physical characteristics are the orange stripes on their face and the doge hat on their head. The subject also wears a pair of normal glasses, a jade earring, and a red scarf. DSC-MATE-3758 often carries a candy stick with them as an accessory.

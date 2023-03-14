@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2643
+Description: DSC-MATE-2643 is a human female, standing approximately 5'8" feet tall. DSC-MATE-2643 exhibits several unique physical features, including purple lips, VR rainbow LED eyes, and green, un-arranged hair. DSC-MATE-2643 also wears a medical mask over its mouth at all times while outside of its chamber. DSC-MATE-2643 has a pair of jade earrings affixed to its ears.

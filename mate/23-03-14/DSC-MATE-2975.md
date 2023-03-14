@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2975
+Description: DSC-MATE-2975 is a female humanoid of the human species, standing at 5 feet 4 inches in height, with a slender build. DSC-MATE-2975 displays facial features consisting of spots, and wears normal glasses over their eyes, giving no indication of any anomalous properties. DSC-MATE-2975's head is consistent with an early 2000s school girl hairstyle with a green cross earring adorning their right ear. DSC-MATE-2975 is frequently seen wearing an ordinary gas mask, however no explantion has been given as of yet.

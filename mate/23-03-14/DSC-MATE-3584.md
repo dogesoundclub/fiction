@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3584
+Description: DSC-MATE-3584 is a male tiger that works as a train driver. His appearance is quite normal for his species, except for his frightened mouth that is constantly open as if he is in distress. DSC-MATE-3584's eyes are mostly hidden, covered with a layer of fur which makes it hard to analyze its behavior. The only observed feature of its head is the green color.

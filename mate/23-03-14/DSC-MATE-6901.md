@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6901
+Description: DSC-MATE-6901 appears to be an average human male in his mid-forties, standing at approximately 180cm in height and weighing 90kg. DSC-MATE-6901 possesses orange-striped facial features and blue clown eyes, along with a standard blonde mens haircut and a gold earring on his left ear.

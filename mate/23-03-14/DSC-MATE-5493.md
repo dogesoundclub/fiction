@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5493
+Description: DSC-MATE-5493 is a male monkey identified as an electrician, weighing approximately 15 kilograms. DSC-MATE-5493 exhibits noticeable facial features such as a frightened mouth, an expression in its eyes implying fear and anxiety.

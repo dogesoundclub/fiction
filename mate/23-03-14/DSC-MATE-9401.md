@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9401
+Description: DSC-MATE-9401 appears to be a female humanoid with spots on their face, a distinctive smile, and bright orange eyebrows. They are often seen wearing a silver chain and smoking a cigarette. DSC-MATE-9401 is identified as a high-ranking member of a mafia family, and as such, they possess a no-nonsense attitude and value tradition above all else.

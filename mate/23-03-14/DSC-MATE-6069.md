@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6069
+Description: Subject 6069 appears as a male human with a frightened mouth, blue clown eyes, and a pair of goggles strapped to his forehead. The subject also wears a green cross earring, a gold chain, and is often seen smoking a cigarette.

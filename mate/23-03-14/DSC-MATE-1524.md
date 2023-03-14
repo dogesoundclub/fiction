@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1524
+Description: Subject is a humanoid male of average height and weight, with short brown hair and green eyes. They can be identified by the jade earrings on each ear, a gold chain around their neck, and a two-color band decorating their forehead. They wear a peak cap with goggles resting atop. They are often seen smoking a cigarette.

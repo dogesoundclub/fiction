@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2146
+Description: Subject 2146 was a human female, approximately 30 years old, and worked as a news anchor for a local television station. She possessed distinctive heterochromatic eyes, with one being orange and the other being green, as well as an unusual head of hair which resembled a rainbow-colored mane seen at a festival.

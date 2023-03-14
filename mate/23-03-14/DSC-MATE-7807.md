@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7807
+Description: DSC-MATE-7807 is a male rabbit species with jade earrings and a silver chain, believed to be a fashion designer in its natural habitat. DSC-MATE-7807's head is adorned with green hair in a purple cap, and its eyes are replaced with VR rainbow LED. DSC-MATE-7807 exhibits a frightened expression, which can prompt erratic behavior and lead to unexpected alterations in the environment. DSC-MATE-7807 has been observed carrying a whistle, which it uses as a protective device when threatened.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2425
+Description: DSC-MATE-2425 is a male robot with the job of a beautician. Its body resembles that of a humanoid figure and is mostly made out of metal alloy. It has a green cyclops eye and a frightened mouth carved on its face. DSC-MATE-2425 wears nerd glasses, a doge hat for its head, gold earrings for ears, a medical mask to cover its mouth, and a red scarf for an accessory.

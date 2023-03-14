@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5079
+Description: DSC-MATE-5079 is a female human of average height and build, with metal blue hair styled in a pixie cut. DSC-MATE-5079's ears are pierced and decorated with green cross earrings. DSC-MATE-5079's most prominent facial feature is a bright smile, visible underneath the medical mask she always wears.

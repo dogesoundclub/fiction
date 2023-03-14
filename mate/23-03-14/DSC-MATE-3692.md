@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3692
+Description: DSC-MATE-3692 is a human male with spots on his face and a frightened mouth expression. His eyes are a VR Rainbow LED that changes color depending on his mood. DSC-MATE-3692’s head is covered by a monk hood with gold earrings poking out of the sides. He wears a gold chain around his neck, and a normal gas mask over his face. The gas mask seems to be a part of DSC-MATE-3692’s body as attempts to remove it have been unsuccessful.

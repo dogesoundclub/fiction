@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6817
+Description: Subject 6817 is a human male with a frightened mouth and VR rainbow LED eyes. They often wear a retro cap, a red scarf, and carry a candy stick. Subject 6817 is a fashion designer by profession, with a portfolio that caters to the otherworldly denizens of our urban jungle.

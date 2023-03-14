@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6375
+Description: Item #6375 is a male tiger, standing at approximately 6 feet tall on hind legs. Its eyes are VR jade LED, giving the impression of a constant, all-seeing gaze. Item #6375 is a news anchor for a major televised news station in [REDACTED]. As such, it has honed its innate charisma and connection with those around it, using its journalistic skills to gain their trust and bring them closer to one another. However, Item #6375’s true nature is hidden from the public, as its species is not recognized as existing. 

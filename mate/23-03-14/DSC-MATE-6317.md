@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6317
+Description: Officer 6317 is a male human with a unique appearance. He wears a purple cap with headphones on his head. His eyes are red clown eyes and he has a 2 color band on his forehead. Officer 6317 has a distinctive spot on his mouth, which is also the only feature on his face that does not mimic a clown.

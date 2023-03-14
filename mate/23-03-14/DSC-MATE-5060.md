@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5060
+Description: DSC-MATE-5060 is a male rabbit of unknown origin. Its most notable feature is a pair of blue clown eyes, which appear to glow in low light conditions. DSC-MATE-5060 wears a black hoodie with a 2-color band on its forehead and a silver chain necklace around its neck. It also consistently wears a normal gas mask over its mouth and nose.

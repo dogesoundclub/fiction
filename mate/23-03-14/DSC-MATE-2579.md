@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2579
+Description: DSC-MATE-2579 is a male human who identified himself as a fashion designer. DSC-MATE-2579 stands at 178 cm in height and weighs approximately 68 kg. DSC-MATE-2579 presents with a unique mouth spot above his upper lip, and normal glasses covering his eyes, as well as donning a red beanie and jade earring. DSC-MATE-2579 is commonly seen wearing a medical mask around his mouth and a silver chain on his person.

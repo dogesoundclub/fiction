@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5759
+Description: DSC-MATE-5759 is a robot of unknown origin, resembling a security guard uniform. It stands at approximately 6"2' and weighs around 185 lbs. DSC-MATE-5759 has a frightened mouth feature, normal glasses eyes, and green hair in a purple cap. It also has a gold earring and a whistle accessory.

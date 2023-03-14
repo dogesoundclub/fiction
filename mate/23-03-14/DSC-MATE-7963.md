@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7963
+Description: DSC-MATE-7963 is a highly advanced theater manager robot with a green cyclops eye as its primary visual component. Its body is composed of a durable yet malleable material that allows it to adapt to its environment. Although its appearance may be intimidating to some, DSC-MATE-7963 is generally a friendly and helpful entity. DSC-MATE-7963's personality has led to humorous mishaps, such as forgetting important appointments or getting lost while trying to find a new place.

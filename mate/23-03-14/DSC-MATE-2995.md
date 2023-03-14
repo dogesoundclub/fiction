@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2995
+Description: Subject 2995 is a female human of average height and build. Her face is adorned with spotted skin and a vibrant purple lip. Her eyes are red clown-like eyes that seem to pierce the viewer's soul. Subject 2995’s head is adorned with vibrant green hair in a purple cap. Her ears are pierced with a red cross earring, and wears a gold chain around her neck. Her most notable feature is her normal gas mask that she wears at all times.

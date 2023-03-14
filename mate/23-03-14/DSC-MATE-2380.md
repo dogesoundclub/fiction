@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2380
+Description: DSC-MATE-2380 is a male news anchor of the Homo sapiens species. The subject exhibits spotted skin on his face, which, when questioned, he claimed was a rare skin condition. His eyes are concealed by normal glasses, and he wears a purple cap with a headset over his head. DSC-MATE-2380 also has a goggle accessory on his forehead and a jade earring on each ear. Additionally, he often sports a silver chain around his neck.

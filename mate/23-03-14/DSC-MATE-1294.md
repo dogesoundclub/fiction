@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1294
+Description: DSC-MATE-1294 is a human male in his late thirties, standing at 1.82 meters tall and weighing approximately 81 kilograms. DSC-MATE-1294 has numerous spots on his face and displays the tendency to bite his lower lip when anxious or frightened. He wears a pair of thick, black nerd glasses and has a prominent gold chain draped around his neck, which he often fidgets with. Additionally, DSC-MATE-1294's head features a mohawk, which he claims is a "nostalgic throwback" to his teenage years.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5302
+Description: DSC-MATE-5302 appears to be a brown Eastern cottontail rabbit, measuring approximately 40cm tall on its hind legs. The subject’s fur is soft and plush-like, exhibiting a slight reddish tint. Its eyes are of a unique type not seen in rabbits, with the subject wearing normal prescription eyeglasses. It also wears a hooded jacket in a dark blue color, with a red scarf around its neck.

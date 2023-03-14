@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8638
+Description: Item 8638 is a human female, approximately 5'5" in height, with distinct spots on her cheeks and a purple lip. She wears normal glasses over her brown eyes and a purple cap with a headset attached to her head. A two-color band rests on her forehead, and she has green cross earrings on her ears. Her mouth is often covered with a medical mask, presumably to protect against contamination. She wears a silver chain around her neck as an accessory.

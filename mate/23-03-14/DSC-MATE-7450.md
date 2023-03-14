@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7450
+Description: DSC-MATE-7450 is a human male of average height, approximately 35 years of age, with distinctive orange stripes on his cheeks. DSC-MATE-7450 has red clown eyes, giving it an unnerving and unsettling appearance. It wears a short peak cap on its head, with a goggle placed on its forehead. DSC-MATE-7450 also possesses a green cross earring on each ear, and it is often found wearing a red scarf around its neck.

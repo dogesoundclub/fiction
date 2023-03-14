@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8379
+Description: DSC-MATE-8379 is a male monkey species. The subject stands at 170 cm tall, has brown fur, and wears a doge hat and nerd glasses, along with a red scarf and a gold earring. DSC-MATE-8379 is known for its quick wit and love of debate, often engaging in playful arguments with friends or family members for fun. It measures at approx. 80 kg.

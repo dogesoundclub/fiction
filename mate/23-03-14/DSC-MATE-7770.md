@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7770
+Description: Item 7770 appears to be a male monkey of an as-yet-unidentified species. Its most striking feature is a frightened mouth that seems permanently etched onto its face. Item 7770 wears a distinctive bucket hat and a two-color band across its forehead. Additionally, it wears a normal gas mask over its face which obscures the eyes of the creature.

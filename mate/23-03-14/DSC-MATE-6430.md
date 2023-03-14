@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6430
+Description: Subject 6430 is a human female with orange stripes on her face and purple lips. Her eyes emit VR jade LED lights and she has a green cross earring on her left ear. Subject 6430 is frequently seen wearing a silver chain and smoking a cigarette.

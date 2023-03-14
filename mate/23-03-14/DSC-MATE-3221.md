@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3221
+Description: 3221 is a human female with speckled skin, often concealed by a medical mask. She wears normal glasses and a retro cap with a two-color band on her forehead. She has a red cross earring adorning her right ear and a silver chain around her neck. 

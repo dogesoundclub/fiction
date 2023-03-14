@@ -1,0 +1,2 @@
+ID # : DSC-MATE-772
+Description: DSC-MATE-772 is a male rabbit standing at approximately 30 centimeters in height. Its fur is a unique shade of green, not found in any known species of rabbit. The eyes of DSC-MATE-772 are unknown, as they have never been seen by any personnel. DSC-MATE-772 bears a jade earring on its left ear and wears a red scarf around its neck.

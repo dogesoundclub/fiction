@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9818
+Description: Subject 9818 exhibits human-like characteristics but with distinct notable features. Its facial structure is adorned with vivid Orange Stripes and its lips are stained with an unmistakable hue of Purple. Its eyes are a unique VR Rainbow LED and it wears a Green Cross Earring on one of its pointed ears. 9818 is often seen carrying a Cigarette, which it claims is a form of stress relief.

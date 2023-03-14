@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3767
+Description: Subject 3767 is a male humanoid of indeterminate age and ethnicity. The subject wears a Doge hat and silver chain, along with a pair of nerd glasses. The most noticeable feature of the subject's face is the presence of multiple spots.

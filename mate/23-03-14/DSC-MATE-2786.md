@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2786
+Description: DSC-MATE-2786 is a human male that exhibits several unusual physical features. The subject's face bears bright orange stripes and a frightened mouth, with eyes resembling ski goggles. DSC-MATE-2786 also wears a bucket hat and a green cross earring. 

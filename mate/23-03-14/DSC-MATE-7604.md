@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7604
+Description: Subject 7604 is a male human with a distinct mouth spot on their left cheek. Their eyes mimic those of a clown, with bright red pupils that seem to glow even in low light. A red victory band can be seen on their forehead, and a gold earring adorns their left ear.

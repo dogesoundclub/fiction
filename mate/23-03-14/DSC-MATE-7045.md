@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7045
+Description: DSC-MATE-7045 appears to be a human female of average height and build, with spotted skin and bright red lipstick visible on the lips. The eyes are red and resemble clown makeup. The head hair is of a rainbow color scheme reverse-dyed, while the forehead area features two colored bands. DSC-MATE-7045 wears a green cross earring, a choker, and carries a cigarette.

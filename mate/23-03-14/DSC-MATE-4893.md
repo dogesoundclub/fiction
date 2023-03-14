@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4893
+Description: DSC-MATE-4893 is a female human, approximately 29 years old, with distinct spots on their face and a warm smile. DSC-MATE-4893's hair is typically styled in a 90s fashion, and they often wear a red cross earring in their right ear and a black choker around their neck. DSC-MATE-4893 exhibits a great sense of humor and enjoys making others laugh. Despite being contained, DSC-MATE-4893 is generally cooperative with Foundation personnel and has not exhibited any anomalous properties outside of their warm personality.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6320
+Description: DSC-MATE-6320 is a human male standing at 1.83 meters in height. Their most distinct features are their blue clown eyes and unusual mouth spot, both of which are difficult to describe and do not match any known human features. DSC-MATE-6320 is normally seen wearing a short peak cap and a goggle on their forehead, as well as a green cross earring and a gold chain around their neck.

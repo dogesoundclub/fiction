@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2482
+Description: Subject 2482 is a female human of average height and build, with orange stripes and a purple lip visible on her face. Her eyes glow with VR Jade LED illumination, and her head appears to be made of a metallic blue material. The subject wears a red cross earring in each ear, as well as a choker and an LED gas mask as accessories.

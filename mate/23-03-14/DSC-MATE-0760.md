@@ -1,0 +1,2 @@
+ID # : DSC-MATE-760
+Description: DSC-MATE-760 is a male monkey-like creature, standing at 1.2 meters tall. Its fur is primarily brown, with black and white markings on its face and limbs. The creature's eyes are currently unknown due to its refusal to allow examination.

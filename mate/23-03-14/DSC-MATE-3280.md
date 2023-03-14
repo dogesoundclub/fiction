@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3280
+Description: DSC-MATE-3280 is a female humanoid with striking blue clown eyes. She is often observed wearing a hoodie with the hood pulled up over her head, revealing little of her face. DSC-MATE-3280's profession is that of a lawyer, which she practices with exceptional acumen and a relentless pursuit of justice.

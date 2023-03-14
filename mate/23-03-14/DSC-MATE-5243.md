@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5243
+Description: DSC-MATE-5243 is a male human with red clown eyes and a peak spike on its head. It wears a red scarf and an LED gas mask. The subject is a natural brainstormer and enjoys coming up with new and creative ideas. This can lead to some humorous situations, such as suggesting outlandish solutions to problems just to see how others react. The accessory has been found to be harmless to humans, making it less harmful.

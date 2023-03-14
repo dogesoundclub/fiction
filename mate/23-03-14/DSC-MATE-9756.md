@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9756
+Description: 9756 is a robot of unknown origin, with jade-green glowing LED eyes and a bucket hat for a head, that stands at 6'2". He possesses a red cross earring on the left ear, silver chain around the neck, and a whistle on the chest. The surface is made up of a heavy-duty steel body, with irregular cracks and dents in certain areas. 

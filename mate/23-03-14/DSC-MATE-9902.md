@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9902
+Description: 9902 is a humanoid of the species Homo sapiens, possessing clear blue clown eyes that can be quite unsettling. 9902's head is that of a pink rabbit, and has a gold earring on each ear. A goggle is also permanently affixed to their forehead. While 9902's appearance is bizarre, they possess a commanding presence and radiate an aura of confidence and strength. Despite their rather boisterous and intimidating nature, 9902 is harmless in nature and has proved to be an effective security guard.

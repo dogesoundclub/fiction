@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7785
+Description: Subject 7785 is a humanoid of the female sex, with distinctive features such as purple lips, VR jade LED eyes, a green head with edge curl, jade earrings, gold chains, and an LED gas mask. Subject 7785 works as a banker and is a human, but displays abilities that suggest psychic powers. She has a strong intuition and can predict events before they happen, as well as sense when others are feeling upset or anxious. Further study is required to understand these abilities.

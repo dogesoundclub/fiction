@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6917
+Description: Identification number 6917 appears to be a robot with a green cyclops eye as his primary facial feature, and glasses adding an additional layer of complexity to his appearance. His head is adorned with green hair and a purple cap with a goggle sitting atop. His red cross earring is the only discernible ear feature present. He is often seen wearing a gold chain, adding the perfect touch of bling.

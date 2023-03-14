@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1149
+Description: DSC-MATE-1149 is a humanoid robot, standing at approximately 1.8 meters and dressed in firefighter clothing. It possesses a number of accessories, including horned rim glasses, a doge hat, a gold chain, and a gold earring. Its programming and structure suggest that it was intended to function as a firefighter robot before its acquisition by the Foundation.

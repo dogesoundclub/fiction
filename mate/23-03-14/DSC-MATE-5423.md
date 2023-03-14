@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5423
+Description: DSC-MATE-5423, also known as the "Train Driver," is a male robot designed to operate locomotives. It is approximately 1.8 meters tall and weighs approximately 136 kilograms. DSC-MATE-5423's eyes are made up of virtual reality (VR) rainbow LED, and it wears a red beanie on its head. DSC-MATE-5423 also has a red cross earring on its ears and typically wears a medical mask over its mouth.

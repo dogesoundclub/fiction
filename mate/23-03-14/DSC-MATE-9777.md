@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9777
+Description: 9777 is a charismatic human male, standing at approximately 6 feet tall. He is often seen wearing traditional business attire, with his signature green layers and gold chain. His most notable feature is his infectious smile, which he uses to disarm and manipulate those around him. 

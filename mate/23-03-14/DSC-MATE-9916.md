@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9916
+Description: Subject 9916 is a male human of average height and weight. They have parted pink hair and a distinctive mouth spot on their chin. Their forehead has two colored bands, indicating a possible religious or cultural affiliation. At all times, Subject 9916 is seen wearing a medical mask over their mouth, which suggests a possible health condition.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6783
+Description: DSC-MATE-6783 is a sapient, bipedal rabbit of approximately 1.2 meters in height. It appears to be a male and is commonly seen wearing a purple cap with a headset and horned rimmed glasses. It also has a gold earring in its right ear. DSC-MATE-6783 has displayed above-average intelligence and is capable of speech.

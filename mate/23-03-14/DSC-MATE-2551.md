@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2551
+Description: Subject 2551 is a human male identified as a security guard. He stands at 6'2" and weighs approximately 200 pounds. Subject 2551's facial features include a constant smile and blue clown eyes. He often wears a police cap and sports a two-color band on his forehead. Subject 2551 is frequently seen with a lit cigarette, seemingly never running out.

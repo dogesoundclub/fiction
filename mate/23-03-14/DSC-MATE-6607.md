@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6607
+Description: DSC-MATE-6607 resembles a human female with brown hair styled in a 90s fashion. Apart from the anomalous traits, DSC-MATE-6607 does not display any physically abnormal characteristics. DSC-MATE-6607's face bears hallmarks of the "clown" appearance, including red clown eyes, red lipstick, and two spots on her left cheek. The forehead of DSC-MATE-6607 bears a two-color band tattooed across it, and her ears have green cross earrings. DSC-MATE-6607 is often seen wearing a gold chain.

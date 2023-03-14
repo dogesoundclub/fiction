@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4472
+Description: Item 4472 is a male monkey of unknown origin, standing approximately 1.2 meters in height. The subject is often seen wearing normal glasses, a red scarf, and a gold earring in its left ear. Item 4472 also carries a whistle at all times. Its head is not arranged in any particular way and is green in coloration.

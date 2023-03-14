@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7773
+Description: DSC-MATE-7773 is a female human police officer who exhibits unique physical characteristics. DSC-MATE-7773 has orange stripes on her cheeks, a red lip, and orange eyebrows. She also wears a bucket hat and gold earrings. DSC-MATE-7773 wears a normal gas mask as an accessory.

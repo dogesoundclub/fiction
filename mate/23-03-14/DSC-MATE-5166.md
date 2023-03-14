@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5166
+Description: Subject 5166 is a female human with normal glasses as her distinguishing feature. She is often seen wearing a retro cap and silver chain as accessories. Subject 5166 is known to have a tendency for introspection with a penchant for getting lost in thought which can lead to humorous situations.

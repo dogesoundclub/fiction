@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7078
+Description: DSC-MATE-7078 is a male rabbit that stands at approximately 45 cm tall and weighs 2.5 kilograms. It wears a bucket hat on its head and has a goggle on its forehead as a part of its everyday attire. In addition, DSC-MATE-7078 is often seen wearing a red scarf around its neck.

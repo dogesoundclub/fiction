@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5488
+Description: DSC-MATE-5488 is a human female, approximately 25 years of age, known to work as a delivery driver for various establishments. DSC-MATE-5488 has a rather striking appearance, characterized by a constant smile and a tiara worn over her forehead. Two-color band is visible on her forehead, while she has green cross earrings attached to her ears. Furthermore, DSC-MATE-5488 also wears a silver chain as a regular accessory.

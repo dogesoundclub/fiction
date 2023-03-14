@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6947
+Description: DSC-MATE-6947 is a Homo sapiens male who goes by the alias "The Don". DSC-MATE-6947 wears a red beanie at all times, with a pair of VR jade LED eyes and a pair of goggles on its forehead. His mouth consists of a noticeable spot, which it often displays with its most recognizable feature – a smile.

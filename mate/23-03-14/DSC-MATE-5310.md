@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5310
+Description: DSC-MATE-5310 is a male human of average height and weight with a frightened mouth and normal glasses on his eyes. DSC-MATE-5310 always wears a short peak cap on his head, a jade earring in his ear, a gold chain around his neck, and always has a cigarette in his possession. DSC-MATE-5310 displays traits of reliability and organization but is also incredibly stubborn and finds it hard to accept new ideas.

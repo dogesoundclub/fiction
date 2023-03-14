@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5635
+Description: DSC-MATE-5635 is a humanoid robot designed to resemble a male politician. Its entire body is silver and black with the exception of its face features which includes a single green cyclops eye. DSC-MATE-5635's eyes are covered by horned rim glasses and it wears a short peak cap on its head. An additional feature includes a jade earring on its right ear.

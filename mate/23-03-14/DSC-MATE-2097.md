@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2097
+Description: 2097 is a male human identified as a mechanic with a peculiar Mouth Spot on his face that appears somewhat random in shape and placement. When startled or frightened, 2097's mouth contorts into an extreme and somewhat frightening expression. 2097's eyes are typically obscured by Normal Glasses, and they wear a Gold Chain and often hold a lit Cigarette in their mouth.

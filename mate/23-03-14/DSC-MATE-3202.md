@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3202
+Description: DSC-MATE-3202 is a humanoid robot, appearing to be male with a prominent green Cyclops eye as its facial feature. It is often seen donning nerd glasses and accessorizing with a gold chain. DSC-MATE-3202's height is estimated to be around 6'2" and carries an average build.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3559
+Description: Item #3559 appears to be a male Bengal tiger dressed in formal attire commonly associated with politicians. It is distinctively different from other tigers due to the two sets of nerd glasses he wears, indicating his fondness for books and knowledge.

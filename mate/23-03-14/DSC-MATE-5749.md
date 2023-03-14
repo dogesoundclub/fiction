@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5749
+Description: DSC-MATE-5749 appears to be a male tiger sporting a purple cap with a headset, accentuated by a red cross earring on the left ear, and with a red scarf that is worn over a standard medical mask to obscure their facial features. The entity's eyes are covered by thick nerd glasses, and a goggle rests on their forehead. DSC-MATE-5749 is identified as a theater manager, although there is no known theater under their direction.

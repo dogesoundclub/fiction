@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8025
+Description: DSC-MATE-8025 is a male rabbit of an unknown subspecies with blue clown eyes. DSC-MATE-8025 wears a retro cap with a 2 color band and a jade earring on each ear. Additionally, DSC-MATE-8025 wears a gold chain and smokes cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6067
+Description: DSC-MATE-6067 is a human female, approximately 29 years of age, with spots on her face and red lips. They have orange eyebrows and wear their hair in pig tails. DSC-MATE-6067 also wears a red cross earring and a choker as accessories, and is often found with a cigarette. Their occupation outside of containment is a car salesman.

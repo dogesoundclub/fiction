@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8697
+Description: DSC-MATE-8697 is a male robot with a frightened mouth and wears horned-rimmed glasses. It prefers to wear a bucket hat, with goggles on its forehead and a red scarf around its neck. The robot is designed for work in the fast food industry, and its advanced technology allows for it to work autonomously with minimal supervision.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1156
+Description: DSC-MATE-1156 was a male human politician with distinct facial features. He was noted to have orange stripes on his face and a constant smile, which were both prominent features that seemed to be natural. His eyes were reported to have had blue clown-like irises, which was unsettling to some people who interacted with him. DSC-MATE-1156 had a peculiar attachment to his hoodie, which he constantly wore regardless of any weather. A 2 color band on his forehead was a visible marker on his features.

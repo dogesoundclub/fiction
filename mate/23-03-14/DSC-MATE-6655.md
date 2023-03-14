@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6655
+Description: DSC-MATE-6655 is a human male traffic officer with distinctive physical characteristics. DSC-MATE-6655's face is covered in spots and has a constant smile. Its eyes are VR Rainbow LED, and it frequently wears a blue bandana on its head. Additionally, DSC-MATE-6655 has a goggle on its forehead and a green cross earring on each ear. DSC-MATE-6655 also wears a silver chain as an accessory.

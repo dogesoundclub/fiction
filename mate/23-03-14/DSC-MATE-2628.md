@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2628
+Description: DSC-MATE-2628 appears as a male humanoid robot fashioned in the form of a fashion designer, with a strong and decisive personality. It is well-equipped with fashionable accessories such as a gold chain, a red-cross earring, and ski goggle eyes. Its most distinctive trait is the gas mask it constantly wears, which is noted to be near impossible to remove as it seems to be a part of the robot's being. 

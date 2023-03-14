@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4275
+Description: Subject 4275 is a male monkey of an unknown subspecies, with distinctive purple headwear resembling a political campaign hat and matching headset at all times. It is still unclear how subject 4275 came into possession of their fashion accessories. They also possess a golden earring on their right ear and a silver chain around their neck. As a result of their political attire, subject 4275 is often perceived as a parody of politicians or political satire.

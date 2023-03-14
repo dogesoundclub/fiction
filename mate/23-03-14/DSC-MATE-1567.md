@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1567
+Description: Item 1567 is a robotic police officer designed to resemble a male humanoid. Its head is a bright green color while wearing horn-rimmed glasses. On its forehead is a goggle that appears to be non-functional. Attached to its ears are red cross earrings. 1567 wears a silver chain around its neck and is often seen counting on a cigarette.

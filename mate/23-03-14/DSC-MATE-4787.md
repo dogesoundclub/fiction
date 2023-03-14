@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4787
+Description: DSC-MATE-4787 is a male tiger of an unknown subspecies with blue clown-like eyes. DSC-MATE-4787 is currently employed at a fast-food restaurant under Foundation supervision. DSC-MATE-4787 has a frightened mouth and wears a red beanie with goggles attached to the forehead. The tiger's ears are pierced with a gold earring, and it wears a silver chain as an accessory. The subject also wears a normal gas mask.

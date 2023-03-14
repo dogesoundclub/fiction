@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2936
+Description: Item 2936 is a male rabbit lawyer who stands at approximately 32 centimeters in height. The rabbit's fur is predominantly white with a 2-color band on its forehead that seems to change color depending on the rabbit's mood. Item 2936 has also been observed wearing a gold earring that is not removable. Eye color is currently unknown, as item 2936 has not opened its eyes since containment.

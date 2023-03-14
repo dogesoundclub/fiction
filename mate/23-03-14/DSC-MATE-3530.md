@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3530
+Description: DSC-MATE-3530 is a human male employee of the local Traffic Department.  DSC-MATE-3530 has several unique physical features, such as spots on the face, Jade Earring on the right ear, and a Goggle on his forehead. DSC-MATE-3530 has Red Clown Eyes with no discernible pupils. DSC-MATE-3530 also wears a Short Peak Cap as standard dress.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3683
+Description: DSC-MATE-3683 is a male tiger of the species Panthera Tigris, standing approximately 1.8 meters tall and weighing approximately 250 kilograms. Its mouth appears constantly frightened, and it wears a protective medical mask over its mouth.

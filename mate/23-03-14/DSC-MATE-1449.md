@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1449
+Description: 1449 appears to be an average human male in his early thirties. Subject's face is heavily marked with spots, and they possess a large, exaggerated clown mouth. Scarring on their forehead suggests a previous injury, now concealed by a red victory band. Subject's eyes are red and resemble those of a clown, and they wear a medical mask typically used in surgical procedures. Their attire consists of a standard fast-food worker uniform, complemented by a red scarf and a gold earring. 

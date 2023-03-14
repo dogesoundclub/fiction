@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8818
+Description: DSC-MATE-8818 appears to be a male humanoid with orange stripes on the face and a clown mouth. The subject's eyes are red clown eyes and bear no pupils. The head resembles a Monk, and the ears showcase a single gold earring. An ornamental silver chain is also present.

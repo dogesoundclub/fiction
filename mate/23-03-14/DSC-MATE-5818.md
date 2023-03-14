@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5818
+Description: Item 5818, also known as the "Empath Vet," is a human female with a unique appearance. She has orange hair that falls to one side and wears a red cross earring on both ears. A choker necklace is also a staple part of her attire.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2342
+Description: DSC-MATE-2342 is a male human of Chinese descent, standing at 1.8 meters tall and weighing 68 kilograms. The subject's face is characterized by a prominent and distinct Mouth Spot. DSC-MATE-2342's eyes are replaced with VR Jade LED technology that emits a green glow, and the subject often wears a pair of goggles on his forehead.

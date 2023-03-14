@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8054
+Description: Subject 8054 is a human female with distinctive spots on her face, which she chooses to emphasize with bright red lip paint. Her eyes have unusual orange eyebrows, and her head is adorned with a short witchy haircut. The subject's ears display a red cross earring, and she habitually wears a medical mask over her mouth as a form of personal protection.

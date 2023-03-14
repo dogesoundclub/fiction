@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1394
+Description: Item 1394 appears to be a human female, standing at approximately 5'8" in height. She has blonde hair, angelic wings protruding from her head, and wears a jade earring in each ear. Her eyes are hidden behind a pair of normal glasses, and she is often seen wearing a medical mask to obscure her features.

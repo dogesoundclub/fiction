@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7627
+Description: DSC-MATE-7627 is a male rabbit of unknown origin who currently works as a news anchor for several local television stations. DSC-MATE-7627 exhibits a number of anomalous traits, including a pair of VR Jade LED eyes that allow it to see beyond the visible spectrum.

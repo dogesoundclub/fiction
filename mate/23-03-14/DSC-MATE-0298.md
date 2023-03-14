@@ -1,0 +1,2 @@
+ID # : DSC-MATE-298
+Description: DSC-MATE-298 is a male human with spots on his face and a frightened mouth. His eyes are composed of VR Jade LED technology, and he wears a purple cap with a headset, a gold earring, and a red scarf. Although he appears like an ordinary police officer, DSC-MATE-298 possesses a unique ability to sense and manipulate emotions. He has a strong sense of empathy that allows him to connect with others on an emotional level.

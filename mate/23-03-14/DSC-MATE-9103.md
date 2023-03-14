@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9103
+Description: Subject 9103 is a female human, with facial features displaying random spots. She is often seen wearing a purple cap with a headset and normal glasses. Additionally, subject 9103 wears a choker and LED gas mask as accessories. 

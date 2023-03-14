@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8738
+Description: Subject 8738 appears to be a human male with strange physical features. Orange stripes line his face, and multiple layers of green hair lay atop his head. The subject's eyes are obscured by thick "nerd" glasses, while a goggle sits on his forehead. He is often seen wearing a medical mask over his mouth, possibly to conceal more unusual features.

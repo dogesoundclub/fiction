@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8079
+Description: Subject 8079 appears to be a male, common chimpanzee (Pan troglodytes) measuring approximately 120 centimeters in height and weighing approximately 80 kilograms. The subject is distinguishable from other common chimpanzees by its habit of wearing a retro cap and a red scarf. The subject's personality is characterized by a tendency to become absent-minded and forgetful when engrossed in thought or during work-related activities.

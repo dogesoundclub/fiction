@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4943
+Description: DSC-MATE-4943 appears to be an average human male in his mid-thirties. He stands at 6 feet tall and has a lean build. His face features a frightened-looking mouth, blue clown eyes, and a red beanie. He also wears a goggle on his forehead, and a green cross earring on his left ear. DSC-MATE-4943 often wears a silver chain around his neck and habitually smokes cigarettes.

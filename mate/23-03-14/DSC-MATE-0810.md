@@ -1,0 +1,2 @@
+ID # : DSC-MATE-810
+Description: DSC-MATE-810 is a male monkey in the employ of a local bank as a banker. DSC-MATE-810's features include a frightened mouth and shades covering its eyes. Its forehead bears a two-color band and a goggle rests atop of it. It is accessorised with a gold chain around his neck and a whistle. DSC-MATE-810 is highly intelligent and an avid brainstormer, often coming up with new and creative solutions to various problems.

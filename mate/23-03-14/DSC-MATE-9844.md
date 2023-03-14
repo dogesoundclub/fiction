@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9844
+Description: Subject 9844 is a female human with spots on her face, often coupled with a charming smile. Their eyes are unremarkable, save for their standard-issue glasses. The subject's head is dyed green with curled edges, further enhanced by a two-color band on their forehead. Subject 9844 is often seen wearing a gold chain around their neck, which accompanies a lit cigarette. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3122
+Description: DSC-MATE-3122 is a male robot with green cyclops eye, ski goggle eyes, and a retro cap. It wears a jade earring, silver chain, and an LED gas mask as accessories. DSC-MATE-3122 is capable of performing human-like actions, such as driving a vehicle and interacting with humans with the aid of text-to-speech software.

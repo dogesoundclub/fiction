@@ -1,0 +1,2 @@
+ID # : DSC-MATE-636
+Description: DSC-MATE-636 appears as a male robot with a silver body and large, bulbous glasses, accessorized with a doge hat, gold earring, and a bright red scarf. The subject is programmed to serve as a beautician, offering a range of cosmetic services such as hairstyling, makeup application, manicures, and pedicures.

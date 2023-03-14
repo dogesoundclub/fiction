@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6368
+Description: DSC-MATE-6368 is a female human, approximately 38 years old, and stands 5'6" in height. DSC-MATE-6368's face is adorned with spotted markings, and they have a unique feature of red clown eyes. Their head is short and styled in a witch-like manner.

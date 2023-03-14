@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4572
+Description: Subject 4572 is a human male, standing at 5'11 inches and weighing approximately 170 pounds. His most distinctive features are the spots that adorn the entirety of his face and the constant smile that he seems to wear. His eyes are not abnormal; however, he does typically wear normal glasses. Subject is often seen wearing a purple cap with a headset, with a two-color band decorating his forehead and goggles resting atop them. He dons a jade earring on one ear and often carries a cigarette between his lips.

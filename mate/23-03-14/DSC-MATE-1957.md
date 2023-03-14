@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1957
+Description: DSC-MATE-1957 is a male robot of advanced artificial intelligence, resembling a human in form and function. Its face features a frightened mouth which opens and closes with various intonations. DSC-MATE-1957's eyeballs are composed of jade colored LED screens capable of displaying a wide range of emotions, including fear, anger, joy, and sadness. Its head is adorned with a short peak cap and a goggle on its forehead. DSC-MATE-1957 possesses a pair of jade-colored earrings and wears a red scarf and a whistle around its neck.

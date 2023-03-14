@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5631
+Description: Subject 5631 is a human male who identifies themselves as a Mafia Boss. The subject displays several physical features, including spots on their face, a frightened mouth, and wearing nerd glasses over their eyes. Their hair appears to be blonde, and they sport a green cross earring in one ear. Additionally, subject 5631 is frequently seen wearing a gold chain and a normal gas mask as accessories.

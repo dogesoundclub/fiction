@@ -1,0 +1,2 @@
+ID # : DSC-MATE-671
+Description: DSC-MATE-671 is a male rabbit of unknown origin. DSC-MATE-671 stands at a height of approximately 53cm with blue eyes and green hair in a purple cap. DSC-MATE-671 is also identified by the red victory band that it wears on its forehead, as well as a jade earring on its left ear. DSC-MATE-671 exhibits human-like mannerisms, making use of a gold chain around its neck and a whistle that it often carries around its neck.

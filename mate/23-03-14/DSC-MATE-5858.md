@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5858
+Description: Subject 5858 is a non-anomalous human female in her mid-20s, measuring 5'6". The subject displays unique facial spots and has striking orange sides of the head, which could be attributed to an abnormal pigmentation. The subject is often seen wearing a pair of jade earrings, which she claims are a family heirloom.

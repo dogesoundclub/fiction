@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5483
+Description: Item 5483 is a male monkey of the Circopithecus genus similar to the sooty mangabey breed. The separated pink head and red clown eyes of the subject make him easily recognizable, and even more so with the goggle on his forehead. He often wears a silver chain and can be found smoking a cigarette.

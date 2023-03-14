@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1764
+Description: DSC-MATE-1764 is a female human with jade LED eyes, short witch-like hair and wears a green cross earring. DSC-MATE-1764 often wears a silver chain as her accessory. DSC-MATE-1764 also displays a strong and decisive personality, often perceived as bossy or intimidating by others. This is, in fact, a result of her deep desire to accomplish tasks efficiently and with maximum effectiveness.

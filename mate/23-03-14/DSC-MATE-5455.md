@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5455
+Description: Subject 5455 is a human male of average height and weight. He exhibits an unusual feature in the form of orange stripes along his forehead and cheeks. His hair is covered by a retro cap which obscures the majority of his facial features. His eyes are hidden behind a pair of normal glasses, and he wears a jade earring in his left ear.

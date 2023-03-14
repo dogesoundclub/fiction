@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8102
+Description: DSC-MATE-8102 is an advanced, bipedal robot with a distinct green cyclops eye for a face. Its eyes resemble a pair of ski goggles and its head is adorned with a retro cap. DSC-MATE-8102 wears a red cross earring on one ear and a gold chain as an accessory around its neck. It stands around 6 feet in height and weighs approximately 400 pounds. 

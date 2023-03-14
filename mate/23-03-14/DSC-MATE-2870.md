@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2870
+Description: Subject 2870 is a human male, approximately 37 years old, with distinctive orange stripes on their face. They are often seen wearing a retro cap with a red victory band, as well as a jade earring and a silver chain. Their eyes are obscured by normal glasses, and they sometimes wear a normal gas mask.

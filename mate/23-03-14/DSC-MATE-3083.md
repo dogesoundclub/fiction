@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3083
+Description: DSC-MATE-3083 is a human male of average height and build with several notable physical features. DSC-MATE-3083 is typically seen wearing a traffic officer uniform while on duty. DSC-MATE-3083's face features orange stripes on their skin, and they wear normal glasses over their eyes. DSC-MATE-3083 has a unique two-color band on their forehead and wears a gold earring in each ear.

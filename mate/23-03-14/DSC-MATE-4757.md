@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4757
+Description: 4757 is a human male of average height and weight. The subject's head is styled with parted pink hair and is adorned with a medical mask covering their nose and mouth. The subject's most distinguishing feature is their blue clown eyes which, when combined with their vibrant appearance, gives them a striking and eccentric appearance. The subject's fashion sense is best described as high-risk and adventurous, with a predilection towards bright colors and bold accents. Subject 4757 is often seen accessorized with a red scarf.

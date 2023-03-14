@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9322
+Description: DSC-MATE-9322 is a female human, identified as a veterinarian by profession. DSC-MATE-9322's most notable features include a set of spots on her face and a constant smile. DSC-MATE-9322's eyes have been replaced with VR Jade LED implants, and she wears a tiara on her head. A red cross earring is present on DSC-MATE-9322's left ear, while a goggle is worn on her forehead.

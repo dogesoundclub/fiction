@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3381
+Description: DSC-MATE-3381 is a male tiger that works as an electrician, excessively adorned in gold jewelry and a doge hat. DSC-MATE-3381 stands at 1.9 meters and weighs approximately 250 kg. DSC-MATE-3381 features are characterized by an eccentric set of red clown eyes that glow in the dark. DSC-MATE-3381's physical attributes are augmented by anomalous powers that allow it to manipulate electricity.

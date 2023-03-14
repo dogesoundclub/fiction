@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5340
+Description: DSC-MATE-5340 is a female humanoid of human species. She has orange stripes on her face and purple lips. Her eyesight is normal, but wears glasses for protection. She carries herself with a gold chain and is almost always seen with a cigarette in her hand.

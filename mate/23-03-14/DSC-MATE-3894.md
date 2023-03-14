@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3894
+Description: Subject 3894 is a Caucasian male standing at 6'1 and weighing approximately 185lbs. His most notable feature is his ski goggle eyes that emit a hypnotic blue glow when he speaks, leading many to succumb to his persuasive rhetoric. Subject 3894 is always seen wearing a gold chain and a green cross earring on his left ear. Additionally, he often carries a candy stick that he absentmindedly licks while deep in thought.

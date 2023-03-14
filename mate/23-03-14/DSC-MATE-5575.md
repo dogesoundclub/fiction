@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5575
+Description: Subject 5575 appears to be a human female with striking facial features. The most notable of these is the orange stripes on their face, which seems to be a natural occurrence rather than a result of any anomalous activity. They also sport a bright smile and red clown eyes, which give them an almost jovial appearance. Subject 5575 tends to wear a retro cap and a gold earring, which adds to their unique look.

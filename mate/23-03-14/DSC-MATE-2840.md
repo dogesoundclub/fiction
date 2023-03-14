@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2840
+Description: DSC-MATE-2840 is a sentient monkey, designated as a Euclid-class object due to its abilities to manipulate its environment and craft tools. DSC-MATE-2840 measures approximately 1.2 meters in height and weighs approximately 60 kg. DSC-MATE-2840 possesses a unique ability to analyze and process information, and can recall details with incredible accuracy. This ability has been observed to be particularly useful in security measures.

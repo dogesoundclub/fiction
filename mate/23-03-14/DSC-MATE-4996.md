@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4996
+Description: Subject 4996 is a human male of average build and height, with a spot on his mouth that he habitually attempts to cover up using various types of makeup. He sports a bucket hat on his head, a gold earring in each ear, and a silver chain around his neck. He is often found with a cigarette in his hand, which he has been observed to chain-smoke.

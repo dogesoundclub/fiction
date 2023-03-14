@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6560
+Description: DSC-MATE-6560 is a male rabbit of unknown origin. It possesses a number of unique physical features, including VR Rainbow LED eyes, a goggle on its forehead, and a jade earring in each ear. It also wears a silver chain around its neck and often carries a candy stick as an accessory.

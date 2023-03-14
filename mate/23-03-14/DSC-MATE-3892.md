@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3892
+Description: DSC-MATE-3892 appears to be a male rabbit possessing a particularly strong sense of independence. Despite its job as a real estate agent, DSC-MATE-3892 has been known to disregard orders or take unauthorized leaves of absence. DSC-MATE-3892 is commonly observed wearing a bucket hat and horned rim glasses, with a pair of goggles on its forehead and a jade earring in one ear. It also carries a cigarette, which it is often observed smoking.

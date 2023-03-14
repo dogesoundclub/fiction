@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4755
+Description: 4755 is a human female with a distinct orange stripe pattern on her face, red lips, and bright orange eyebrows. On her head sits the likeness of a pink rabbit with a fluffy tail. These physical features, while unusual, are not anomalous in nature. It is her personality that has garnered the attention of Foundation personnel. 

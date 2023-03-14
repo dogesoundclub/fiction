@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2403
+Description: DSC-MATE-2403 is a male human identified as a real estate agent, standing at 6 feet tall with blue clown eyes and a two-color band on their forehead. They wear a single jade earring and a silver chain, as well as an LED gas mask.

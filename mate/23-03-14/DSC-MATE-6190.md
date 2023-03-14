@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6190
+Description: Subject 6190 is a female veterinary practitioner with red clown eyes, which are believed to be due to a genetic anomaly. The subject wears a headset with LED lights, a gold chain necklace, and a normal gas mask at all times while on duty. The reason for the gas mask is unknown and may be due to personal preference.

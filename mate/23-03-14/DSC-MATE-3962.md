@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3962
+Description: DSC-MATE-3962 is a male Tiger (Panthera tigris) standing 1.8 meters tall and weighing approximately 250 kilograms. The subject's most notable features include its blue clown eyes, green non-arranged head, and a pair of goggles affixed to its forehead. DSC-MATE-3962 has also been observed wearing a gold earring on its right ear and a gold chain around its neck.

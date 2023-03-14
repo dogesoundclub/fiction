@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4304
+Description: Item 4304 appears to be a humanoid robot standing at 6ft. It has a durable metallic body and a shiny red alarm for a head. Its eyes are a bright jade color with an LED light, its ears adorned with a red cross earring, and it is often seen wearing a gold chain and carrying a whistle.

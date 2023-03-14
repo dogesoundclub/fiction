@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9591
+Description: Subject 9591 is a human male, standing at 5'9" and weighing approximately 150lbs. The subject's eyes appear to be ski goggles, which are worn continuously on his forehead. The subject's mouth is covered by a medical mask, making facial expressions difficult to discern. The subject's ears are pierced, and he is often seen wearing a green cross earring. He is known to wear a silver chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4721
+Description: Subject 4721 is a female humanoid of the human species, with distinctive facial features that include spots on her skin and a perpetually cheerful smile. Her eyes are bright orange and have an unusual eyebrow shape that resembles a rabbit's. This is most likely due to a genetic anomaly. Subject 4721's head has also taken on a pinkish hue, with a pair of rabbit ears protruding from the top. She typically wears a gold chain around her neck as well as gold earrings.

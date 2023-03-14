@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5892
+Description: DSC-MATE-5892 is a male tiger of average size and appearance, with the exception of its eyes, which resemble those of a clown. DSC-MATE-5892 wears a bucket hat with a two-color band and a red cross earring. In addition, DSC-MATE-5892 carries a normal gas mask as an accessory.

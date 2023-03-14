@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2122
+Description: DSC-MATE-2122 appears to be a middle-aged human male with a smile as his primary facial feature. Their eyes are often obscured by nerd glasses, and their head is equipped with a headset with LED lights. A red victory band adorns their forehead, along with a goggle. Two accessories are consistently worn; a silver chain and an LED gas mask.

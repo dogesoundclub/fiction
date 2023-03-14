@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6810
+Description: DSC-MATE-6810 is a male robot designed to resemble a news anchor. Its body is approximately 1.9 meters tall and made predominantly of aluminum and plastic. DSC-MATE-6810's head is adorned with a short peak cap, and its face features a single large green cyclops eye. Instead of a mouth, DSC-MATE-6810 wears a medical mask. DSC-MATE-6810 also wears horn-rimmed glasses and a gold chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-523
+Description: DSC-MATE-523 is a male Tiger humanoid that has manifested from seemingly unknown means. DSC-MATE-523 works as a Delivery Driver for a local company, and at the time of writing, exhibits no anomalous behavior. DSC-MATE-523 has no distinct pattern to its physical appearance other than having a frightened mouth and VR rainbow LEDs for eyes. Its head is adorned with green hair in a purple cap and red cross-shaped earring. DSC-MATE-523 also wears a silver chain and often seen smoking cigarettes.

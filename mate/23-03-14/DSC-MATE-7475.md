@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7475
+Description: DSC-MATE-7475 is a male humanoid of the tiger species, who wears a doge hat on its head, gold earring on its ears and a medical mask on its mouth. DSC-MATE-7475 is often seen wearing a gold chain as an accessory. It is a fast food worker by profession and was discovered by Department of Unusual Occurrences while investigating claims of an animal in human attire.

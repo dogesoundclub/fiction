@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8848
+Description: DSC-MATE-8848 is a female humanoid, identified as a lawyer by profession. All attempts to measure any anomalous properties or attachments to any known anomalous entities have resulted in negative results. DSC-MATE-8848's anomalous behavior manifests itself in their strong emotional responses to individuals' distress and the environment around them.

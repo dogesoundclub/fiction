@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6272
+Description: DSC-MATE-6272 appears to be a human female of indeterminate age with distinctive orange stripes on her face. She possesses a pair of jade LED eyes and wears a goggle on her forehead at all times. DSC-MATE-6272 is also notable for her red cross earring, choker, and cigarette, which she smokes intermittently.

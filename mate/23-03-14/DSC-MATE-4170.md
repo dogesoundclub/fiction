@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4170
+Description: Subject 4170 appears to be a male tiger, standing at approximately six feet tall on hind legs. He has donned a red beanie on his head, with a two-color band emblazoned across his forehead. The tiger's normal glasses sit upon his face, giving him an intelligent aura. The beast also wears a gold earring through his left ear, and a red scarf around his neck. On occasion, he carries a whistle, seemingly for no other reason than personal preference.

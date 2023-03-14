@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9041
+Description: Subject 9041 appears to be a seemingly harmless human female, approximately 28 years of age. She is a successful fashion designer outside of Foundation knowledge, and uses her career as a means of accessing influential individuals within the fashion industry. Subject 9041 possesses a unique facial structure, characterized by red clown eyes, spotting, and a bold red lip. Additionally, she wears a green cross earring and a choker.

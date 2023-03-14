@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9832
+Description: DSC-MATE-9832 is a female human with distinctive brown hair in a 90s style cut. DSC-MATE-9832's most notable physical feature is the presence of numerous spots on their face, neck, and arms. Their iris color is permanently red and their sclera appears to be normal. They have a green cross earring on their right ear, and they wear a choker at all times.

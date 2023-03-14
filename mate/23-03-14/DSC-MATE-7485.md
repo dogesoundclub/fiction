@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7485
+Description: Subject 7485 appears as a male monkey standing at approximately 3 feet tall. Its mouth is in a constant state of fear, and it wears a pair of glasses over its normal eyes. The subject's ears are adorned with a gold earring and it's usually seen wearing a gold chain and carrying a candy stick.

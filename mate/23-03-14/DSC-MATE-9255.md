@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9255
+Description: DSC-MATE-9255 is a male human with a distinctive spot on their mouth. They are a fashion designer by trade and are known to wear an LED gas mask as their signature accessory. DSC-MATE-9255 has a penchant for unconventional problem-solving methods and is frequently observed using duct tape or paper clips to make repairs or rig up makeshift solutions.

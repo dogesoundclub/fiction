@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3541
+Description: DSC-MATE-3541 is a Caucasian male politician in his mid-50s, standing at approximately 6 feet tall. DSC-MATE-3541's most notable feature is the presence of orange stripes on the sides of his face. DSC-MATE-3541's eyes are blue with enlarged pupils resembling that of a clown. DSC-MATE-3541 is often seen wearing a short peak cap and a medical mask, and sports a gold earring in his right ear. DSC-MATE-3541 also wears a gold chain as an accessory.

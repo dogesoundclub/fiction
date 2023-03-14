@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8132
+Description: Item 8132 is a male rabbit standing at approximately 4 feet tall. Its head is adorned with a Doge hat, showing the symbol of the "doge" cryptocurrency. On its forehead rests a red victory band, and it sports a gold earring on its left ear. It is often seen with a red scarf, which it wears around its neck.

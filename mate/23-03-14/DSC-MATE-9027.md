@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9027
+Description: Subject 9027 is a male rabbit, standing at approximately 3 feet tall. They have a frightened mouth which makes them appear nervous and fearful of their surroundings. The subject wears a blue bandana around their head, with a red scarf around their neck, and a normal gas mask covering their face. The subject displays anomalous abilities in their natural talent for leadership. They possess the ability to take charge of any situation, whether it be in their personal life or within a group.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3934
+Description: 3934 is a male monkey of indeterminate species with a distinctive mohawk on their head. Their forehead is adorned with a pair of goggles, which have not been observed to hinder their vision. 3934 also wears a gold chain as an accessory which serves no apparent purpose.

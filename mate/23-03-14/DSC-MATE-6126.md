@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6126
+Description: DSC-MATE-6126 is a female human of average height and weight. Her distinguishing features include red lips and short, witch-like hair. DSC-MATE-6126's profession prior to Foundation containment was that of a mechanic.

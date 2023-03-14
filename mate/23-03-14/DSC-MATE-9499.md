@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9499
+Description: DSC-MATE-9499, also known as "The Banker", is a humanoid robot with an appearance resembling that of a 1930s banker. It stands at approximately 1.8 meters tall and weighs around 50 kilograms. The robot's face is dominated by a single large green cyclops eye and a mouth fixed in a permanent state of terror.

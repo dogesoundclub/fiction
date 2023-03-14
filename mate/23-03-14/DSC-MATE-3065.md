@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3065
+Description: DSC-MATE-3065 is a male rabbit with jade LED eyes and a signature Doge hat. It possesses a strong sense of independence and stubbornness, which could lead to humorous situations. Despite its small size, DSC-MATE-3065 can move heavy objects with relative ease, and this could pose a potential threat if allowed to roam freely.

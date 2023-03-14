@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9994
+Description: DSC-MATE-9994 is a male Rabbit humanoid standing at approximately 3 feet tall. DSC-MATE-9994 presents with distinctive blue clown eyes and a jade earring on its left ear. DSC-MATE-9994 is often seen with a blue bandana tied around its head, and a frightened mouth, frequently twitching into a nervous grin. Records and identification material have been discovered to verify DSC-MATE-9994 to be a former car salesman from a local dealership.

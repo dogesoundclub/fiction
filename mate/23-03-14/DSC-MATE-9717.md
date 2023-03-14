@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9717
+Description: Subject 9717 is a female human with blue clown-like eyes and a perpetually present smile on her green, disheveled head. An unusual marking on her forehead takes the form of goggle-like glasses that appear to have been permanently fused onto her skin. 9717 has a preference for gold earrings and often wears a silver chain around her neck. She is commonly seen holding a cigarette, which she'll use during her breaks to help cope with her stress.

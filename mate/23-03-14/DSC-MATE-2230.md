@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2230
+Description: DSC-MATE-2230 is a humanoid robot standing at 6 feet tall and weighing approximately 150 pounds. Its face consists of one large green cyclops eye and a mouth that appears to be in a constant state of fear or shock. While DSC-MATE-2230's eyes appear normal, it wears a pair of glasses as an accessory. Its head is adorned with a bucket hat, and it has a gold earring in its left ear. 

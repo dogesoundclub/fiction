@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6355
+Description: DSC-MATE-6355 is a humanoid creature identified as a male politician. It has orange stripes on its face along with a wide smile that matches its red clown eyes. DSC-MATE-6355 wears a Doge hat on its head, a gold earring on its ear, and a silver chain as an accessory. DSC-MATE-6355's physical appearance is consistent with that of a normal human male.

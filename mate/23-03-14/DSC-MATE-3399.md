@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3399
+Description: DSC-MATE-3399 appears to be an ordinary human male in his mid-twenties with orange stripes on his skin and blue clown eyes. His head is not arranged green and is adorned with a goggle on his forehead, and he wears a gold earring on his right ear. Additionally, DSC-MATE-3399 can be identified by the red scarf around his neck and a candy stick perpetually in his hand.

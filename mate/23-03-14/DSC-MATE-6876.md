@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6876
+Description: Item #: 6876 is a human female with distinct features that include red lips, orange eyebrows, a blonde Ushanka hat, and a medical mask. The subject also wears a choker as an accessory. Subject displays highly organized tendencies and delights in planning activities in advance. However, there is a spontaneous side that has been observed which can result in surprising turns of events. 

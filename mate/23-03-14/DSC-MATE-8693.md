@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8693
+Description: 8693 is a male human, approximately 35 years old. He has orange stripes on his face, and is commonly seen wearing a purple cap with a headset, green cross earring, and a gold chain. His eyes are obscured by normal glasses, and he is often seen wearing a normal gas mask.

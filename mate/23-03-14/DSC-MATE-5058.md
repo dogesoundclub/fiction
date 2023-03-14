@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5058
+Description: Item 5058 is a male tiger of unknown origin, standing at approximately 6 feet tall. He has dark brown fur with black stripes and a pair of nerd glasses over his striking, emerald green eyes. His head is adorned with a purple cap and messy green hair. Item 5058 also wears a gold earring on his left ear, a red scarf around his neck, and a normal gas mask around his snout.

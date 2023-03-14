@@ -1,0 +1,2 @@
+ID # : DSC-MATE-17
+Description: DSC-MATE-17 is a male humanoid of the species Homo sapiens. It stands at 1.83 meters tall and weighs approximately 70 kilograms. DSC-MATE-17 displays several unique features, including spots on its face, blue clown eyes, and a bucket hat atop its head. It is also known to wear a two-color band on its forehead, a gold earring in one ear, a red scarf around its neck, and carries a cigarette.

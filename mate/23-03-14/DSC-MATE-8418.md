@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8418
+Description: DSC-MATE-8418 appears to be a robotic humanoid, with a green cyclops eye and horned rim glasses acting as a substitute for its other eye. DSC-MATE-8418 is a farmer by trade, and is often seen wearing a red beanie with a goggle on its forehead, a red cross earring, and a gold chain. It also carries a whistle as an accessory.

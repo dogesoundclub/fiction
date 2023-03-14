@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1052
+Description: DSC-MATE-1052 is a male rabbit standing at approximately 30 cm in height. The subject is distinguishable by its retro cap and 2 color band on its forehead, as well as the gold chain and candy stick it carries as accessories. It displays no anomalous physical properties or abilities, aside from above average agility and reflexes for its size.

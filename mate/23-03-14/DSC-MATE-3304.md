@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3304
+Description: DSC-MATE-3304 is a male rabbit species with unusual physical characteristics. Its eyes are bright red, resembling those of a clown, and its head is adorned with a retro cap. Its ears are pierced and decorated with a jade earring. DSC-MATE-3304 has two accessories, a silver chain and a cigarette, which it is known to carry around in its mouth.

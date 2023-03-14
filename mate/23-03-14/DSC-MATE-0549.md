@@ -1,0 +1,2 @@
+ID # : DSC-MATE-549
+Description: DSC-MATE-549, also known as "Dr. Stripes," appears to be a human male in his mid-30s, with orange stripes on his face and a smiling expression. DSC-MATE-549 is often seen wearing a red scarf and carrying a candy stick as a prop.

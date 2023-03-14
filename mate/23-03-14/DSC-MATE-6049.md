@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6049
+Description: Item 6049 resembles a male rabbit with a green head that has not been arranged. Its eyes are covered with Horned Rim Glasses, and it can be seen wearing a Red Scarf as an accessory. The item has an affinity towards Normal Gas Masks and is commonly seen wearing one. Additionally, Item 6049 has a unique Gold Earring attached to one ear. 

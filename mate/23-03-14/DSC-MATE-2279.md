@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2279
+Description: DSC-MATE-2279 is a male monkey of an unknown species, approximately 0.8 meters in height. Its head is adorned with a "Doge" themed hat, and a two-color band adorns its forehead. DSC-MATE-2279 is often seen with a jade earring hanging from one of its ears and holding a cigarette in its hand.

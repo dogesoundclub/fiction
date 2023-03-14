@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3200
+Description: DSC-MATE-3200 appears to be a human female of approximately [REDACTED] years of age. DSC-MATE-3200's most notable physical features include her red lips and orange eyebrows. DSC-MATE-3200 wears gold earrings, a choker, and a set of goggles on her forehead at all times. DSC-MATE-3200 frequently smokes cigarettes and appears to enjoy the act of showing off or impressing others.

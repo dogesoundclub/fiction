@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6669
+Description: DSC-MATE-6669 appears to be a humanoid Tiger, standing at 6 feet tall. It is capable of fluent speech and is highly proficient in programming languages. DSC-MATE-6669 is typically seen wearing a Doge hat on its head, normal glasses on its eyes, and a Red Cross earring on its ears. It also wears a gold chain and carries a whistle as accessories.

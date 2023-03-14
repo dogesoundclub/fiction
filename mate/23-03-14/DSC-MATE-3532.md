@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3532
+Description: DSC-MATE-3532 is a human woman in her late twenties, standing at 5'5" (165 cm) tall with a slim build. DSC-MATE-3532 has blue clown eyes, with a metal blue head and one purple lip. Their appearance is very distinctive and unlikely to be mistaken for any other individual. DSC-MATE-3532 also carries a cigarette with them at all times.

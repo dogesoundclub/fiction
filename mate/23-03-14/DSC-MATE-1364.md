@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1364
+Description: Subject 1364 appears to be a young female of the human species. She has spots on her face and purple-colored lips. Her eyes are fitted with VR Rainbow LED technology. Her head is orange, and she wears a jade earring on her ear. She is often seen sporting a medical mask and choker.

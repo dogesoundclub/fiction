@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4437
+Description: DSC-MATE-4437 is a male human with distinctive orange stripes on his skin that have yet to be explained by medical professionals. In addition, DSC-MATE-4437's head appears to be a shade of green that is not a natural human skin color. DSC-MATE-4437 also wears normal glasses and a red victory band on his forehead, along with a gold earring in his left ear. DSC-MATE-4437 is often seen with a red scarf accessory.

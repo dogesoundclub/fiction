@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1634
+Description: DSC-MATE-1634 is a male anthropomorphic rabbit standing 1.2 meters tall. It wears a doge hat on its head, and sports a gold earring on its left ear. DSC-MATE-1634 has a red scarf draped around its neck and is frequently seen smoking a cigarette.

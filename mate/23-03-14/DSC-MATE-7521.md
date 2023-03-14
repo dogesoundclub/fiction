@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7521
+Description: DSC-MATE-7521 is a male tiger, standing at 6ft tall and weighing approximately 220lbs. Its facial expression constantly appears frightened, and its eyes are multi-colored VR LED lights. DSC-MATE-7521 wears a blue bandana on its head, has goggles resting on its forehead, a red scarf hanging around its neck, and an LED gas mask.

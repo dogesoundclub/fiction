@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8110
+Description: DSC-MATE-8110 appears to be a robot of unknown make and model, resembling that of an industrial mechanic. The robot stands approximately 6 feet tall and weighs approximately 300 pounds. DSC-MATE-8110's face features a frightened mouth and horned rim glasses. Its head resembles a red alarm, and its ears are adorned with a gold earring. The robot's mouth is covered by a medical mask, and it sports a gold chain as its primary accessory.

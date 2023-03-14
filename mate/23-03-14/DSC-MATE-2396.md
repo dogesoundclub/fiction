@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2396
+Description: DSC-MATE-2396 is a male human with a distinctive mouth spot and a doge hat. He prefers to wear a red victory band on his forehead and a gold earring in each ear. DSC-MATE-2396 is also often seen wearing a red scarf and an LED gas mask which obscures his face. Further attempts to identify DSC-MATE-2396 have been unsuccessful.

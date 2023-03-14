@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7285
+Description: DSC-MATE-7285 is a male human, with distinctive bright orange stripes on their cheeks and forehead. Further notable physical features include a peak spike hairstyle, green cross earring, and a red scarf. Subject typically wears a gas mask for reasons unknown, but has exhibited no signs of respiratory deficiencies or other associated health concerns. DSC-MATE-7285 works as a fashion designer, and while their creations are often described as avant-garde and innovative, they are typically well-received by their clients. 

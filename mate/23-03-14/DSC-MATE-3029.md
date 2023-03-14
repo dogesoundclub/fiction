@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3029
+Description: DSC-MATE-3029 is a human female of indeterminate age, appearing to be in her mid-twenties, standing at 1.73 meters in height, and weighing approximately 59 kilograms. DSC-MATE-3029 possesses distinct markings in the form of spots on her face, along with orange eyebrow eyes. DSC-MATE-3029 is often seen wearing a medical mask concealing her facial features, with a tiara on her head and a red cross earring in each ear. DSC-MATE-3029 also possesses a gold chain, which she wears around her neck.

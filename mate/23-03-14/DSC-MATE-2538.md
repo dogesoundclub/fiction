@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2538
+Description: DSC-MATE-2538 appears to be a human male in his mid-30s, with a VR Jade LED replacing both of his eyes. DSC-MATE-2538 opts to wear an unremarkable hoodie and a medical mask over his mouth, claiming that it helps him "focus". An additional gold chain can be found around his neck, however its significance remains unknown.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8168
+Description: Subject 8168 is a humanoid entity that adopts the form of a female human. With a bright smile and blue clown eyes, this individual often draws attention to herself. The subject's head appears similar to that of a 00s school girl, with red cross earrings adorning both ears. Subject 8168 is often seen wearing a gold chain around her neck and an LED gas mask that obscures most of her face.

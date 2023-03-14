@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6803
+Description: Item #6803 appears to be a well-respected human male known for his job as a News Anchor. They have normal eyesight, but can often be seen wearing glasses which they are frequently adjusting. He has a shaven head and can often be seen wearing a monk's robe, indicating their interest in spirituality. Additionally, he has a gold earring and gold chain which occasionally glint under lighting conditions.

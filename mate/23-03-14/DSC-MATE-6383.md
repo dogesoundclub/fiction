@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6383
+Description: Subject 6383 is a human male of average build and height, with an unusual green layered ogre-like head. The most notable feature of his face is a mouth spot that appears to be a birthmark. He has well-groomed black hair and piercing green eyes. The ears of 6383 bear a jade earring, and he is frequently seen wearing a gold chain.

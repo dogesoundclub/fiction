@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3932
+Description: Subject 3932 is a male robot designed to fulfill the role of a theater manager. The subject stands at approximately 6 ft 3 in and weighs 250 lbs. Its head is adorned with a retro cap, and its face features a single green Cyclops eye. The subject's body is composed of a metallic alloy, and its limbs are articulable, enabling it to move with agility and precision.

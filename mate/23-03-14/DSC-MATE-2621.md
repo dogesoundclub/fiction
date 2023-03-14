@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2621
+Description: DSC-MATE-2621 is a humanoid entity, appearing to be a human male of average height and build. Its most notable feature is a series of orange stripes on its face. Its head is covered in green layers, and it wears normal glasses over its eyes. DSC-MATE-2621's mouth is typically obscured by a medical mask, and it often wears a red scarf around its neck.

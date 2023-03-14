@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9950
+Description: DSC-MATE-9950 is a human female who works as a train driver. She wears a purple cap with a headset, and has a goggle on her forehead. Her lips are colored purple, and she has orange eyebrows. She wears a red cross earring and a choker. DSC-MATE-9950's mouth is almost always covered by a medical mask.

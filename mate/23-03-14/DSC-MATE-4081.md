@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4081
+Description: DSC-MATE-4081 is a female human news anchor with orange stripes on its face, purple lips, blond hair in an ushanka, green cross earrings, and a silver chain around its neck. Its eyes are normal, and it wears prescription glasses.

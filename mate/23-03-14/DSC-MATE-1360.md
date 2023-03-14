@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1360
+Description: DSC-MATE-1360 appears to be a male Monkey, standing at approximately 4 feet tall. It wears normal glasses and is often seen wearing a Doge hat along with a gold chain and carrying a candy stick. DSC-MATE-1360 possesses highly advanced cognitive abilities beyond that of a typical monkey, with an IQ of approximately 150. It has also demonstrated a remarkable ability to use complex tools and solve problems, often using its highly analytical and logical personality to devise original solutions.

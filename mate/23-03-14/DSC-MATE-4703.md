@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4703
+Description: DSC-MATE-4703 is a male human of average height and build, with distinctive spot markings on their face. Subject 4703's most notable feature is the permanent smile on their face, which they also display in their official photograph. The subject's eyes are a remarkable shade of green and emit a faint jade LED glow, which is currently unexplained. 

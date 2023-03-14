@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9891
+Description: DSC-MATE-9891 is a male monkey of the species Macaca fascicularis, standing approximately 50cm tall and weighing approximately 5kg. DSC-MATE-9891 is capable of speaking fluently in several human languages and has a proficiency in programming languages. DSC-MATE-9891's black hair on its head is normal and well-groomed.

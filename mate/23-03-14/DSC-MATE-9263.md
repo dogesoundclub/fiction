@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9263
+Description: DSC-MATE-9263 appears to be a male monkey of an unidentified species with highly unusual physical characteristics. Its most notable feature is its blue clown eyes that often give the impression that it is constantly smiling. DSC-MATE-9263’s head is parted pink and has a two-color band feature on its forehead. In addition to these physical features, DSC-MATE-9263 also has gold earrings in both ears.

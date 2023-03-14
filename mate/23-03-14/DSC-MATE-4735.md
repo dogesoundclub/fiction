@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4735
+Description: DSC-MATE-4735 is a male tiger that stands at a height of 1.8 meters and weighs approximately 330 pounds. DSC-MATE-4735 mainly wears a purple cap with a headset, a medical mask, and a silver chain. The tiger's mouth appears frightened, likely a result of their forgetfulness and absent-mindedness. DSC-MATE-4735's ears are adorned with a single red cross earring. The tiger's forehead features a two-color band, primarily dark blue and silver.

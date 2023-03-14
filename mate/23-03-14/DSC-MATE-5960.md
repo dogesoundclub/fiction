@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5960
+Description: Subject 5960 is a male human, measuring approximately 6 feet in height. The most notable feature of subject 5960 is the orange stripes adorned across their face. Their eyes are concealed beneath ski goggles, and they often wear a retro cap on their head. A gold earring is pierced through their left ear, and subject 5960 is frequently seen wearing a gold chain approximately 2 feet in length. 

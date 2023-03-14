@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5795
+Description: Subject 5795 is a male human, appearing to be in their early thirties. They wear nerd glasses and a hoodie, with a red scarf as their primary accessory. Subject 5795 displays an organized and reliable personality, but can be stubborn at times. They have difficulty with change, causing instances of humorous situations when faced with unexpected challenges.

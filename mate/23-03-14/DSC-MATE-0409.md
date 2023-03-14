@@ -1,0 +1,2 @@
+ID # : DSC-MATE-409
+Description: Subject 409 is a human male with distinct facial features. Their skin is covered in small, green spots, and their mouth often displays signs of fear or anxiety. The subject wears a pair of nerdy glasses over their eyes, and their head is adorned with numerous layers of green hair. A green cross earring is present on each of their ears, and they typically wear a red scarf and carry a candy stick as accessories.

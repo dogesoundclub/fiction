@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5204
+Description: DSC-MATE-5204 is a male robot designed to function as a farmer. It stands at 1.8 meters tall and weighs approximately 150 kilograms. DSC-MATE-5204 has a retro cap and normal glasses as its main facial features. Additionally, it wears a gold chain as an accessory.

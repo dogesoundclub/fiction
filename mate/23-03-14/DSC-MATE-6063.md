@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6063
+Description: 6063 is a male tiger of average size and appearance, with distinct green hair in a purple cap. They are always seen wearing horned-rimmed glasses, a silver chain, and carrying a candy stick. Despite being an animal, 6063 possesses human-like intelligence and the ability to communicate in English.

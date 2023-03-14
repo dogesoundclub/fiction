@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6574
+Description: 6574 is a male rabbit with a unique hooded sweatshirt in shades of black and white. The sweatshirt has a two-color band on the forehead area, which serves as a distinctive identification feature. The rabbit's eyes are unknown due to the hood. It is also known to possess a whistle as an accessory, which it uses to attract attention for unspecified reasons.

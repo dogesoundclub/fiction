@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1322
+Description: DSC-MATE-1322 is a human female, approximately 48 years of age, standing at 5'10" in height, and weighing approximately 160lbs. DSC-MATE-1322 possesses a unique appearance, featuring orange stripes on their face, a red lip, and a forehead with two color bands. They also wear a green cross earring on each ear and a choker around their neck. DSC-MATE-1322's most notable attribute is their attachment to smoking cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-571
+Description: DSC-MATE-571 is a male monkey of an unidentifiable species. They have red clown eyes and wear a police cap, along with a silver chain accessory. DSC-MATE-571 speaks fluent English and has shown an ability to understand other languages.

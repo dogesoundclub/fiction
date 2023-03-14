@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7310
+Description: Item 7310 is a robotic entity with an appearance of a male beautician. It has prominently visible VR Rainbow LED eyes and a green unarranged head. Along with that, it has a gold earring on both of its ears. Item 7310 is programmed with advanced skills in the field of beauty and fashion, possessing an array of salon equipment and cosmetics. Its precise construction and capabilities suggest that it is of advanced engineering.

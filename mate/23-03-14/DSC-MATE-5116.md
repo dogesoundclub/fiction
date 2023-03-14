@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5116
+Description: DSC-MATE-5116 is a male Tiger, standing at a height of 2.5 meters and weighing approximately 250 kg. Its face features a frightened mouth expression, while wearing normal glasses. The entity's head is adorned with green hair, concealed by a purple cap, and bears a two-color band on its forehead. DSC-MATE-5116 also wears a gold earring and frequently carries a lit cigarette as an accessory.

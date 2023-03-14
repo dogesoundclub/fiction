@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8004
+Description: DSC-MATE-8004 is a humanoid robot resembling a human doctor. DSC-MATE-8004 stands at approximately 1.8 meters in height and has ski goggle-like eyes and a headset with a LED light. DSC-MATE-8004 is frequently seen wearing a red scarf and carrying a whistle around its neck.

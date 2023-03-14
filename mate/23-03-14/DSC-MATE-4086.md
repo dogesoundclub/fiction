@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4086
+Description: Subject 4086 is a female human of average height and build, with long black hair and a bright, infectious smile. She is often seen wearing a distinctive jade earring on her right ear and a choker around her neck. Additionally, she is rarely seen without a cigarette in hand. Despite her ordinary appearance, subject 4086 possesses an unusual and powerful gift - the ability to imbue her clothing designs with incredible and unpredictable magical properties.

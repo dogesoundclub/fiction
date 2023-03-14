@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5241
+Description: Subject #5241 is a human male with distinctive orange stripes on their face. Their mouth appears to be in a constant state of fear, although it is unclear as to why. Their eyes are obscured by ski goggles, which they wear even when they are not on the slopes. They also wear a retro cap, and a goggle is attached to their forehead. A gold earring adorns each of their ears, and they wear a red scarf as an accessory.

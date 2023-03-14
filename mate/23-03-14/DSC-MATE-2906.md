@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2906
+Description: Subject 2906 is a male tiger, standing at approximately 7 feet in height and weighing roughly 400 pounds. They possess distinct physical traits, such as nerd glasses over their piercing green eyes and a red cross earring in their left earlobe.

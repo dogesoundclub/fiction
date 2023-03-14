@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2636
+Description: DSC-MATE-2636 appears to be a female humanoid of the Homo sapiens species with a unique set of physical features. Her face is covered in black and white spotted marks, with purple lips and blue clown-like eyes. DSC-MATE-2636 wears a purple cap with a headset, gold earring on her left ear, and a black choker around her neck. She is often seen wearing a normal gas mask, which she uses in her occupation as a firefighter.

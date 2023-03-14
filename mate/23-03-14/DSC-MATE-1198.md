@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1198
+Description: DSC-MATE-1198 appears to be a human male in his late twenties, with a distinct mohawk haircut and a gold earring in his left ear. His eyes are covered by normal glasses, and he is often seen wearing a silver chain around his neck. Additionally, DSC-MATE-1198 is frequently seen with a candy stick in his mouth.

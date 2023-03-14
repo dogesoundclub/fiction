@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3293
+Description: DSC-MATE-3293 is a male rabbit measuring approximately 50 cm in length and weighing 2 kg. It possesses a police cap on its head and a jade earring on each ear. DSC-MATE-3293's mouth is notably in a constant state of fright, which may be related to its previous occupation as a firefighter.

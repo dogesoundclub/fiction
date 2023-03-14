@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9452
+Description: DSC-MATE-9452 is a male humanoid with facial features, including spots and a smile. Possesses red clown eyes and a metal purple head. DSC-MATE-9452 is a Human-Species entity with unknown origins, discovered in ████████████ , Texas, in the year ████. The subject's unique features prove their strong ties with Reality-Bending Anomalies. It is still unknown as to the extent of DSC-MATE-9452's ability to influence reality and memories. 

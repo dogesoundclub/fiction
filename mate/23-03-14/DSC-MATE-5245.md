@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5245
+Description: DSC-MATE-5245 is a male tiger of unknown origin, measuring approximately 2.5 meters in height when standing upright. DSC-MATE-5245 displays an affinity for fire, often seeking out sources of flame and heat. DSC-MATE-5245 is also known to emit a low growling noise when in close proximity to fire. DSC-MATE-5245's eyes and other physical characteristics are currently unknown.

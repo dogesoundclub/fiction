@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1883
+Description: Subject 1883 is a humanoid entity, identified as a human male, with a noticeable smile and glasses. Their most distinguishable features are a red scarf and a candy stick, which they carry around at all times. They present themselves as a mechanic, although there is no documented proof to support this claim.

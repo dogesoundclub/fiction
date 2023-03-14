@@ -1,0 +1,2 @@
+ID # : DSC-MATE-149
+Description: DSC-MATE-149 is a humanoid in appearance and has claimed to be a human. It is a male, approximately 35 years of age, and stands at 1.8 meters in height. Its most notable features include a spotted face, nerd glasses, and a two-color band on its forehead. Additionally, it sports a single gold earring on its right ear, a red scarf around its neck, and an LED gas mask.

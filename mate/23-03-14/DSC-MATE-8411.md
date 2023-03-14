@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8411
+Description: DSC-MATE-8411 is a female human with distinct physical features, including a bright red lip, rainbow LED eyes, and an unarranged green head. DSC-MATE-8411 also wears a red cross earring, a gold chain, and is often seen smoking a cigarette.

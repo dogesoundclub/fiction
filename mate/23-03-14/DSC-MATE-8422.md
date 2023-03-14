@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8422
+Description: Subject 8422 is a human male with distinctive orange stripes on their face. The subject's head is composed of various green layers, giving it an almost reptilian appearance. The subject wears normal glasses and has a green cross earring on one ear. They are often seen with a candy stick in their hand, which appears to calm them during situations of stress.

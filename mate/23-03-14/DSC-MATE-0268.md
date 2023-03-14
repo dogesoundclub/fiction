@@ -1,0 +1,2 @@
+ID # : DSC-MATE-268
+Description: Subject 268 is a human male standing at 6'5" with a muscular build. His face is marked with spotted blemishes, and his eyes are concealed behind ski goggles. He sports a parted pink hair that is always kept tidy. The subject has a gold chain which he often wears on his neck, and a goggle on his forehead that he uses in his criminal operations. 

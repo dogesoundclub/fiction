@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5649
+Description: DSC-MATE-5649 is a human female, appearing to be in her mid-40s, with orange stripes on her face and a perpetual smile. Their head is a non-organic, metallic blue substance which cannot be identified, making it impossible to conduct any medical examinations on the brain without risking damage.

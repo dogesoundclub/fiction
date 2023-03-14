@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7820
+Description: DSC-MATE-7820 appears to be a young adult human female of average height and weight. DSC-MATE-7820 is identified by her bright red lipstick, orange eyebrows, and orange hair worn in a side-cut style. The subject's forehead is marked with two colored bands, and she wears a black choker around her neck. Additionally, DSC-MATE-7820 wears a LED gas mask, which obscures her face when activated.

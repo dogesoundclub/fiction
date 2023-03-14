@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5224
+Description: DSC-MATE-5224 appears to be a human male in his late 20s with spots on his face. His eyes are blue clown eyes, and he wears a green head covering that is not arranged properly. DSC-MATE-5224 wears a medical mask over his mouth and a silver chain around his neck. He works as a delivery driver for [REDACTED] and has exhibited no abnormal behavior during the course of his employment.

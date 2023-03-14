@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6400
+Description: DSC-MATE-6400 is a humanoid entity of the female sex identified as a practicing lawyer in the United States of America. DSC-MATE-6400 is visually distinct due to the presence of numerous spots on its face, which are localized primarily around the cheekbones and nose. DSC-MATE-6400 also has a seemingly permanent smile on its face, adding to its appearance of approachability.

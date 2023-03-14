@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8180
+Description: DSC-MATE-8180 appears to be a human male, with blue clown eyes and a mohawk hairstyle. He has numerous spots on his skin, and wears a medical mask over his mouth. A pair of goggles is affixed to his forehead, while a Jade earring adorns his left ear. DSC-MATE-8180 is frequently seen wearing a red scarf around his neck.

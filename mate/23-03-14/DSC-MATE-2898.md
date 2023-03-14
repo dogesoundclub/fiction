@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2898
+Description: Subject 2898 is a male rabbit with a distinct appearance. The subject sports a pair of nerd glasses over its beady black eyes and a Doge hat atop its head, with a red scarf and jade earring completing the ensemble. Additionally, subject 2898 always carries a whistle, the purpose of which is unknown.

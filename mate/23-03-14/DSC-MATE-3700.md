@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3700
+Description: DSC-MATE-3700 is a male Eastern Cottontail rabbit of approximately 35 years of age with distinctive normal glasses and a blue bandana on their head. Additionally, DSC-MATE-3700 wears a red scarf and an LED gas mask. The gas mask is to be removed under no circumstances.

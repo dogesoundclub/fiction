@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9159
+Description: Subject 9159 is a human male, approximately 39 years of age and stands at six feet tall. He has orange stripes on his face, which are believed to be of unknown origin, and is often seen sporting a retro cap with a pair of goggles resting on his forehead. He is a licensed veterinarian, and is fully capable of performing various medical procedures on both human and animal subjects.

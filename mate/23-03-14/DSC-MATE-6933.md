@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6933
+Description: Item 6933 is a male rabbit. It stands at 32 cm tall and weighs approximately 2 kg. It has a pair of large, round glasses perched on its nose and a frightened expression on its mouth. Item 6933 can usually be found wearing a silver chain around its neck and a jade earring in its left ear.

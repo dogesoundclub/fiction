@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7743
+Description: DSC-MATE-7743 is a female of the human species, with the appearance of a late 20s to early 30s age range. Her most notable and noticeable features are the orange stripes and purple lip present on her face. Her eyes are VR Jade LED and skin tone is a pale white complexion. DSC-MATE-7743 sports a retro cap, with a goggle attached to her forehead. Her mouth is consistently covered with a medical mask.

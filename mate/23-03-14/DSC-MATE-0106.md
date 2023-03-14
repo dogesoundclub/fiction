@@ -1,0 +1,2 @@
+ID # : DSC-MATE-106
+Description: DSC-MATE-106 is a human male, specializing in firefighting. His most notable feature is his constant smile, which is often seen behind his medical mask. DSC-MATE-106 is always seen wearing a pair of nerdy glasses, a jade earring on one ear, and a pair of unconventional goggles placed on his forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-881
+Description: DSC-MATE-881 is a male monkey of the species Macaca fuscata. DSC-MATE-881 is approximately 1.5 meters tall and weighs approximately 50 kilograms. DSC-MATE-881 is often seen wearing a headset with LED lights and horn-rimmed glasses, which appear to be used as correctional eyewear. 

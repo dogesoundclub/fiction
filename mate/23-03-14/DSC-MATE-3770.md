@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3770
+Description: Subject 3770 is a female humanoid of the Homo Sapiens species. Their most notable physical features include purple lips, red clown eyes, and a red cross earring on each ear. Subject 3770 is often seen wearing a medical mask, only removing it when necessary to eat or drink. They also wear a choker at all times.

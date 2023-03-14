@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2966
+Description: Subject 2966 is a human male with spots on his face. He is often seen wearing nerd glasses and a purple cap with a headset. He has green cross earrings and is often seen wearing a gold chain. His most notable feature, however, is his habit of carrying around a candy stick.

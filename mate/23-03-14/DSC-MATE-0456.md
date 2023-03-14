@@ -1,0 +1,2 @@
+ID # : DSC-MATE-456
+Description: Subject 456 is a male rabbit of average size with VR jade LED eyes and a distinctive purple cap with a headset. The subject exhibits perpetual fear with a frightened mouth feature that is constantly in motion. Subject 456 has been known to speak with authority when engaged in professional activities, but this is quickly overshadowed by his timid and hesitant demeanor in social situations.

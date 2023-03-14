@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8765
+Description:  Officer 8765 is a human female, approximately 5'8" tall with orange stripes on her face. She often wears a retro cap and silver chain, as well as normal glasses. Her most noticeable accessory, however, is the cigarette that is always dangling from her lips.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8157
+Description: Subject 8157 is a humanoid male of unknown origin. He possesses a distinct mouth spot, a trait exhibited by only a small percentage of the human population. The subject's eyes are unremarkable, except for the fact that he wears normal glasses at all times. Additionally, he wears a police cap on his head, a two-color band on his forehead, and a jade earring on each ear. He is often seen wearing a red scarf and smoking a cigarette.

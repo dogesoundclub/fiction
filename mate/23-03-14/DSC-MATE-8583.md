@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8583
+Description: DSC-MATE-8583 is a human female of average height and build. Their face features a distinctive pattern of orange stripes and purple lips, which are known to evoke feelings of happiness and pleasure in those who observe them. DSC-MATE-8583's eyes are also notable, resembling those of a clown and appearing a iridescent blue.

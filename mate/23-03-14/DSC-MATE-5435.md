@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5435
+Description: DSC-MATE-5435 appears to be a male tiger in its late twenties, which has gained the ability to take on human form. DSC-MATE-5435 is often found wearing a purple cap with a headset, a red cross earring, a gold chain and red clown noses framing its eyes. The tiger’s human-like face is seen to show a constant state of fear with a frightened mouth.

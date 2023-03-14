@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4844
+Description: Subject 4844 is a human male, appearing to be around the age of 35. It possesses orange stripes across its face, along with red clown eyes and a medical mask covering its mouth. Its head is adorned with a bucket hat, and on its forehead are two color bands that separate its goggles from the rest of the headwear. Subject 4844 also sports a jade earring and a gold chain.

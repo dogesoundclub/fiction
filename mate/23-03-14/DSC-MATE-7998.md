@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7998
+Description: DSC-MATE-7998 is a human male of average height and weight. Its most distinctive feature is a pair of ski goggles serving as its eyes. DSC-MATE-7998 wears a short-peak cap on its head, with a gold earring on each ear. It is often seen wearing a gold chain and smoking a cigarette.

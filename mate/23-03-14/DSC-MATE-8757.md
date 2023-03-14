@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8757
+Description: Subject 8757 is a human male farmer with a distinct mouth spot visible on the lower lip. He dons a short peak cap, with a pair of goggles kept on his forehead for ease of access. The subject's most striking feature is his eyes, composed of LED lights in a rainbow pattern, reportedly to provide better vision during the night. 

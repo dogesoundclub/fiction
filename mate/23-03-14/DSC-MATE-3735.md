@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3735
+Description: Agent 3735 is a Caucasian female of average height with distinctive features that include spots on her face, a purple lip, and blue clown eyes. Her head is adorned with a wing and she has green cross earrings on her ears. She is known to wear a gold chain and an LED gas mask as accessories.

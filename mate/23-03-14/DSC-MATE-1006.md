@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1006
+Description: 1006 is a male tiger, standing at 6 feet tall and weighing approximately 400 pounds. He is known to exhibit a frightened mouth and bright, VR Rainbow LED eyes. The subject is frequently seen wearing a red beanie and carrying a whistle as a method of communication with his criminal organization.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5225
+Description: DSC-MATE-5225 is a human female, with notable appearance features such as spots on face feature #1 as well as a purple lip, and a forehead goggle. Additionally, DSC-MATE-5225 has VR rainbow LED eyes, with pig tails for hair, jade earrings for ears, and a choker for an accessory. 

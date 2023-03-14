@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7619
+Description: DSC-MATE-7619 is a humanoid entity, appearing as a monkey of the male sex, roughly 1.2m in height. Its body appears to be that of a Rhesus monkey (Macaca mulatta), but with several anomalous modifications. DSC-MATE-7619's head is covered with a blue bandana, and it wears horned rim glasses on its face. The entity also wears a jade earring on its right ear, a silver chain around its neck, and carries a candy stick at all times.

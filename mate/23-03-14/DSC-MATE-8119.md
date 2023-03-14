@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8119
+Description: DSC-MATE-8119 is a human male standing at approximately 1.8 meters in height, identified as a real estate agent by his personal documentation. DSC-MATE-8119's face is covered with spots resembling those of a Dalmatian, accentuated by his red clown eyes. DSC-MATE-8119 commonly wears a hat bearing the meme of the Shiba Inu dog breed, and accessorizes with a gold chain and a candy stick.

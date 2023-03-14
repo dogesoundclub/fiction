@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7852
+Description: DSC-MATE-7852 appears to be a common monkey, standing at approximately 0.5 meters tall with a conspicuous parted pinkish fur on its head. The subject has also been observed wearing a gold earring and a gold chain. The subject's most remarkable characteristic, however, is its tendency towards extreme attention to detail. This manifests in many observable ways.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9986
+Description: DSC-MATE-9986, also known by his chosen name "Stripes," is a Caucasian male in his early thirties. DSC-MATE-9986 stands at 185 cm in height, with a lean muscular build. DSC-MATE-9986 possesses orange tiger-like stripes running down the sides of his face, unlike any known human genetic mutation. Stripes' most notable accessory is a pair of ski goggles over his eyes, and a golden chain around his neck. DSC-MATE-9986 is also known to wear a short peak cap and a single jade earring.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6295
+Description: DSC-MATE-6295 is a monkey of the species Macaca fascicularis, standing approximately 1.2 meters in height and weighing 15 kg. DSC-MATE-6295 was initially reported to the foundation after reports of unusual predictions by local residents. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2879
+Description: 2879 is a humanoid entity identified as a female fashion designer. 2879 stands 5'4" tall and has distinct orange stripes on the face and green hair that curl at the edges. The entity also has a two-color band on its forehead and red clown eyes, which can be unsettling to those who make eye contact. 2879 typically wears a choker accessory, but its most notable feature is the LED Gas Mask that it refuses to remove.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5844
+Description: DSC-MATE-5844 appears to be a human male of average height and build, identified as a lawyer. The subject is adorned with a red scarf and a gas mask, the latter of which interferes with speech and facial recognition. DSC-MATE-5844 often wears a retro cap, a goggle on its forehead, and nerd glasses. The subject displays a frightened facial expression, with its mouth often agape.

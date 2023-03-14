@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7367
+Description: DSC-MATE-7367 is a female human with distinctive facial features including orange stripes, blue clown eyes, and a large smile. DSC-MATE-7367's head is blonde but features a single wing protruding from the right side. She wears a medical mask over her mouth obscuring any further facial features. DSC-MATE-7367's forehead features a goggle on a headband and she wears a choker around her neck. A single green cross earring adorns her left ear.

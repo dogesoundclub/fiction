@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4257
+Description: DSC-MATE-4257 is a male monkey, identified as belonging to the Macaque species. When not wearing his uniform, DSC-MATE-4257 stands at roughly 2 feet tall and weighs approximately 20 pounds. He is characterized by a frightened-looking mouth and two color bands on his forehead.

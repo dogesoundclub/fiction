@@ -1,0 +1,2 @@
+ID # : DSC-MATE-340
+Description: DSC-MATE-340 appears to be an average adult human male, standing at 1.8 meters in height and weighing approximately 79 kilograms. They have short brown hair, green eyes, and a prominent white scar on their left cheek. Their most distinctive feature is the monk's habit they wear at all times, complete with a hood that obscures their facial features.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-945
+Description: DSC-MATE-945 appears to be an individual of the human species, identified as a male fast food worker. Physical features include orange stripes across the face, as well as green cross earrings and a silver chain. DSC-MATE-945 is often seen wearing a purple cap with a headset and nerd glasses.

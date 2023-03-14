@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2593
+Description: DSC-MATE-2593 is a female humanoid politician who possesses an anomalous trait in the form of orange eyebrows and spots on her face. DSC-MATE-2593 is also noted to wear a tiara on her head with a green cross earring on each ear. Additionally, she wears a gold chain around her neck and a normal gas mask as an accessory.

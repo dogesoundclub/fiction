@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4622
+Description: DSC-MATE-4622 is a human male of approximate age 25-35, standing 178cm in height and weighing approximately 77kg. DSC-MATE-4622 bears the physical appearance of a fast-food worker; dressing in a standard-issue medical mask and bucket hat. DSC-MATE-4622's most notable feature is its bright red clown eyes, which appear to be a natural ocular anomaly.

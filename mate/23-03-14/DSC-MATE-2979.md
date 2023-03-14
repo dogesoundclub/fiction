@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2979
+Description: Subject 2979 is a human female of indeterminate age, though estimated to be in her late thirties. She stands at 5'9" and has a lean, athletic build. Her most distinctive feature is a series of dark spots that cover her face, which she often tries to conceal with heavy makeup. It is believed that they are the product of a rare skin condition, possibly brought about by exposure to magical energies.

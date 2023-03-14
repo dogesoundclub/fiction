@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5252
+Description: DSC-MATE-5252 is a human female with anomalous physical characteristics. The subject's face features orange stripes, a red lip, and VR Rainbow LED eyes. The subject's head resembles that of a pink rabbit and possesses pointed ears with attached green cross earrings. The subject dons a silver chain around the neck. DSC-MATE-5252 has shown no evidence of resenting its distinct appearance.

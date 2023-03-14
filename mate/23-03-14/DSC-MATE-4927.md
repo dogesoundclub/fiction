@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4927
+Description: Subject appears to be a male human with distinctive spotted patches on his face. His mouth shows signs of constant fear, and his glasses seem almost permanently placed onto his face. The subject also has a prominent spiked hairstyle, with a gold earring on each ear and a silver chain around his neck. 

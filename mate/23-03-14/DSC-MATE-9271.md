@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9271
+Description: DSC-MATE-9271 appears to be a young male of human origin with black hair styled into a mohawk. Their face is often obscured by a medical mask, however, DSC-MATE-9271's attire includes a pair of nerd glasses, a gold earring, and a red scarf. DSC-MATE-9271's personality is considered introverted and they can be found lost in their innermost thoughts. DSC-MATE-9271 is particularly susceptible to walking into poles or tripping over objects while lost in thought.

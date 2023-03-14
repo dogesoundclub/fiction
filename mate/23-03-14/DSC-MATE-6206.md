@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6206
+Description: DSC-MATE-6206 is a female human with spots on their face and wears red lipstick. They have normal glasses over their eyes and have been observed to have 90s brown hair. A pair of goggles rest on their forehead and they wear a jade earring on each ear. DSC-MATE-6206 is often seen wearing a choker and a normal gas mask.

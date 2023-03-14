@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2327
+Description: DSC-MATE-2327 is a female veterinarian with blonde hair and orange eyebrows. They possess spots on their face and a green cross earring with an unusual wing protruding from their forehead. DSC-MATE-2327 is typically observed wearing a medical mask and a gold chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5144
+Description: Subject 5144 is a human male, standing at 6'2" with a muscular build. Subject 5144's most notable feature is a large mouth spot on his left cheek, which appears to change color based on his emotional state. Additionally, subject 5144's eyes are an abnormal shade of blue, resembling the appearance of clown makeup. Subject 5144's head is metal and purple in color, with small markings indicating potential cybernetic augmentation. One of his ears sports a gold earring, while a silver chain hangs around his neck.

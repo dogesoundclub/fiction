@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4719
+Description: DSC-MATE-4719 is a human female who works as a car salesman at █████████ Automotive, a car dealership located in the outskirts of ██████████, USA. DSC-MATE-4719 has a unique appearance, characterized by her distinct spots and purple lip. DSC-MATE-4719's eyes are also notable, as her eyebrows are a bright shade of orange.

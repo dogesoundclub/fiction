@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2454
+Description: DSC-MATE-2454 is a male human of indeterminate age, approximately 180cm tall, and weighing 70kg. DSC-MATE-2454 is typically non-anomalous in appearance aside from the following features:

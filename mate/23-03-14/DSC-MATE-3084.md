@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3084
+Description: 3084 is a male tiger of unknown origin, standing at approximately 7'2" in height. He possesses a featureless mouth which appears constantly frightened, and the color of his eyes remain unknown. His forehead features a set of goggles, which he wears at all times, even while working. He sports a single gold earring in his right ear and has been seen wearing a silver chain around his neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9975
+Description: Subject 9975 is a male tiger, with a frightened mouth and eyes of unknown color. Their forehead features two distinct color bands, and a pair of goggles on their forehead. Item 9975 also possesses a pair of red cross earrings, a red scarf, and a cigarette which they smoke consistently.

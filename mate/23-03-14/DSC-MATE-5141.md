@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5141
+Description: DSC-MATE-5141 is a male tiger in his early 30s, standing at approximately 1.9 meters tall and weighing approximately 190 kilograms. He wears a purple cap with a headset and a red cross earring in his left ear. At all times, DSC-MATE-5141 covers his mouth with a medical mask.

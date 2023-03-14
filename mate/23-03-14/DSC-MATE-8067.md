@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8067
+Description: Officer 8067 appears to be a human female in her late twenties, standing at approximately 5'6". Her most striking features are her eyes, which are implanted with virtual reality Rainbow LED optics, and her ears, which are pierced with Red Cross earrings. She is often seen wearing a black leather choker accented with metallic studs.

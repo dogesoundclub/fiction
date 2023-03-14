@@ -1,0 +1,2 @@
+ID # : DSC-MATE-891
+Description: DSC-MATE-891 is a male humanoid robot resembling a human male in their mid-twenties. It stands 1.83 meters and weighs 120 kg. DSC-MATE-891 exhibits one large green cyclops eye as its primary sensory organ. DSC-MATE-891's mouth is constantly open with a frightened expression.

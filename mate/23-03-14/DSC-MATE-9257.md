@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9257
+Description: DSC-MATE-9257 appears to be a human female with orange stripes on her face, and wears normal glasses. DSC-MATE-9257 has a short witch-like haircut, and wears a goggle on her forehead. They also have a gold earring in each ear, and wear a silver chain. DSC-MATE-9257 is often seen with a cigarette.

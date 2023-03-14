@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3656
+Description: Subject 3656 is a male monkey with red clown eyes and a frightened mouth. They often wear a retro cap on their head and a jade earring in one ear, as well as a gold chain around their neck. Despite their appearance, the subject has displayed a high degree of organization and efficiency, often taking charge of group projects and delegating tasks to others.

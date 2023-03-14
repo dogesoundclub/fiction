@@ -1,0 +1,2 @@
+ID # : DSC-MATE-26
+Description: DSC-MATE-26 is a human female with distinct orange stripes on her face. Her eyes are made of VR Jade LED's which do not possess any anomalous properties. DSC-MATE-26's head is an iridescent metal blue color, and she has a goggle on her forehead. She wears a gold earring in each ear and a medical mask covering her mouth. DSC-MATE-26 has shown the ability to fashion anomalous clothing items and objects, making it important to monitor her access to certain materials and tools.

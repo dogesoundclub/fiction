@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1534
+Description: DSC-MATE-1534 is a humanoid female, approximately ██ years of age, with orange stripes on its face and wings originating from its head. Its eyes are red with a clown-like appearance. DSC-MATE-1534 is known to wear a gas mask with LED lighting, a choker, green cross earrings, and a pair of goggles on its forehead.

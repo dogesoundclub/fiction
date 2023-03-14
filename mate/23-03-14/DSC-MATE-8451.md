@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8451
+Description: 8451 is a male monkey with a frightened mouth and ski goggle eyes. The creature frequently wears a doge hat and functions as an urban fantasy beautician. It is believed that 8451 possesses a high level of emotional intelligence, with a profound ability to empathize and connect with others. The creature's emotions are often expressed through tears during sentimental movies or art that evokes strong feelings.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6329
+Description: DSC-MATE-6329 is a monkey of unknown origin that formerly worked as a train driver in ███████, ████. DSC-MATE-6329 exhibits physical features such as ski goggle eyes, parted pink hair, and jade earrings on both ears. It also wears an LED gas mask, which is believed to enhance its abilities to sense and navigate in low-light conditions. DSC-MATE-6329's abilities and characteristics have been observed as follows:

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9355
+Description: DSC-MATE-9355 is a male robot with a frightened mouth and normal glasses for eyes. Its head is covered with a hoodie, and it is often seen wearing a gold chain and carrying a whistle as accessories. Despite its robotic composition, DSC-MATE-9355 displays a wide range of human-like emotions, including sarcasm, humor, and fear.

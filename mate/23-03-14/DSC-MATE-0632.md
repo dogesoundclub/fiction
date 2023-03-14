@@ -1,0 +1,2 @@
+ID # : DSC-MATE-632
+Description: DSC-MATE-632 is a human female with unique facial features. They have spots on their face, red lips, and orange eyebrows. DSC-MATE-632's head is described as "witch short," with a jade earring in each ear. They are often seen wearing a black choker and a normal gas mask.

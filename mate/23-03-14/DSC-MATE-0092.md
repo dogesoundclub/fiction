@@ -1,0 +1,2 @@
+ID # : DSC-MATE-92
+Description: The subject, designated as 92, presents an unusual physical appearance for a human. She has distinctive spots across her face, a purple lip, and red clown eyes. Her head appears to be that of a pink rabbit, with green cross earrings adorning her ears. The subject often chooses to wear a choker as an accessory.

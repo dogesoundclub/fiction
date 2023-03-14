@@ -1,0 +1,2 @@
+ID # : DSC-MATE-773
+Description: Item 773 is a male, Siberian tiger with vibrant, red clown eyes. The creature sports a blue bandana on its head and a jade earring on one of its ears. The subject is often seen wearing a silver chain around its neck, and carrying a whistle in its mouth. Item 773's intelligence and ability to communicate through whistles has led researchers to believe that there may be more to this creature than originally believed.

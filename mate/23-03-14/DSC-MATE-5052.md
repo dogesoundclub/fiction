@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5052
+Description: DSC-MATE-5052 is a humanoid entity approximately 1.8 meters in height and of male gender. Its head is covered in a purple metallic material with distinctive orange stripes on its face. The entity frequently accessorizes with a silver chain and can often be found with a lit cigarette.

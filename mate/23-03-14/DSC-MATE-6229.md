@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6229
+Description: DSC-MATE-6229 appears to be a human male of average height and build. He has distinctive orange stripes on his face and wears a retro cap on his head. His eyes resemble ski goggles, and he wears a green cross earring on one ear. DSC-MATE-6229 is known to sport a wide smile at all times, making him easily recognizable.

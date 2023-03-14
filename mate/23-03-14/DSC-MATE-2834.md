@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2834
+Description: DSC-MATE-2834 was a human female who worked as a theater manager in [REDACTED]. She was approximately [REDACTED] years old and possessed unique physical attributes that set her apart from others. Her face featured orange stripes and red lipstick, with red clown eyes that seemed to follow observers wherever they moved. Her head was that of a 00s school girl, with a two-color band on her forehead, and she wore jade earrings.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1243
+Description: DSC-MATE-1243 is a 5 foot 6 inch human female, who appears to be in her mid-thirties, however its origins are unknown. DSC-MATE-1243's face features orange stripes and red clown eyes, with a black hoodie covering its head. DSC-MATE-1243 wears a gold chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5095
+Description: 5095 is a human female with numerous spots covering her face, arms, and legs. Her most notable feature is her VR Rainbow LED eyes, which are constantly cycling through different colors. The subject wears a purple cap with a headset and a jade earring in each ear. Her mouth is always covered by a medical mask, and she wears a choker around her neck.

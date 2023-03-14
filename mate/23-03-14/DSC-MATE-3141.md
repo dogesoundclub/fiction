@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3141
+Description: DSC-MATE-3141 is a sentient robot with physical features resembling those of a human male. It stands at 1.8 meters in height and weighs approximately 150 kilograms. Its main body is composed of durable polymers and carbon fibre. The head is covered in a short peak cap, with a single green cyclops eye in the center of the forehead. DSC-MATE-3141 typically wears nerd glasses and a gold earring in each ear. It is also known to wear a silver chain and carry a whistle, indicating its profession as a firefighter.

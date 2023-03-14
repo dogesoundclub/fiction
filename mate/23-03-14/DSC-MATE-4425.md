@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4425
+Description: DSC-MATE-4425 is a 28-year-old human male, identified as a fast food worker. DSC-MATE-4425's eyes are a bright red color reminiscent of clown makeup. On DSC-MATE-4425's head, he wears a retro cap adorned with a 2 color band and goggles. DSC-MATE-4425 also wears a medical mask over his mouth and a gold chain as an accessory.

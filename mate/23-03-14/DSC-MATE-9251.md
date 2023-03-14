@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9251
+Description: DSC-MATE-9251 is a male robot designed to resemble a human male in his late 20s. Its eyes consist of thick, black-rimmed nerd glasses, and its head is not arranged green. DSC-MATE-9251 is often seen wearing a red scarf and holding a cigarette in its hand. Extreme caution must be taken around DSC-MATE-9251 as its cigarette is capable of producing anomalous smoke.

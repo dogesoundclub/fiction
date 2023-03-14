@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9837
+Description: DSC-MATE-9837 is a male monkey of an unknown species, standing at approximately 1 meter in height. The subject wears a bucket hat on his head, with a two-color band on his forehead. DSC-MATE-9837 also wears nerd glasses and a silver chain around his neck.

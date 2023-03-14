@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3860
+Description: DSC-MATE-3860 is a male robot, with an appearance commonly associated with bankers. It stands at 1.8 meters tall and weighs approximately 135 kilograms. DSC-MATE-3860 has one green cyclops eye in its head and wears a peak cap on its head with a pair of nerd glasses over its eye. A pair of goggle is kept on its forehead and a jade earring hangs on its right ear. An attached cigarette is usually seen on its mouth.

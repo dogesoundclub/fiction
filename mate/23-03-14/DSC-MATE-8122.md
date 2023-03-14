@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8122
+Description: DSC-MATE-8122 is a male monkey, approximately 1.3 meters in height. The monkey wears a retro cap on its head, a silver chain around its neck, and is often seen smoking a cigarette.

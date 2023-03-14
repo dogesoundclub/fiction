@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1361
+Description: DSC-MATE-1361 is a humanoid entity identified as a female politician. DSC-MATE-1361 has orange stripes on the face, a red lip, and wears a bucket hat. The forehead features a 2 color band, along with a gold chain and a cigarette as accessories.

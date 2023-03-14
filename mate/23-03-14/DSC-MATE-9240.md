@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9240
+Description: DSC-MATE-9240 is a robot fashioned to resemble a human male, measuring 1.8 meters tall and weighing approximately 68 kg. DSC-MATE-9240's facial features consist of a large green cyclops eye with a frightened mouth underneath. The eyes appear to be ski goggles, and its head resembles a red alarm. DSC-MATE-9240 has a goggle on its forehead and red cross earrings on either side of its head.

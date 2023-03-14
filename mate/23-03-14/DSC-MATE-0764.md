@@ -1,0 +1,2 @@
+ID # : DSC-MATE-764
+Description: DSC-MATE-764 is a human female police officer with a variety of physical abnormalities. DSC-MATE-764 has several unique features including spots on her face, a permanent smile, virtual reality rainbow LED eyes, an unarranged green head, and jade earrings. None of these features appear to impede DSC-MATE-764's ability to perform their duties as a police officer.

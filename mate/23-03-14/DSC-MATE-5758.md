@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5758
+Description: Subject 5758 is a human female of average height and build. She displays unusual physical features, including purple lips and green cross earrings. Her blonde hair is frequently covered by an ushanka and her forehead adorned with goggles. She wears normal glasses over her eyes. Subject 5758 is employed as a programmer, and her skills have proven useful in various covert operations.

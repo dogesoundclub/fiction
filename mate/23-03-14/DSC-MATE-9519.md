@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9519
+Description: Item 9519 appears to be a male rabbit with jade LED eyes. He is often seen wearing a purple cap with a headset, a gold earring in one ear, a red scarf, and carrying a whistle. Item 9519 displays a strong sense of independence, often portraying reluctance to ask for help or take direction. Despite this, he is a gifted lawyer and negotiator, often achieving favorable outcomes for his clients.

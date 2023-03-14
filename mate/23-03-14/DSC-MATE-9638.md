@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9638
+Description: DSC-MATE-9638 is a human male with bright orange stripes on their face, resembling a wildcat's markings. DSC-MATE-9638 works as a fashion designer and is commonly seen wearing their trademark hooded sweatshirt with a silver chain and a candy stick.

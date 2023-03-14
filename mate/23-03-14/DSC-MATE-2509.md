@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2509
+Description: Subject 2509, identified as a traffic officer within local law enforcement, presents with distinctive facial features. Most notable is the numerous spots that cover his face, paired with a rather infectious smile that can put others at ease. However, this is offset by his striking red clown eyes, which prove to be an unusual feature within a human.

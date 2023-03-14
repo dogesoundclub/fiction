@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6337
+Description: DSC-MATE-6337 appears to be a male monkey, with a frightened expression on its face and a hoodie covering its head. DSC-MATE-6337's forehead features two-color bands, and it wears a normal gas mask as an accessory. It is a banker by profession.

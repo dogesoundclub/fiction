@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4824
+Description: Subject 4824 is a human male with a nerdy appearance, often seen wearing glasses and a Doge hat. On his forehead is a red victory band, and he sports a gold earring in one ear. Subject is often seen smoking a cigarette, which seems to calm him.

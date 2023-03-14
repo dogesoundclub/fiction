@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3421
+Description: Subject 3421 is a human female of average height and weight, with an unusual appearance. Her face features orange stripes and purple lips, and her eyebrows are orange. Subject's head is covered in rainbow coloring and her ears have golden earrings. Subject typically wears a silver chain necklace with a normal gas mask. She works as a beautician and is highly skilled in the field.

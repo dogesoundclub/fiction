@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5115
+Description: DSC-MATE-5115 is a male robot that resembles a train driver. It stands at 1.8 meters tall and weighs approximately 80 kg. Its face features a permanent expression of fear, and its eyes are made of VR jade LED. The robot wears a short peak cap, and a goggle is attached to its forehead. It has a gold earring on each ear and wears a red scarf around its neck as an accessory.

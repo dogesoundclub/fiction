@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4792
+Description: Item 4792, labeled as a human male, stands at approximately 5'11" in height and weighs 160 pounds. The most notable distinguishing features of the item are the spots on the face and blue clown eyes that appear to be painted or tattooed around the eyes. Item 4792's hair is parted and dyed pink, and a pair of safety goggles are positioned on his forehead at all times. Item 4792 also wears a gold earring in his left ear.

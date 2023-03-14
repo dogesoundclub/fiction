@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5612
+Description: DSC-MATE-5612 is a male monkey of the genus Macaca with red clown-like eyes and a red beanie on its head. It stands at approximately 1 meter in height and is capable of performing human-like activities such as driving a vehicle, writing, and operating machinery. DSC-MATE-5612 also possesses the ability to speak in broken English.

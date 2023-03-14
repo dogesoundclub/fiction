@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4219
+Description: DSC-MATE-4219 is a male rabbit that is commonly known to be a reporter. The rabbit is identified by its two-color band on its forehead, jade earring, and red scarf. DSC-MATE-4219 also wears an LED gas mask that covers its face.

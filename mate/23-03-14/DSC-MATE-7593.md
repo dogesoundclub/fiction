@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7593
+Description: DSC-MATE-7593 is a human female, approximately 25 years of age, with the ability to deeply empathize and understand the emotions of others. DSC-MATE-7593 is known to exhibit emotional outbursts when exposed to the pain and suffering of others, often resulting in tears or verbal outbursts. DSC-MATE-7593 possess orange eyebrow eyes and a 90s brown hair, in addition to a two-color band on their forehead.

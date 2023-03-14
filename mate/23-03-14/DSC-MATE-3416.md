@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3416
+Description: Item 3416 is a male Homo simius with a distinctive Doge hat on its head and a gold earring in its right ear. It is often seen wearing a gold chain around its neck. Its eyes are currently unknown, as it wears sunglasses at all times. The entity communicates voicelessly through sign language, and has shown remarkable skill in picking up new languages and dialects.

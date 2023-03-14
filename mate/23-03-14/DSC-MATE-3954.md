@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3954
+Description: DSC-MATE-3954 is a 30-year-old female human with a unique appearance. DSC-MATE-3954 has metal blue hair on her head and blue clown eyes that appear to change color depending on the environment. Her face features include orange stripes that glow when DSC-MATE-3954 is happy, sad, or angry.

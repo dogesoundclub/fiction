@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4383
+Description: Subject 4383 is a young Caucasian male in his mid-twenties, with a slender build and blonde hair. They often wear a silver chain and green cross earring. They are always seen with nerd glasses, and are known to sport a variety of gadgets.

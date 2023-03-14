@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6388
+Description: 6388 is a highly intelligent monkey, capable of maneuvering vehicles operated by human beings. It has been observed to exhibit heightened levels of attention to details and can be relied on for excellent gift-giving skills when presented with an opportunity to do so. In appearance, it wears a blue hoodie for warmth, and its blue clown eyes have consistently displayed an ability to fascinate and amuse those around it.

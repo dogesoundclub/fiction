@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9086
+Description: Subject 9086, also known as "The Banker," is a human female adorned with orange stripes across her face and a vibrant red lip. Her most notable feature, however, are the red clown eyes, which she is unable to remove. Her head appears to be covered in a wild and unkempt mass of green hair that has not been trimmed in several years. The subject also sports a pair of gold earrings, although their significance is unknown.

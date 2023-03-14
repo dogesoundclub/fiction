@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4990
+Description: DSC-MATE-4990 is a male rabbit with a distinct appearance. Their head is typically covered by a bucket hat with their ears adorned with a jade earring. DSC-MATE-4990 is often seen wearing a normal gas mask, but it is unknown if it serves any actual purpose. Their personality is notable due to their incredibly strong sense of intuition, which can border on appearing supernatural. DSC-MATE-4990 is known to predict events before they happen or sense the moods and feelings of others.

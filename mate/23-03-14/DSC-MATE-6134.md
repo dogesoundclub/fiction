@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6134
+Description: DSC-MATE-6134 is a female human of indeterminate age, approximately 5'6" and 130lbs. DSC-MATE-6134's most notable feature is its purple lips and red clown eyes, as well as the tiara on its head and jade earring in its left ear. DSC-MATE-6134 is often seen wearing a medical mask and a silver chain around its neck.

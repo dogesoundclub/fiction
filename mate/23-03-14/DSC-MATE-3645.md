@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3645
+Description: DSC-MATE-3645 is a male robot, resembling a human in height and build. DSC-MATE-3645 has a bright green Cyclops eye as its main optical sensor, and a frightened mouth image on its face plate. Its eyes are covered with ski goggles and has red cross earrings attached to its ears. DSC-MATE-3645 also wears a red scarf and casually holds a cigarette in its metallic fingers.

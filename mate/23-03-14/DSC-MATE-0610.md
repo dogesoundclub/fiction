@@ -1,0 +1,2 @@
+ID # : DSC-MATE-610
+Description: DSC-MATE-610, also known as "Spotted", is a female human delivery driver with a distinctive appearance, including spots on her skin and VR Jade LED eyes. Her head is often covered with a bucket hat and a goggle on her forehead, with a red cross earring and gold chain as accessories. DSC-MATE-610 is known to wear a normal gas mask while making deliveries.

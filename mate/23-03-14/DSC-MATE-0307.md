@@ -1,0 +1,2 @@
+ID # : DSC-MATE-307
+Description: DSC-MATE-307 is a female human of average height and weight. DSC-MATE-307's most distinct feature is her purple lip, which is believed to be a result of an anomalous pigment. DSC-MATE-307's eyes have orange eyebrows and her head is a unique shade of metallic blue. DSC-MATE-307 also possesses green cross earrings and a gold chain.

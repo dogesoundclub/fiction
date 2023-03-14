@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4525
+Description: DSC-MATE-4525 is a human male with multi-colored, VR Rainbow LED eyes and a constant gleeful smile. The subject is generally observed wearing a hoodie, silver chain, and smoking a cigarette. DSC-MATE-4525 has demonstrated the ability to manipulate reality, particularly in the form of creating and modifying illusions. DSC-MATE-4525 is also known to have an unpredictable and elusive personality, making containment particularly challenging.

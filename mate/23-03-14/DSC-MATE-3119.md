@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3119
+Description: DSC-MATE-3119 is a male rabbit which visually appears to be indistinguishable from a common rabbit. It stands at approximately 1.5ft tall and weighs 2.5 lbs. DSC-MATE-3119 is sentient and possesses the ability to speak, though it is unable to mimic any language other than English. DSC-MATE-3119 has a headset with LED attached to its head, which is believed to be its preferred means of communicating.

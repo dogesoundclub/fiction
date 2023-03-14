@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7605
+Description: DSC-MATE-7605 appears to be a mundane human male, approximately 30 years of age. However, the subject's orange striped face, metallic VR Jade LED eyes, and gold earring, are not natural features of a human. Subject is known to wear a short peak cap, silver chain, and carry a candy stick as accessories.

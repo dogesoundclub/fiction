@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9314
+Description: DSC-MATE-9314 is a male Tiger, measuring approximately 1.9 meters in height and weighing 135kg. Its features include VR rainbow LED eyes, a not arranged green metallic head, a Jade earring on each ear, and a goggle-like device affixed to its forehead. Its mouth is covered by a medical mask.

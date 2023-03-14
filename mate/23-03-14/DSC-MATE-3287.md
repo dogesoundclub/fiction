@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3287
+Description: Subject 3287 is a human female, standing at 6 feet tall, with distinctive facial features that include orange stripes and a red lip. Their most peculiar characteristic is their eyes, which are a shade of bright red, reminiscent of the grotesque clown makeup. The subject wears a retro cap and a cross earring in green, adding to their unique appearance.

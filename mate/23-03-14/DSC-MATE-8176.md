@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8176
+Description: DSC-MATE-8176 is a humanoid robot with one large, green Cyclops eye located in the center of his forehead. The eye emits a bright green light and is capable of scanning objects, individuals, and environments to create a detailed 3D map. His eyes are ski goggles that give him a retro-futuristic appearance. The robot's ears are modeled in the shape of gold earrings.

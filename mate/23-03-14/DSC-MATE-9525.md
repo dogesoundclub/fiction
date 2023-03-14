@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9525
+Description: 9525 is a humanoid automaton designed to resemble a male car salesman. Its body is composed of various metals including aluminum, silver, and steel, with various electronic circuits visible under its skin. Its face features a single green cyclops eye and a mouth that often appears to be in a frightened expression.

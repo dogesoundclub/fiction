@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9407
+Description: DSC-MATE-9407 is a male rabbit of average size standing at approximately 60 cm in height. The subject has blue clown eyes that are highly unusual for its species. 9407 wears a hoodie on its head to obscure its face but is known to wear a red scarf around its neck and a normal gas mask. It is unclear why 9407 wears a gas mask, but its effects do not appear to hinder the creature's abilities.

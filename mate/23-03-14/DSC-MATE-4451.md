@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4451
+Description: DSC-MATE-4451 is a robotic humanoid measuring 2.3 meters in height and weighing approximately 1,100 kilograms. DSC-MATE-4451 bears striking resemblance to a train conductor, complete with a bucket hat, a red scarf, and a whistle. DSC-MATE-4451's most notable feature is its green cyclops eye, which serves as its primary visual sensor. DSC-MATE-4451's mouth is in a permanent state of fright.

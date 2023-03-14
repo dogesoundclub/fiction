@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7706
+Description: DSC-MATE-7706 is a male tiger of the species Panthera tigris, measuring approximately 2.5 meters in length and weighing 250 kg. It exhibits several items of clothing and accessories usually associated with male humans, including a horned rimmed glasses, a police cap, a goggle on its forehead and an earring, as well as the use of a red scarf and a cigarette.

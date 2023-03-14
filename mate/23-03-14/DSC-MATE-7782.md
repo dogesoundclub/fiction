@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7782
+Description: DSC-MATE-7782 is a male simian creature of the genus Macaca, commonly known as a monkey. It stands at approximately 0.5 meters in height and weighs approximately 5 kilograms. DSC-MATE-7782's physical appearance is distinctive, with a not arranged green head, nerd glasses, and a pair of gold earrings on its ears. DSC-MATE-7782 also wears a gold chain as an accessory.

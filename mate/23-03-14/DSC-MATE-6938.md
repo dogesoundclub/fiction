@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6938
+Description: DSC-MATE-6938 is a humanoid male of the species Homo sapiens. He stands at 1.8 meters and weights 82 kilograms. DSC-MATE-6938 possesses a unique mouth spot on his left cheek, which has been reported to change shape and color during periods of heightened emotions. DSC-MATE-6938's most notable feature is his friendly and welcoming smile. He may sometimes be seen smoking a cigarette and wearing a red scarf.

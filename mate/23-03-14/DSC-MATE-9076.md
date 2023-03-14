@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9076
+Description: DSC-MATE-9076 appears to be a male tiger, standing approximately 1.8 meters tall and weighing around 200 kilograms. DSC-MATE-9076 wears a red cross earring on his left ear, and a medical mask covering his mouth. The creature's forehead has a unique feature of a two-color band. The eyes of DSC-MATE-9076 are unknown, as the creature never opens them in front of human observers.

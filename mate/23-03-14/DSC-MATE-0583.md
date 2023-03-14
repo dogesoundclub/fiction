@@ -1,0 +1,2 @@
+ID # : DSC-MATE-583
+Description: Item 583 appears to be a male anthropomorphic rabbit species with blue clown eyes. It is generally docile in nature and employed as a train driver. Item 583 is typically seen wearing a purple cap with a headset and a jade earring, a silver chain, and an LED gas mask. Oddly enough, when the item wears the mask, its eyes appear larger and more vivid. The size and shape of Item 583 change frequently and at a rapid pace, adding to the difficulty of containment.

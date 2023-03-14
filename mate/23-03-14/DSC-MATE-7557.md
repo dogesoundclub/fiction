@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7557
+Description: DSC-MATE-7557 appears as a male monkey with red clown eyes, a frightened mouth, a purple cap with a headset, and a jade earring. His forehead has a 2-color band marking. Despite his comical appearance, DSC-MATE-7557 has shown intelligence and technical knowledge beyond what is expected of a non-human primate.

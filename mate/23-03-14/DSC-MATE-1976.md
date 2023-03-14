@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1976
+Description: DSC-MATE-1976 is a male rabbit of the species Oryctolagus cuniculus, measuring approximately 30cm in length and weighing 2kg. DSC-MATE-1976 has a frightened mouth typical of prey species and unusual ski goggle-shaped eyes. DSC-MATE-1976 is frequently seen wearing a purple cap with a headset, a gold chain, and a whistle around their neck.

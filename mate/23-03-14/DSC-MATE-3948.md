@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3948
+Description: DSC-MATE-3948 is a humanoid robot, measuring approximately 1.8 meters in height. DSC-MATE-3948 resembles a male of the species and has only one eye, which is green and resembles a cyclops eye. DSC-MATE-3948 is often seen wearing a blue bandana and nerd glasses over its eye. It also wears a gold chain and carries a whistle as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6737
+Description: Subject 6737 is a human female with unique facial features. She was last encountered wearing a retro cap and a gold chain around her neck. Her most noticeable features are her blue clown eyes and purple lips, which have been observed to change color under certain conditions. Subject 6737 also sports a pair of goggles on her forehead, which she uses during hands-on veterinary procedures.

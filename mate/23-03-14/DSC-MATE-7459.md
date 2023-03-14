@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7459
+Description: DSC-MATE-7459 is a male human of average height and weight, with a chubby build. It has a smiling expression and several small spots on its face. Its eyes resemble ski goggles and it wears a red beanie on its head. DSC-MATE-7459 has an earring in its left ear, in the shape of a green cross. Its mouth is constantly covered by a medical mask.

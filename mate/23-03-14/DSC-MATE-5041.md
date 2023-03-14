@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5041
+Description: Subject 5041 is a human female with orange stripes on their face, sporting a smile at all times. Their eyes are adorned with normal glasses, and they constantly wear a purple cap with a headset. A two-color band can be found on their forehead, and they wear gold earrings and chains as accessories. In addition, Subject 5041 has also been seen wearing a normal gas mask.

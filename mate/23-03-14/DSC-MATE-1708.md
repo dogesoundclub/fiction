@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1708
+Description: Subject 1708 is a female human with distinct orange stripes on her face and bright red lips. Her eyes are replaced with VR Rainbow LED, enhancing her vision and allowing her to connect with various technological devices remotely. She wears a tiara on her head, with a goggle resting on her forehead. Her mouth is covered by a medical mask, which she refuses to remove for safety purposes. Subject 1708 also wears a silver chain around her neck as her personal accessory.

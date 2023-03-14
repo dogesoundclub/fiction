@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3458
+Description: DSC-MATE-3458 is a human male of approximately 30 years. Its appearance is highly unusual, with orange stripes across its face and green layers on its head. It possesses a frightened-looking mouth and a pair of goggles on its forehead, as well as a gold earring on each ear. DSC-MATE-3458 is a practicing veterinarian, with a particular affinity for treating exotic animals.

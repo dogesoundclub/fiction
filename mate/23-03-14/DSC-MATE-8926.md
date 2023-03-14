@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8926
+Description: DSC-MATE-8926 is a human male of approximately 38 years of age, standing at 1.83m tall and weighing 81kg. DSC-MATE-8926 displays spots on his face, with normal glasses covering his eyes. He is often seen wearing a red beanie and red scarf as accessories.

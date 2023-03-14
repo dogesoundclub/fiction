@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8905
+Description: Item #8905 appears to be a human male in his late 20s, with noticeable spots on his face and a wide, charismatic smile. However, his most significant anomaly is his eyes, which are equipped with VR Rainbow LED technology. He also commonly wears a gold chain and cigarette as accessories.

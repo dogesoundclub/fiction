@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8876
+Description: Subject 8876 stands at 5 feet, 5 inches and possesses a striking feature in her red lips, reminiscent of the classic femme fatale of noir films. Her hairstyle and dress attire point towards the 00s school girl fashion trend, but it is noted that she pairs this with a set of jade earrings and a silver chain necklace.

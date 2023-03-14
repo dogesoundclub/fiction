@@ -1,0 +1,2 @@
+ID # : DSC-MATE-552
+Description: DSC-MATE-552 is a male humanoid entity, identified as a beautician. DSC-MATE-552 possesses blue clown eyes, a purple cap with a headset, and a red victory band on their forehead. DSC-MATE-552 also wears a gold earring, a silver chain, and a candy stick. It is unknown if these accessories are anomalous or merely decorative.

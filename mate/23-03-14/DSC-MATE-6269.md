@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6269
+Description: DSC-MATE-6269 appears to be a standard human male, with the exception of two unusual facial features. The first is a large, circular spot located on the corner of his mouth. The second are his eyes, which resemble ski goggles. DSC-MATE-6269 is often seen wearing a traditional police cap and a silver chain around his neck.

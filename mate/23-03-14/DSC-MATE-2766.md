@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2766
+Description: DSC-MATE-2766 is a humanoid robot that resembles a male human. It stands at roughly 1.7 meters in height and is typically seen wearing a retro cap, horned rim glasses, a silver chain, and a standard-issue beautician's outfit. DSC-MATE-2766 has a unique green cyclops eye as its primary facial feature. This feature is capable of emitting various light spectrums to assist with its job. It also wields a whistle that serves as a locator device for its maintenance personnel.

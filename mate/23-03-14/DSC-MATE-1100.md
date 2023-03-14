@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1100
+Description: DSC-MATE-1100 is a monkey, standing 0.8 meters tall and weighing approximately 15 kg. DSC-MATE-1100 possesses a set of horned rim glasses and a blue bandana tightly tied around its head as its identifying features, which obscure the majority of its face. DSC-MATE-1100 commonly wears a red scarf and smokes cigarettes when allowed to do so. DSC-MATE-1100's most prominent face feature is its frightened mouth, which is frequently visible when it is under stress or anxiety. DSC-MATE-1100's left ear is adorned with a single gold earring.

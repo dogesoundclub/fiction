@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4935
+Description: DSC-MATE-4935 is a male tiger humanoid, standing at 2.3 meters in height and weighing approximately 180kg. DSC-MATE-4935's eyes emit a rainbow LED light which appear to emit a low-level radiation when viewed with high-tech equipment. DSC-MATE-4935 is regularly seen wearing a doge hat, gold chain and a normal gas mask. DSC-MATE-4935 is able to speak English fluently and exhibits characteristics of a human, such as the ability to walk on two legs and use and understand human technology.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1950
+Description: Subject 1950 is a fashion designer of human origin with an eccentric sense of style. He is often seen wearing a red scarf and a normal gas mask for unknown reasons. His face is distinguished by a distinctive spot on his mouth, and his eyes are fitted with VR rainbow LED technology. A headset with LED lights adorns his head, while a pair of goggles rest atop his forehead.

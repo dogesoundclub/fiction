@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4491
+Description: DSC-MATE-4491 is a red, metallic robot with a frightened mouth, a set of nerd glasses, and a red alarm comprising its head. DSC-MATE-4491 also wears a jade earring and a red scarf. DSC-MATE-4491 has a goggle attached to its forehead.

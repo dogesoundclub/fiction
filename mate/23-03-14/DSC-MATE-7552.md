@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7552
+Description: DSC-MATE-7552 is a robotic entity resembling that of a humanoid male with a green cyclops eye. Its face features a jade earring and ski goggle-like eyes atop a purple cap with a headset. The unit is visually distinguishable by the silver chain suspended around its neck.

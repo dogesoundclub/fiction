@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2882
+Description: DSC-MATE-2882 is a human female of average height and build, with short, rainbow-colored hair styled in a festival-inspired haircut. Notably, their face is adorned with orange stripes and they often wear a vibrant shade of red lipstick. While their most prominent feature is their hair, DSC-MATE-2882's forehead is also adorned with a pair of goggles. 

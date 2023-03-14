@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3383
+Description: Subject 3383 appears to be a human male in his late 30s with light skin complexion, standing at 6 feet tall. His face is adorned with spots, and he usually wears a doge hat, which he claims brings him good luck. He also wears a gold chain and a gold earring on his left ear.

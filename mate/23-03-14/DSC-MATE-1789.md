@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1789
+Description: DSC-MATE-1789 is a male monkey, approximately 60 cm in height and weighing 7 kg. Its eyes are protected by ski goggles, and an eyepiece is positioned on its forehead for directional navigation. DSC-MATE-1789 is often seen wearing a gold chain and a gold earring in its left ear, as well as smoking cigarettes. 

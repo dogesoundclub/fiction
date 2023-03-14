@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4415
+Description: DSC-MATE-4415 appears to be a male Bengal tiger in his mid-20s who has gained the ability to take on a human form. His humanoid form stands at 6'5" tall, and he has an average build with green hair that is unkempt and not arranged. His most notable facial features include his frightened mouth and blue clown eyes.

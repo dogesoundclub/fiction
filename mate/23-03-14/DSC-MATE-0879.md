@@ -1,0 +1,2 @@
+ID # : DSC-MATE-879
+Description: DSC-MATE-879 is a human female designated as a Security Guard within Site-██. DSC-MATE-879 is 1.72 meters tall and has a slim build. The subject's head is styled with short, jet-black hair resembling that of a witch. DSC-MATE-879's eyes have been replaced with VR Rainbow LED, affording the subject the ability to see through various vision modes, such as night-vision and infrared. A pair of goggles are frequently worn on DSC-MATE-879's forehead.

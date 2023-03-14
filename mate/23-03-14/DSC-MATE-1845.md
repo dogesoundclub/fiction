@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1845
+Description: DSC-MATE-1845 is a human male of average height and build, with a distinctive mouth spot and a playful smile. DSC-MATE-1845 is often seen wearing a purple cap with a headset, a red scarf, and a green cross earring. The forehead of DSC-MATE-1845 is marked with two color bands that resemble tribal markings.

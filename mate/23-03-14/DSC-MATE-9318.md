@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9318
+Description: DSC-MATE-9318 is a female human of average build and height. DSC-MATE-9318's most striking feature is the presence of orange stripes along the cheekbones and jawline, reminiscent of the Bengal tiger. DSC-MATE-9318 also wears a green cross earring on her right ear and a black choker around her neck. DSC-MATE-9318 will always be seen wearing a medical mask, citing that it helps her maintain her sense of privacy.

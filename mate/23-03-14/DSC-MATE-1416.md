@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1416
+Description: DSC-MATE-1416 is a human male with orange stripes on his face. DSC-MATE-1416's eyes are blue clown-like eyes that have a tendency to draw the attention of others. The forehead of DSC-MATE-1416 has a goggle, a device that serves an unknown function at this time. DSC-MATE-1416 wears a red scarf and is often seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3832
+Description: DSC-MATE-3832 appears to be a male rhesus macaque (Macaca mulatta) standing at 1.5 meters tall and weighing approximately 40 kg. DSC-MATE-3832 possesses typical features for a rhesus macaque, including a pink face, black fur, and a long tail. However, DSC-MATE-3832 has several distinguishing features, including a pair of nerd glasses, a scarlet scarf, and a cigarette that he almost always has in his mouth.

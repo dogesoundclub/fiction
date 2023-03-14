@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2116
+Description: DSC-MATE-2116 appears to be a male monkey of indeterminate species. The subject measures approximately 0.6 meters in height and weighs approximately 10 kilograms. The subject is distinguishable by its blue bandana wrapped around its head which is believed to be self-affixed.

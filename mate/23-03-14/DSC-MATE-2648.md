@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2648
+Description: DSC-MATE-2648 is a male robot, standing at 1.8 meters tall. It exhibits human-like characteristics in its appearance such as a hoodie, nerd glasses, a red scarf around its neck, and a cigarette in its hand. DSC-MATE-2648 is programmed to function as a farmer and has the ability to independently carry out farming tasks. However, its true nature is still largely unknown and is under investigation by Foundation researchers.

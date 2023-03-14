@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5674
+Description: DSC-MATE-5674 is a male tiger humanoid with a distinct red beanie that serves as the creature's signature look. The subject also wears a two-color band and goggles on its forehead, gold earrings, and a silver chain as accessories. The most unusual characteristic of DSC-MATE-5674 is that it carries around a candy stick, which it chews on frequently.

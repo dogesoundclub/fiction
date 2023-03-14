@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7374
+Description: Subject 7374 is a female human of unknown age. The subject has red lips, orange eyebrows, and green, unarranged hair. The forehead of the subject features two colored bands, and the ears display green cross earrings. The subject wears a gold chain and is often seen with a cigarette.

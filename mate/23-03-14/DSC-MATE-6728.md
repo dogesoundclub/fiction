@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6728
+Description: DSC-MATE-6728 is a male human who is a professional journalist and reporter. His most notable features are his orange stripes on his face, a smile that is often seen, and a medical mask that he wears over his mouth as protection. He also has a goggle on his forehead and a green cross earring on his left ear, as well as a gold chain around his neck.

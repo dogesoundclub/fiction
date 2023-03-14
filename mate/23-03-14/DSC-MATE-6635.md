@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6635
+Description: DSC-MATE-6635 appears to be a normal human female with distinct facial features, including numerous spots on her face and purple lips. However, upon further observation, DSC-MATE-6635's head takes on the appearance of a pink rabbit, with jade earrings situated on her long, pointed ears. DSC-MATE-6635 also wears a silver chain around their neck.

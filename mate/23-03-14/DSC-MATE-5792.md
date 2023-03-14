@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5792
+Description: Subject 5792 is a male human identified as a news anchor. They possess a distinctive mouth spot and a perpetually present smile that remains even in the most trying circumstances. 5792's eyes are lined with ski goggles, and their head sports a short peak cap alongside green cross earrings. They have a penchant for wearing a gold chain to accessorize.

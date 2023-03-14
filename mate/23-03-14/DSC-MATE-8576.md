@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8576
+Description: Officer 8576 is a male human with distinctive spotted patterns on his face. He possesses an elongated nose and pointed ears reminiscent of a monk. His most striking feature is his blue clown eyes that radiate a sense of intrigue and charm. He can often be seen wearing a medical mask over his mouth and a red scarf as an accessory. Despite his odd appearance, Officer 8576 exudes an aura of peacefulness and composure, making him a valuable asset to the police force. 

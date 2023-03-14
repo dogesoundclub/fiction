@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4908
+Description: DSC-MATE-4908 is a human female with rainbow-colored hair styled in dreadlocks. DSC-MATE-4908 has manifested a purple lip which appears to be a permanent feature. Their attire consists of a leather choker, a red cross earring, and a gas mask equipped with an LED light display. DSC-MATE-4908's personality exhibits a tendency for impulsivity and a love for taking risks. They have been observed engaging in high-risk activities, such as jumping off cliffs into bodies of water for amusement.

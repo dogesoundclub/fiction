@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8844
+Description: DSC-MATE-8844 is a human female of average height and weight with distinctive orange stripes on their face and purple lips. Their head is green with an edge curl, and they have a 2 color band on their forehead. They wear gold earrings and a silver chain as accessories. DSC-MATE-8844's personality is characterized by reliability and organization, but also by stubbornness and difficulty adapting to change.

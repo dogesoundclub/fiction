@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7589
+Description: DSC-MATE-7589 is a human male of average height and build, with numerous spots dotting his body. He typically wears normal glasses over his eyes and sports a green cross earring on one ear. His most notable feature is the mohawk on his head, which is dyed in various colors. DSC-MATE-7589 often wears a red scarf around his neck and carries a cigarette, although he is not permitted to smoke within the containment area.

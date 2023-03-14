@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5522
+Description: DSC-MATE-5522 is a human male who currently holds the position of “Mafia Boss”. He is often seen wearing a blue bandana and a gold earring in one ear. DSC-MATE-5522 also has noticeable spots on his facial features. It is unknown if these spots are a natural occurrence or the result of physical damage caused by previous altercations.

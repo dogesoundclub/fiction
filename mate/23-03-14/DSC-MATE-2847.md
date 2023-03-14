@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2847
+Description: 2847 is a humanoid, designated as a Politician. 2847 appears to be a human female with orange stripes, wearing a hoodie and a medical mask. Its appearance is distinct from a normal human being and its motives are unknown. 2847 retains a silver chain, demonstrating an ability to accessorize itself.

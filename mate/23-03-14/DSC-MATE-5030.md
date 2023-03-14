@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5030
+Description: Subject 5030 is a human female in her mid-30s with a noticeable and unique feature of spots around her eyes and cheeks. Her head is reminiscent of an 00s school girl while wearing a jade earring in each ear and a silver chain as her accessory. While her physical appearance may suggest otherwise, she is a police officer with a duty to serve and protect.

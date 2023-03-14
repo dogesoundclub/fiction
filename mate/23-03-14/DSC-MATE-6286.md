@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6286
+Description: DSC-MATE-6286 is a male rabbit of Leporidae family. It stands approximately 5 feet tall when fully upright, while weighing around 45 pounds. DSC-MATE-6286’s eyes are blue clown eyes, and distinctively wears a Doge hat on its head. Its forehead features a two-color band, while wearing a jade earring on each ear. DSC-MATE-6286 can often be seen wearing a silver chain and a gas mask.

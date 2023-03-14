@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9827
+Description: DSC-MATE-9827 is a male monkey with frightened mouth, hooded head and two-color band on forehead. It is not clear what type of eyes the subject possesses. Subject 9827 is a highly intelligent electrician, with the ability to operate and repair complex electrical systems with ease. However, it is important to note that the subject also exhibits a spontaneous streak in his personality, which can lead to unpredictable and even dangerous behavior.

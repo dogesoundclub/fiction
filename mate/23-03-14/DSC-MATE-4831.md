@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4831
+Description: Subject 4831 is a male tiger of average height and weight for its species. The subject's skin is a vibrant green that looks to be natural, as opposed to the result of a dye or pigment. The subject's eyes are spectacles that are horned and have a slight yellow tint, and their mouth is almost always stretched into a frightened expression. The subject wears a two-color band on their forehead and a jade earring in their left ear. They also always wear a silver chain around their neck and smoke cigarettes frequently.

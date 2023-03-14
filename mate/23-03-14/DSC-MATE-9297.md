@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9297
+Description: DSC-MATE-9297 is a sapient male rabbit, measuring approximately 60cm in height (ears included) and weighing 3.6kg. DSC-MATE-9297 appears to have been surgically modified to possess opposable digits on his forelimbs, and possesses significant knowledge in electrical engineering, particularly with regard to repairs and maintenance of on-site electrical systems. 

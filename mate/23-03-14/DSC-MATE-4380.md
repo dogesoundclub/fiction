@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4380
+Description: Subject 4380 is a male Tiger with Ski Goggle eyes and a Doge Hat on his head. He has a Red Cross Earring on each ear and a Gold Chain around his neck. Despite his appearance, he is distinctly human in intelligence and behavior. His role is that of an electrical technician, often tasked with performing repairs and maintenance on various electrical equipment.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3712
+Description: DSC-MATE-3712 is a human female with distinct orange stripes on their face. Their eyes are also orange, and they wear a green cross earring in both ears. They are commonly seen wearing a choker. DSC-MATE-3712's personality is noted for their sense of duty and responsibility. However, they have also been observed exhibiting erratic, spontaneous behavior. DSC-MATE-3712 is outgoing and enjoys entertaining others, frequently leading to them being the center of attention.

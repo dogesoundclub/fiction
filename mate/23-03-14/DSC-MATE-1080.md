@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1080
+Description: Subject 1080 is a male monkey measuring 3 feet in height and weighing approximately 40 pounds. Its body is covered with short brown fur, and it has a long, prehensile tail. The most notable feature of this creature is its head, which is adorned with a headset that emits bright LED lights.

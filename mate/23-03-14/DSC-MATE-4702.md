@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4702
+Description: DSC-MATE-4702 is a male human with pink hair parted in the center. The subject has several spots of varying sizes that cover their face. DSC-MATE-4702 is commonly found wearing a red scarf and a normal gas mask over their face. The gas mask is purely cosmetic and does not function as a protective device.

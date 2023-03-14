@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3797
+Description: DSC-MATE-3797 is a human female measuring 1.7 meters in height and weighing 57 kilograms. They have vibrant and unusual features, with orange tiger stripes pattern on their face, and a head resembling a rainbow festival. DSC-MATE-3797 possesses a unique appearance that attracts attention wherever they go.

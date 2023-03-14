@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2477
+Description: DSC-MATE-2477 is a male monkey species, possessing a distinctive LED-headed headset, gold chain necklace, and frequently smoking a cigarette. Notably, this DSC exhibits a constantly frightened facial expression with blue clown-like eyes, and has been noted to express concerns about its own safety.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2757
+Description: DSC-MATE-2757 is a security guard of average height and build, standing at approximately 5'11". The subject's facial features are notable for its spots, making DSC-MATE-2757 stand out in a crowd. The subject's eyes are protected by ski goggles, which are to remain on at all times to minimize the risk of containment breaches. DSC-MATE-2757's hair is parted down the middle and dyed pink, further distinguishing it from other human beings.

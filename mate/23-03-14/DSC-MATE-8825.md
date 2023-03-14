@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8825
+Description: DSC-MATE-8825 is a male robot with green hair covered by a purple cap. DSC-MATE-8825's face features a frightened mouth and wears a pair of nerd glasses. DSC-MATE-8825's ears are adorned with a jade earring, and he carries a silver chain and an LED gas mask as accessories.

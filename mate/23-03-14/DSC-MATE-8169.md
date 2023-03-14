@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8169
+Description: 8169 is a human female with spots on her face and a signature red lip. She sports a short, witchy haircut and is often seen wearing a gold chain around her neck. Despite her mundane appearance, 8169 possesses a unique ability to fix objects using unorthodox methods. Her practical and hands-on nature has even earned her the nickname "The McGyver Banker."

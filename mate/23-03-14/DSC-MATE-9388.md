@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9388
+Description: Subject 9388 is a human female who has a distinct appearance with spots on the face and red lips. She habitually wears an Ushanka hat, which contrasts with her long blonde hair. Additionally, she adorns herself with a silver chain.

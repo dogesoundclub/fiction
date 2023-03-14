@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1667
+Description: DSC-MATE-1667 is a male human of average height and build. The most notable feature of DSC-MATE-1667 is his green layered head. Further examination of the layers has revealed that they are composed of a thick protein substance which appears to be a natural part of DSC-MATE-1667's body.

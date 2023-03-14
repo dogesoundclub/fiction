@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9909
+Description: DSC-MATE-9909 is a female human identified by the distinctive spots on her face, a red lip, and blue clown eyes. DSC-MATE-9909 has green hair which is usually placed in a purple cap. DSC-MATE-9909’s forehead features two-colored bands, which are always visible. DSC-MATE-9909 is frequently seen wearing a silver chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1369
+Description: DSC-MATE-1369 is a male monkey with band markings of two different colors on its forehead, and a pair of goggles that seem to be permanently affixed to its forehead. Despite its seemingly docile appearance, DSC-MATE-1369 has demonstrated a range of abilities that classify it as a Keter-class entity, including clairvoyance and telepathy. DSC-MATE-1369 possesses a strong sense of intuition that allows it to predict events before they happen, and it has been known to sense emotional states in those around it.

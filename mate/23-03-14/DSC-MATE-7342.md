@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7342
+Description: Item #7342 is a humanoid creature of the species Homo sapiens. Its facial features are unique, consisting of orange stripes across its face and a constant smile. Its eyes are large and round, resembling that of a clown, and are colored blue. Item #7342 possesses a unique head, resembling that of a pink rabbit. Its ears are adorned with a single gold earring and it wears a gold chain around its neck. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2383
+Description: Subject 2383 is a human female of average height and weight with a noticeable pink rabbit head and an electronic VR Rainbow LED as eyes. Her ears are adorned with cross-shaped green earrings, and her mouth is always covered by a medical mask. She often wears a gold chain accessory.

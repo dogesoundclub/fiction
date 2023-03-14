@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2805
+Description: Subject 2805 is a male human, with a head of normal blonde hair and distinctive orange stripes on their face. Their unique look is completed by jade earrings and a red scarf. The subject wears nerd glasses and a LED gas mask at all times, giving them the appearance of a futuristic beauty technician.

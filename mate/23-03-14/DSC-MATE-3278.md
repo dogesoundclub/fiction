@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3278
+Description: DSC-MATE-3278 is a human male with a distinctive mark on his mouth, resembling a spot. His eyes appear to be a pair of ski goggles, which he wears at all times. DSC-MATE-3278 also wears a hat with the image of a "Doge" on it. Two accessories are a silver chain and a cigarette, both of which DSC-MATE-3278 is allowed to have to maintain his psychological health.

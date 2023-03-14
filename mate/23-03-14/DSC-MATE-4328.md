@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4328
+Description: DSC-MATE-4328 appears to be a human male in his late 30s, with distinctive facial features. DSC-MATE-4328 has a spot on his mouth and a constant and unnerving smile. He sports a flashy gold earring on his left ear, and wears normal glasses. DSC-MATE-4328's head is shaved except for a large, vibrant Mohawk. A pair of goggles is frequently worn atop DSC-MATE-4328's head, and he favors a red scarf as his accessory of choice.

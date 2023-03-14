@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7185
+Description: DSC-MATE-7185 is a male Tiger with a frightened mouth and normal glasses. Their head is adorned by green hair in a purple cap, with a goggle on their forehead. They wear a medical mask in place of their mouth, and accessorize with a red cross earring and red scarf.

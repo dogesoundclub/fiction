@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2507
+Description: Item 2507 appears to be a human male of indeterminate age, standing at approximately 6 feet in height, with green layers on his head, gold earrings on his ears, red spots on his face and red clown eyes. The subject also wears a red scarf that covers his mouth, and a normal gas mask over his nose and mouth.

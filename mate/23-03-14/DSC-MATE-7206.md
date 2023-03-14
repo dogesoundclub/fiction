@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7206
+Description: 7206 is a male tiger standing over 6 feet tall and weighing approximately 500lbs. What sets 7206 apart from the rest of its species is its vibrant rainbow LED eyes that change hue according to its mood. Its head is covered with green fur and adorned with a jade earring on each ear. 7206 wears a medical mask over its mouth, which has been found to prevent infection spread, and a gold chain draped around its neck. 

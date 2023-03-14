@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4422
+Description: DSC-MATE-4422 appears to be an average human male with normal blonde hair and a frightened expression on his mouth. DSC-MATE-4422 frequently wears nerd glasses, a red victory band on his forehead, and a medical mask to cover his mouth. In addition, DSC-MATE-4422 often wears a gold chain as an accessory.

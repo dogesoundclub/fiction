@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3687
+Description: DSC-MATE-3687 is a female humanoid of average height and weight, identified as a fast food worker. DSC-MATE-3687's face is notable for its prominent red lip and blue clown eyes, and wears a tiara on their head. DSC-MATE-3687 also wears a goggle on their forehead, and two accessories consisting of a gold chain and LED gas mask.

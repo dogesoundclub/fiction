@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5230
+Description: DSC-MATE-5230 is a human female identified as a beautician by profession. DSC-MATE-5230's physical appearance features orange stripes and purple lips on their face, and orange eyebrows with green hair in a purple cap on their head. DSC-MATE-5230 also has jade earrings and wears a medical mask over their mouth.

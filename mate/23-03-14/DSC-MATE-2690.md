@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2690
+Description: DSC-MATE-2690 appears as a male monkey wearing a red beanie and jade earring in his left ear. The subject is also adorned with a silver chain and carries a whistle as an accessory. DSC-MATE-2690 has been identified as a reporter within the local community.

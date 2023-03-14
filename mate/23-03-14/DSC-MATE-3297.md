@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3297
+Description: Subject 3297 is a human female farmer, average height and build, with several notable accessories. They have bright red lip color and wear a jade earring in each ear. Their most striking feature is their VR Jade LED eyes, through which they can zoom in and see very detailed imagery. Subject 3297 also wears a choker and an LED gas mask, which might indicate past membership in an extremist group.

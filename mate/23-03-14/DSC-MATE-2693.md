@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2693
+Description: Subject 2693 is a human female with shoulder-length, brown hair styled in a 90s-era cut. She wears a pair of normal glasses over her eyes and frequently sports a medical mask over her mouth. A pair of goggles are consistently worn on her forehead, serving no apparent purpose in her profession or daily routine. Subject 2693 completes her ensemble with a choker, displaying a penchant for eccentric accessories.

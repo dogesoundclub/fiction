@@ -1,0 +1,2 @@
+ID # : DSC-MATE-405
+Description: DSC-MATE-405 is a human female, employed as a train driver. Her face features striking orange stripes, and her head is adorned with a rainbow festival. DSC-MATE-405 has a silver chain on her neck and a green cross earring on each of her ears. She is usually seen wearing a medical mask that covers her mouth.

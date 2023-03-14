@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7649
+Description: 7649 is a male human with a unique facial feature called a Mouth Spot. They have a permanent smile on their face and are often seen wearing a gold chain and carrying a candy stick. Despite their mundane appearance, 7649 has a mischievous personality that makes them prone to breaking rules and testing limits.

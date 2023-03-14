@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3471
+Description: DSC-MATE-3471 is a male monkey wearing a police uniform and sporting a pair of shade glasses and a gold earring on one ear. DSC-MATE-3471 appears to be sentient and capable of communication, with a demonstrated preference for verbal communication.

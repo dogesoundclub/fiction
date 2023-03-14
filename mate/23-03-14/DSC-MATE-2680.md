@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2680
+Description: DSC-MATE-2680 is a male human employed as a car salesman at a local dealership. DSC-MATE-2680 is easily recognizable due to their orange stripes on their face and a constant smile. DSC-MATE-2680's eyes are blue and the shape of clown eyes. They wear a red scarf around their neck and usually carry a candy stick with them.

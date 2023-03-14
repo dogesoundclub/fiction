@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8268
+Description: DSC-MATE-8268 is a male monkey of unknown species, measuring approximately 1 meter tall and weighing 18.5 kg. DSC-MATE-8268 exhibits blue clown eyes, a distinguishing physical trait, along with a goggle on its forehead and a gold earring in its right ear. DSC-MATE-8268 is often seen wearing a red scarf.

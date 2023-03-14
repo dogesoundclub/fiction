@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5983
+Description: DSC-MATE-5983 is a humanoid robot resembling a male of approximately 40 years of age. The entity measures 1.8 meters in height and weighs approximately 50 kg. DSC-MATE-5983's face prominently displays a frightened mouth, hidden under a medical mask. The entity's eyes are covered by normal glasses, and its ears bear a gold earring. DSC-MATE-5983's job occupation is that of a real estate agent.

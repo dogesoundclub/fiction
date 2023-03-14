@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5535
+Description: DSC-MATE-5535 is a humanoid female identified as a theater manager. She possesses a unique appearance with her purple lip, orange eyebrows, and unarranged green hair. Two horizontal color bands are imprinted on her forehead, with a cross-shaped green earring on each ear. DSC-MATE-5535 wears a standard surgical mask, which may indicate a germaphobic tendency.

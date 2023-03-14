@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4588
+Description: Subject 4588 is a female human, measuring approximately 5'8" in height. Their head is adorned with emerald green curls, which form sharp, pointed edges at the tips. Subject is known to wear a pair of silver goggles, which they often perch on their forehead. Their ears are pierced with cross-shaped green earrings, and they wear a silver chain around their neck.

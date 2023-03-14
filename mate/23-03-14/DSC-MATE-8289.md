@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8289
+Description: DSC-MATE-8289 is a humanoid entity that appears to be a human female of indeterminate age. DSC-MATE-8289 possesses a number of unusual physical features, including metal blue hair, an unusual goggle attached to the forehead, golden earrings, and lips that are typically stained a deep purple color. DSC-MATE-8289 is a lawyer by profession, and it is believed that they utilize their unique personality traits to manipulate individuals into providing sensitive information.

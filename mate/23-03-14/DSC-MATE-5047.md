@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5047
+Description: DSC-MATE-5047 is a male robot, approximately six feet in height. It has a red alarm for a head and wears a pair of nerd glasses. DSC-MATE-5047 often sports a gold chain and frequently indulges in smoking cigarettes despite not requiring oxygen to function.

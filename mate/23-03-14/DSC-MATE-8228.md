@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8228
+Description: DSC-MATE-8228 is a female human train driver with a dry sense of humor. They are known for their purple lipstick and jade earrings. Their eyebrows are an orange color, and they have a dual-colored band on their forehead. DSC-MATE-8228 often wears a medical mask while driving trains. They also have a silver chain accessory around their neck.

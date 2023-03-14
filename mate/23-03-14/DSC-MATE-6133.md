@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6133
+Description: DSC-MATE-6133 is a human female, identifying as a fashion designer. She is often seen wearing a purple cap with a headset, accented by a red cross earring and a two-color band on her forehead. DSC-MATE-6133 also wears a choker as an accessory.

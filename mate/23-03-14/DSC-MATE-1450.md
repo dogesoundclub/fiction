@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1450
+Description: 1450 is an adult female humanoid of the Homo sapiens species. It stands at approximately 167 cm tall and weighs about 59 kg. Its face is visibly distinct with spotted areas and wearing a red lipstick. Its eyes are red in color and appear similar to those of a clown. Its head resembles that of pink rabbit with long ears.

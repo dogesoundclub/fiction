@@ -1,0 +1,2 @@
+ID # : DSC-MATE-561
+Description: DSC-MATE-561 appears to be a male tiger, standing at approximately 1.8 m tall on his hind legs. The subject possesses a pair of jade LED ocular implants that enable him to view and interact with virtual reality environments. DSC-MATE-561 wears a blue bandana around his head and a silver chain around his neck.

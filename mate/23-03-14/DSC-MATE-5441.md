@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5441
+Description: Subject 5441 is a female human mechanic with distinct orange stripes on their face and purple lips. The subject wears normal glasses and has an orange side hairstyle with a jade earring on one of her ears.

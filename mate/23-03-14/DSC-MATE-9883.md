@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9883
+Description: Subject is a male rabbit of the lagomorph species known for being introspective, with thickset blue fur, a blue bandana around the head, and a striking pair of blue clown eyes. A gold chain is also seen around the neck for decorative purposes. While in captivity, this entity can be seen frequently lost in thought, engaging in what appears to be daydreaming. This has resulted in unexpected amusing moments, as Subject has been known to walk into poles or trip over objects while lost in thought.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5281
+Description: DSC-MATE-5281 is a human female with unusual physical features. The subject's face is marked with orange stripes, and its eyes resemble those of a clown, with a blue coloration and an expanded iris. The subject's head is adorned with a single wing, and its ears are pierced with golden earrings. DSC-MATE-5281 is usually seen wearing a medical mask over its mouth and a silver chain as an accessory.

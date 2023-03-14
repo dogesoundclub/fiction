@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6948
+Description: DSC-MATE-6948 is a male rabbit of the Leporidae family, descended from a long line of anthropomorphic rabbits. It is estimated to be approximately 35 years of age, and is able to communicate fluently in multiple human languages. DSC-MATE-6948 is notable for its natural charm and charisma, which can have hypnotic effects on those it interacts with.

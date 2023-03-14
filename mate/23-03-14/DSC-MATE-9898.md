@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9898
+Description: 9898 is a male robot standing at 5'11" tall. Its face is dominated by a singular green cyclops eye, which rotates to track objects of interest. It wears a retro cap, gold earring and red scarf. When smoking, it uses a cigarette which produces no smoke or ashes.

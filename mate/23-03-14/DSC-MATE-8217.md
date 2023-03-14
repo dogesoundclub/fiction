@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8217
+Description: DSC-MATE-8217 is a humanoid entity of the human species, identified as a beautician by profession. DSC-MATE-8217's most distinct feature is its spots across its face, with a constant smile. DSC-MATE-8217's eyes are blue clown eyes, giving it a whimsical and playful appearance.

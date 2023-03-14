@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6847
+Description: DSC-MATE-6847 is a male monkey of the Cercopithecidae family, commonly known as the "mangabey monkey." DSC-MATE-6847 stands at roughly 0.8 meters in height and weighs approximately 20 kilograms. The monkey has a striking appearance, wearing a blue bandana on its head, a pair of shade glasses over its eyes, and a jade earring on one of its ears. It also has a red scarf wrapped around its neck and a lit cigarette constantly in its hand.

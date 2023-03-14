@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4211
+Description: DSC-MATE-4211 is a human male, approximately 35 years of age, standing at 6'3" and weighing around 190lbs. DSC-MATE-4211's face features a permanent smile and wears nerd glasses, a bucket hat, and a green cross earring. DSC-MATE-4211 also regularly wears a gold chain and is frequently seen smoking cigarettes.

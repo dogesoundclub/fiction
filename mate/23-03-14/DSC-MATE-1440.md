@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1440
+Description: DSC-MATE-1440 is a male human with distinct features, including orange stripes on its face and red clown eyes. DSC-MATE-1440's head is covered by green layers of unknown origin. Additionally, DSC-MATE-1440 has a gold earring on its left ear and a silver chain as an accessory. DSC-MATE-1440 works as a beautician, and its knowledge of beauty treatments and techniques are exceptional.

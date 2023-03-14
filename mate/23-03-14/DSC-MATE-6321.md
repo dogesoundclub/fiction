@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6321
+Description: DSC-MATE-6321 is a human female who works as a news anchor. Her birth name is [REDACTED] and she is 34 years old. DSC-MATE-6321 is characterized by her bright orange stripes on her cheeks, a wide smile, and VR rainbow LED eyes. She also wears a retro cap and a silver chain as accessories.

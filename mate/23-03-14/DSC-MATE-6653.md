@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6653
+Description: DSC-MATE-6653 is a male monkey of the species Macaca fascicularis, standing approximately 120 cm tall (including its tail). It has been modified with a cybernetic implant in its forehead, which allows it to display VR Rainbow LED patterns and images. Additionally, DSC-MATE-6653 has an electronic goggle strapped to its forehead, which has various functions such as magnifying its vision and detecting different wavelengths of light. DSC-MATE-6653 wears an earring made of gold in its left ear.

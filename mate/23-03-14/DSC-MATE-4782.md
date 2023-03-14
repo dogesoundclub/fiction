@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4782
+Description: DSC-MATE-4782 is a human female measuring approximately 1.68 meters in height and weighing 57 kilograms. DSC-MATE-4782's most notable distinguishing features are the various spots on her face and her unusual purple lip. Her eyes are blue with a clown-like makeup pattern around them. DSC-MATE-4782's head is green with an edge curl hairstyle, and she wears a set of goggles on her forehead. She also wears a green cross earring and a choker as accessories.

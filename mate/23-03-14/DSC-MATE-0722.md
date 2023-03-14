@@ -1,0 +1,2 @@
+ID # : DSC-MATE-722
+Description: DSC-MATE-722 is a male Bengal tiger standing approximately 2 meters tall and weighing 190 kg. DSC-MATE-722's face is characterized by a permanent expression of fear, and its eyes resemble those of a clown with bright blue irises. DSC-MATE-722 sports a police cap on its head and a red scarf around its neck. The tiger also possesses two bands on its forehead, one green and the other orange, which appear to have a cultural significance.

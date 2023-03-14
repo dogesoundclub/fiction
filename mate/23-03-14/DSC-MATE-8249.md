@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8249
+Description: 8249 is a caucasian male of average height and build, with numerous spots covering his face. He wears glasses reminiscent of those often worn by nerds, and a red scarf as an accessory. Despite his political position, he presents as somewhat disheveled and unkempt.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6915
+Description: DSC-MATE-6915 is a human male in his mid-thirties, currently employed as a traffic officer. DSC-MATE-6915 possesses several unique physical features, including spots on its face, ski goggle-like eyes, and an unarranged green head. DSC-MATE-6915 also has green cross earrings and wears a silver chain around its neck.

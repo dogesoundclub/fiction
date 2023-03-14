@@ -1,0 +1,2 @@
+ID # : DSC-MATE-408
+Description: DSC-MATE-408 is a human male of average build and height with multiple spots on his face. He is often seen wearing a purple cap with a headset, green cross earring, gold chain, and a normal gas mask. DSC-MATE-408's most striking feature is his eyes, which are VR Jade LED.

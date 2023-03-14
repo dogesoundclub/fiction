@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9968
+Description: Subject 9968 is a female human of average height and weight. The most distinctive feature of 9968's appearance is the orange stripes present on their face, accompanied by purple lipstick. Their eyes are obscured behind a pair of plain glasses, and they wear a purple cap with a headset, a gold chain, and are usually seen smoking a cigarette.

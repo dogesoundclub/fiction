@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4896
+Description: DSC-MATE-4896 is a sapient rabbit of male sex, measuring approximately 1.5 meters in height, excluding ears. DSC-MATE-4896's facial features include a frightened mouth and eyes with unknown characteristics. DSC-MATE-4896's forehead bears a red victory band, and its ears are adorned with a single jade earring. DSC-MATE-4896 is commonly seen wearing a red scarf and carrying a candy stick.

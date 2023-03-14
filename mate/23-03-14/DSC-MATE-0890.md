@@ -1,0 +1,2 @@
+ID # : DSC-MATE-890
+Description: DSC-MATE-890 is a male humanoid robot with a green cyclops eye in place of a standard human eye. Its body is highly customizable, with various attachments for different tasks such as retractable drills and saws, and a silver chain for decoration. DSC-MATE-890 is highly skilled in real estate, with a vast knowledge of properties and their values.

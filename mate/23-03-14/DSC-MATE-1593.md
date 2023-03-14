@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1593
+Description: DSC-MATE-1593 is a bipedal tiger standing approximately 6ft tall when on its hind legs. It appears to be of the Bengal Tiger species, but with a number of notable differences, including the VR Rainbow LED eyes, Doge Hat on its head, Jade Earring on the left ear, and Gold Chain around its neck. It is often seen wearing a Normal Gas Mask, though this does not seem to impede its ability to breathe. DSC-MATE-1593 speaks fluent English, and has been cooperative with personnel since initial containment.

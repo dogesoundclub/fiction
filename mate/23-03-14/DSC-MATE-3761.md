@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3761
+Description: Subject 3761 is a male monkey, appearing to be a member of the species Macaca mulatta, standing at approximately 45 cm in height. Its features include a pair of horned rim glasses and a striking red scarf, occasionally accompanied by a cigarette dangling from its lips.

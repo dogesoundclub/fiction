@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6867
+Description: Subject 6867 is a male humanoid of the Homo sapiens species. He stands at 5'11" with spots dotting his face, but his most striking feature is his blue clown eyes that seem to almost glow in the dim lighting of the garage. He can be recognized by the characteristic purple cap with a headset perched on his head. Despite his playful and jovial nature, he maintains a no-nonsense demeanor when it comes to his work as a mechanic.

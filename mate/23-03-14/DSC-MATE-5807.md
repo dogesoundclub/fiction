@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5807
+Description: DSC-MATE-5807 appears to be a humanoid male, approximately 34 years of age, with red clown eyes and a red beanie on his head. DSC-MATE-5807 also sports a jade earring in his left ear, a gold chain around his neck, and is often seen with a cigarette in his mouth.

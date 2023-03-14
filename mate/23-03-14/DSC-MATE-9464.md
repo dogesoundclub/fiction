@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9464
+Description: Subject 9464 is a humanoid rabbit-like entity with bright red fur and ski goggle eyes. The entity stands at approximately 1.5 meters tall, with a distinctive hooded appearance. The entity is generally friendly and exuberant, but has a tendency to become overly excited about things others may consider mundane.

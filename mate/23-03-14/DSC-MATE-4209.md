@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4209
+Description: DSC-MATE-4209 is a male primate of the species known as a monkey. They have black hair atop their head and a jade earring in their left ear. Their eyes are red with an abnormal shape, reminiscent of clown makeup. DSC-MATE-4209 displays a persistent frightened mouth, as if in a state of constant terror.

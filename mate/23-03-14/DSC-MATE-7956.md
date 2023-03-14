@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7956
+Description: Subject 7956 is a male human with distinct orange stripes across his face. The subject is often seen wearing a Doge hat and a red scarf. In addition, the subject possesses a candy stick that is always within arm's reach. Subject 7956 has a highly sentimental personality, often moved to tears by sentimental moments in movies or TV shows. The subject also appears to have a deep appreciation for music and art that evokes strong feelings.

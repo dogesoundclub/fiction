@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9270
+Description: DSC-MATE-9270 is a human male with distinctive orange stripes covering his face, artistic doge hat on his head, gold earring on each ear, two color band on his forehead, and thick nerd glasses over his eyes. DSC-MATE-9270 often wears a medical mask over his mouth. He stands at an average height of 1.8 meters and weighs approximately 72 kilograms.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2596
+Description: DSC-MATE-2596 is a male humanoid robot standing at 1.85 m tall and weighing approximately 86 kg. DSC-MATE-2596 has distinct physical features, including a frightened mouth and ski goggle eyes, which serve as light sensors. DSC-MATE-2596's head is covered in green hair and a purple cap, and he wears a gold earring in his left ear.

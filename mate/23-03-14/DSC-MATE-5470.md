@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5470
+Description: DSC-MATE-5470 is a male tiger with VR Rainbow LED eyes and a frightened mouth expression. DSC-MATE-5470 is frequently seen wearing a bucket hat, with goggles on its forehead and a red cross earring on its left ear. DSC-MATE-5470 is addicted to cigarette smoking, and observations indicated it tends to exhibit nervousness and agitation when denied cigarettes for prolonged periods.

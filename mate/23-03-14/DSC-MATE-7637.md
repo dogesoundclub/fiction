@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7637
+Description: Item 7637 is a male monkey humanoid measuring 1.2 meters in height. Its face features a permanently frightened mouth and wears a silver chain around its neck. Item 7637's eyes are in the form of a ski goggle, which causes its gaze to induce dizziness, nausea, and headaches to anyone who sees it without protective eyewear. Its ears have a jade earring attached to them, and it habitually smokes cigarettes.

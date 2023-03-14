@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2993
+Description: DSC-MATE-2993 is a human male of average height and build who identifies as a beautician. DSC-MATE-2993 displays no anomalous physical abilities, but has shown a tendency towards rebellious behavior. It is often observed breaking rules or finding ways to bend them, purely for entertainment purposes. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9072
+Description: DSC-MATE-9072 appears to be a male human of average build and height. DSC-MATE-9072 is characterized by a series of spots on its face and a gold earring on its left ear. Its hair is often visible beneath its short peak cap. DSC-MATE-9072's eyes are corrected with normal glasses and it is commonly seen carrying a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5593
+Description: 5593 is a human male of average height and build, with blonde hair in a standard haircut. The individual has a small, dark mark on the upper lip known as a mouth spot, which appears to be a mole or birthmark. The most notable characteristic of this subject is its ski goggle eyes, which are not indicative of any known medical condition.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8632
+Description: DSC-MATE-8632 is a female human farmer with spotted skin and distinctive head features. Their eyes are replaced with VR Rainbow LED technology. DSC-MATE-8632's head is green with edge curl. DSC-MATE-8632 is often seen wearing a choker and an LED gas mask as accessories.

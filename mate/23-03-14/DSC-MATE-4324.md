@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4324
+Description: DSC-MATE-4324 is a male human electrician, exhibiting several unusual physical characteristics. DSC-MATE-4324's face features a series of spots which have yet to be identified as any known medical condition. DSC-MATE-4324 also wears nerd glasses over his eyes, with a red scarf and police cap on his head. A pair of goggles is situated on his forehead at all times, with an LED gas mask as his primary accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3045
+Description: DSC-MATE-3045 is a male police officer with orange stripes on their face and blue clown eyes. DSC-MATE-3045's hair is in a peak spike and they wear a green cross earring, a gold chain, and often hold a cigarette. DSC-MATE-3045's personality is unique in that they have an unusually strong sense of intuition. They seem to have the ability to predict future events and sense the emotions of those around them, although they deny any kind of psychic ability.

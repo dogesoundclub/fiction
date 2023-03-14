@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6128
+Description: DSC-MATE-6128 is a male monkey of the genus Macaca with the ability to communicate fluently in English. DSC-MATE-6128 is typically observed wearing a hoodie and horn-rimmed glasses, and often adorns a gold chain. The monkey has a distinctive two-color band on its forehead that extends to its cheeks. 

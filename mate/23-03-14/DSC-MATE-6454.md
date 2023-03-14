@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6454
+Description: DSC-MATE-6454 is a male human identified as the leader of a mafia organization. It stands approximately 5'10" tall and has an average build. DSC-MATE-6454's face is notable for its orange stripes and constant smile. DSC-MATE-6454 wears normal glasses and a hoodie, with a gold chain and a cigarette often seen as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1520
+Description: Dr. #1520 is a female human with orange-striped facial features. Her head is unusual in that it is green with curled edges. She also wears a gold chain and a pair of earrings that are of a unique design. Her personality is characterized by her tremendous energy and enthusiasm. She uses her exuberance to inspire others and often finds herself in humorous situations due to her over-eagerness.

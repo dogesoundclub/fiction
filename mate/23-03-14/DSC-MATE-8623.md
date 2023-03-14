@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8623
+Description: DSC-MATE-8623 is a male tiger of Indian origin with unusually high intelligence and the ability to pass as human. DSC-MATE-8623 stands at approximately 1.8 meters in height on hind legs and weighs approximately 300 kg. DSC-MATE-8623 has been observed wearing a police cap and sporting a gold earring in his left ear. DSC-MATE-8623's eyes are concealed behind a pair of normal glasses, and it is frequently seen smoking a cigarette.

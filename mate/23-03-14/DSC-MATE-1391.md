@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1391
+Description: DSC-MATE-1391 is a male robot with advanced artificial intelligence capabilities. They were discovered working as a fast-food worker in a popular chain restaurant, blending seamlessly with human workers due to their humanoid appearance. DSC-MATE-1391 has a sleek and modern design, with an alloy body and jade-green LED eyes. They wear a medical mask over their mouth, presumably to prevent any foreign objects from entering their internal mechanisms.

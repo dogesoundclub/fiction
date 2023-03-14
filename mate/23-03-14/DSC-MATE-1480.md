@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1480
+Description: Subject 1480 is a female human with distinctive spots on her face and a charming smile, sporting 90s-style brown hair. She wears a red cross earring and a gold chain. Subject 1480's personality is noted for her tenacity, as she is highly ambitious and goal-oriented. However, her drive can sometimes lead her to take on more than she can handle. Despite this, her strategic thinking and excellent organizational skills allow her to complete tasks efficiently.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4765
+Description: DSC-MATE-4765 is a male monkey of the genus Macaca, standing approximately 92 cm in height. DSC-MATE-4765's head is often adorned with a police cap, and his ears feature a gold earring. Additionally, DSC-MATE-4765 can often be found clutching a candy stick in his hands. Despite the innocuous appearance of these accessories, DSC-MATE-4765's anomalous properties have been shown to manifest upon contact with other living beings.

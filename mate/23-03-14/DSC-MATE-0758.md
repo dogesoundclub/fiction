@@ -1,0 +1,2 @@
+ID # : DSC-MATE-758
+Description: DSC-MATE-758 is a male tiger approximately 2.5m in length, with green hair and a purple cap on its head. DSC-MATE-758's ears are adorned with a gold earring, and it often wears a red scarf around its neck. DSC-MATE-758 also demonstrates distinctive human-like behavior, engaging in complex cognitive skills, such as advanced organizational strategies, goal setting, and strategic thinking that are uncommon among felines.

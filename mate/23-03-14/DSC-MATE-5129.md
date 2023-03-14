@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5129
+Description: DSC-MATE-5129 is a human male police officer, identified as Officer ██████, who displays several anomalous properties. DSC-MATE-5129's face is adorned with orange stripes and a frightened mouth. DSC-MATE-5129's head is covered in green hair, accompanied by a purple cap. DSC-MATE-5129's ears feature a gold earring, and DSC-MATE-5129 can often be seen wearing a medical mask and red scarf.

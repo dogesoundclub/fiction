@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7453
+Description: DSC-MATE-7453 is a human female of unknown age and origin. She possesses a unique and distinctive appearance, with orange stripes and red lips adorning her face. Her eyes resemble those of a clown, with blue irises and exaggerated black eyeliner. DSC-MATE-7453's head is blonde and is often seen wearing a red Ushanka hat. She occasionally sports a gold chain around her neck and a red cross earring in her right ear.

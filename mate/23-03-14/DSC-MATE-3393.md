@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3393
+Description: DSC-MATE-3393 is a male monkey of unknown origin that possesses some humanoid features. Its face has a permanently frightened mouth and red clown eyes. Its head is parted pink with a gold chain and cigarette as accessories. DSC-MATE-3393 works as a farmer, although its exact duties and responsibilities are unknown. It displays a strong sense of duty and responsibility and always takes its tasks seriously.

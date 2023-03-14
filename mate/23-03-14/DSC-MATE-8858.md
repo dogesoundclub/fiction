@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8858
+Description: Item #8858 is a male human of average build, with unique and noticeable physical features. It has multiple spots on its face and a perpetually friendly smile. Its eyes are large and blue, resembling those of a clown. It wears a bucket hat on its head and has a two-color band on its forehead, with a pair of goggles resting on top. It also dons a red scarf as an accessory.

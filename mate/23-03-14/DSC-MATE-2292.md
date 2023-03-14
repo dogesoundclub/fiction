@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2292
+Description: DSC-MATE-2292 is a male tiger of unknown origin, possessing anomalous abilities related to programming and computer systems. DSC-MATE-2292's facial features include a consistently frightened mouth, even when expressing contentment or pleasure.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7167
+Description: DSC 7167 appears to be a human female of average height and weight, with blue clown eyes and red lipstick. Her head is often concealed by a hoodie with a two color band on her forehead. She is often seen wearing a choker and an LED gas mask. DSC 7167 works as a beautician in a local salon.

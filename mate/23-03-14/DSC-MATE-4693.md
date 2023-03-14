@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4693
+Description: DSC-MATE-4693 is a human female with a striking tiara on her head, reminiscent of royalty. Her purple lips are a distinctive feature, accompanied by a red cross earring that is placed on both ears. DSC-MATE-4693 often covers her mouth with a medical mask. Her fashion style portrays a unique and eccentric taste that is apparent in her designs.

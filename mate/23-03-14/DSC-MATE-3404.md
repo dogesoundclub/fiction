@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3404
+Description: DSC-MATE-3404 is a male rabbit of an unknown subspecies. DSC-MATE-3404 possesses blue clown-like eyes and is observed to wear a retro cap with a gold earring attached to each ear. DSC-MATE-3404 also wears a silver chain and a normal gas mask, which are reported to help contain the object’s anomalous properties.

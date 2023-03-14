@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1527
+Description: DSC-MATE-1527 is a human female in her early thirties. She stands at 5’8” tall and weighs approximately 150 pounds. DSC-MATE-1527 has brown skin and black hair in a short bob cut. One of her defining features is a series of spots that appear on her face and neck. These spots have been identified as a unique genetic trait and are not currently believed to pose any anomalous properties.

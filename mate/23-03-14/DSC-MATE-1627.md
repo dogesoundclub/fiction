@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1627
+Description: Identification number 1627 appears to be a human male with a distinct style. The entity is often seen wearing a medical mask, normal glasses, and a Doge hat, with a gold earring and silver chain as additional accessories. While the entity may seem approachable, it should be noted that the Mafia Boss is a dangerous individual with significant influence and resources.

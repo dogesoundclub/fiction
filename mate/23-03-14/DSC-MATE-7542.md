@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7542
+Description: DSC-MATE-7542 is a male monkey of the species macaca fascicularis. DSC-MATE-7542 displays an otherwise atypical sense of communication skills and empathy, as demonstrated by the inherent ability to pick up on the emotions of others. The specimen's personalized purple cap and horned rim glasses serve as its primary means of expression, complemented by its use of its mobile headset when necessary. DSC-MATE-7542 does not appear to be affected by radiation or toxin exposure, nor does it exhibit any abnormal behavior or characteristics.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9869
+Description: DSC-MATE-9869 is a human male, standing approximately 180 cm tall and weighing approximately 75 kilograms. DSC-MATE-9869 presents with numerous unique physical features, including orange stripes on his face, green hair in a purple cap, and a red victory band on his forehead. Additionally, DSC-MATE-9869 wears nerdy glasses over his eyes and a jade earring on his left earlobe. DSC-MATE-9869 is often seen wearing a silver chain and smoking a cigarette.

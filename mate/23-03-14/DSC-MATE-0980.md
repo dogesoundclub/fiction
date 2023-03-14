@@ -1,0 +1,2 @@
+ID # : DSC-MATE-980
+Description: DSC-MATE-980 appears to be a female human with red clown eyes, a pink rabbit head, and a medical mask covering her mouth. She wears a goggle on her forehead and gold earrings on her ears. Despite her unusual appearance, DSC-MATE-980 displays high levels of intelligence and cunning. She has shown herself to be a skilled and ruthless villain, using her powers of manipulation and persuasion to turn even the most loyal of individuals into her pawns.

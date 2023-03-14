@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3509
+Description: DSC-MATE-3509 is a human male, identified as a Traffic Officer. He displays a charming personality that can make him the life of the party. DSC-MATE-3509 possesses an aura of charisma that could attract anyone within his vicinity. When engaged in social activities, DSC-MATE-3509 can perform amusing jokes and dances, which can make others laugh.

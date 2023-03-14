@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9581
+Description: DSC-MATE-9581 is a humanoid robot standing at 5'11" in height and weighing approximately 320 kilograms. It has a single green cyclops eye and wears horned rim glasses over it. DSC-MATE-9581 carries a goggle on its forehead and has a gold earring on its left ear. The robot wears a medical mask over its mouth and a red scarf as an accessory.

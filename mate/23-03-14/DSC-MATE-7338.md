@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7338
+Description: DSC-MATE-7338 is a male human with a train driver's uniform. The subject possesses orange stripes on his face, with red clown eyes, a metallic purple head, jade earrings, and a red scarf as an accessory. DSC-MATE-7338's mouth is always covered with a medical mask. The subject displays no abnormal physical characteristics except for a fast moving tendency.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1173
+Description: DSC-MATE-1173 appears to be a humanoid rabbit approximately 1.8 meters in height. They are a male and known to work at a local fast food restaurant. DSC-MATE-1173's face feature includes a frightened mouth and their eyes resemble that of a clown, colored blue. DSC-MATE-1173 wears a retro cap on their head and has a jade earring in each ear. They are often seen wearing a red scarf and smoking a cigarette.

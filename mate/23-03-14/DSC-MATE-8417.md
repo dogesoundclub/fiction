@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8417
+Description: Subject 8417, also known as "The Real Estate Agent," is a human male of average height with unique facial features. His face is covered in spots and he has a permanent smile, which can make him appear untrustworthy to some. He often wears a short peak cap on his head and a jade earring on his left ear.

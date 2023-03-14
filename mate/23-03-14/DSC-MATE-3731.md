@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3731
+Description: Subject 3731 was a human male of average height and build. Their most distinctive features were the spots on their face, which gave them an almost leopard-like appearance. They were often seen wearing a purple cap with a headset and a green cross earring in one ear. A gold chain was also frequently seen around their neck.

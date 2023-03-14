@@ -1,0 +1,2 @@
+ID # : DSC-MATE-349
+Description: DSC-MATE-349 is a human male with a unique appearance. DSC-MATE-349 has a parted pink hairstyle and is often seen wearing a jade earring. DSC-MATE-349 also possesses a unique facial feature-a mouth spot which is located on his upper lip. DSC-MATE-349's most striking feature is his red clown eyes, which are said to make him appear intimidating or unapproachable.

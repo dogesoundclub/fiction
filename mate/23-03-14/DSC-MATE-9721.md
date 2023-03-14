@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9721
+Description: DSC-MATE-9721 is a male monkey, standing at approximately 1.2 meters in height. DSC-MATE-9721's mouth appears to be in a constant state of fear, and it is often seen clutching a candy stick in its right hand. DSC-MATE-9721 wears a doge hat on its head, and normal glasses on its eyes.

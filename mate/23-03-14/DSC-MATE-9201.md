@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9201
+Description: Subject 9201 is a human male of average height and weight, with distinct face features. He has orange stripes on his cheeks, and a mouth that appears to be perpetually frightened. The subject's head is covered in green layers, and he wears a gold earring on one ear. He also sports a gold chain around his neck and a normal gas mask, which he insists is "just in case."

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3104
+Description: DSC-MATE-3104 is a male monkey of the Cercopithecidae family, with a height of 0.88 meters, covered in short brown fur. The subject possesses shade glasses over its eyes, and a red scarf around its neck. Additionally, the subject is often seen sporting a retro cap and occasionally carries a candy stick.

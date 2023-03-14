@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4403
+Description: Subject 4403 is a human male known for his distinctive purple cap and green cross earring. He is employed as a traffic officer, tasked with ensuring the smooth flow of vehicles and pedestrians in heavily congested urban areas.

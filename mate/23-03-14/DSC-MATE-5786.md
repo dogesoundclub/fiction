@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5786
+Description: Subject 5786 is a human male with spotted face features and a contagious smile. They sport normal glasses and have a unique green layered hairstyle. The subject is often seen wearing a red scarf and a gold earring. Although visually unremarkable and mundane, subject 5786 has exhibited a peculiar behavioral anomaly.

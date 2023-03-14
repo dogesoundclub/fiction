@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4100
+Description: Subject 4100 is a male monkey of unknown subspecies with parted pink hair and jade earring on its ears. Its eyes are unknown. Despite its appearance, it has demonstrated a high level of intelligence, and possesses an ability to communicate with humans in a basic form of language.

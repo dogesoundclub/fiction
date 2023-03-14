@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2640
+Description: DSC-MATE-2640 was a human female identified as a mechanic. She possessed several distinct physical characteristics, including spots on her face and red lips. DSC-MATE-2640's head was noted to have a set of wings and goggles on her forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1607
+Description: DSC-MATE-1607 is a Caucasian male human with blonde hair and normal glasses. Their face features spots and a frightened mouth. DSC-MATE-1607 wears a red victory band on their forehead, a gold earring on their ear, and a silver chain as an accessory.

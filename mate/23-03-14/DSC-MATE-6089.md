@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6089
+Description: 6089 is a male human of average height and build. They possess unique facial features, including a small black spot on their mouth and a perpetually frightened look on their face. Their eyes are equipped with ski goggles and they wear a single jade earring in their left ear. Additionally, they often wear a medical mask to prevent inhaling smoke and other harmful particles.

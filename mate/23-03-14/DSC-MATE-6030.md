@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6030
+Description: DSC-MATE-6030 appears to be a middle-aged human female with a charismatic personality and a keen sales mentality. Its facial features are notable for the presence of purple lip coloring and spots, and it possesses red clown eyes. DSC-MATE-6030's head is adorned with a witch's hat, and it has a green cross earring on each ear. It also wears a silver chain as an accessory.

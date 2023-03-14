@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4343
+Description: DSC-MATE-4343 is a human male with VR Rainbow LED eyes and a normal blonde haircut. DSC-MATE-4343 wears a goggle on their forehead and a gold earring on each ear. They are often seen displaying a silver chain to those around them. DSC-MATE-4343 is known for their strong sense of duty and responsibility, but also for their fun-loving nature. Despite their serious work as a traffic officer, DSC-MATE-4343 easily becomes the life of the party, getting everyone to dance and sing.

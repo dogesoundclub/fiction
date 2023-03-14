@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9730
+Description: DSC-MATE-9730 is a humanoid tiger standing at approximately 2 meters tall. Its eyes are a bright blue color and resemble clown makeup. DSC-MATE-9730 is often seen wearing a bucket hat on its head and a red cross earring on its left ear as well as a medical mask over its mouth, presumably to obscure its features and maintain secrecy.

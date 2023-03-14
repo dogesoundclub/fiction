@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3341
+Description: DSC-MATE-3341 appears to be a human male with orange stripes on his face and a frightened mouth. He wears nerd glasses and a gas mask, along with a silver chain and a gold earring. There is a goggle on his forehead that he uses to observe his surroundings.

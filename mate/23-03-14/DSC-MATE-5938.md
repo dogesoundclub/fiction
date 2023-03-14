@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5938
+Description: 5938, also known as "The Robot Boss," is a male robot adorned with a green cyclops eye, horned rim glasses and a doge hat. Its ears are pierced with a red cross earring on the left. To the untrained eye, 5938 looks just like any other mafia boss, but it is far from human.

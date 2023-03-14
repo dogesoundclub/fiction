@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6572
+Description: Subject 6572 resembles a male monkey species with distinctive features such as a mohawk on their head and a set of jade earrings they wear consistently. Their forehead is marked with a two-colored band. Subject 6572 can be identified by their frightened mouth which they display during stressful situations. They are also known to carry around a candy stick as an accessory item.

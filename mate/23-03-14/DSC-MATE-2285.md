@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2285
+Description: Subject 2285 is a male human of average height and weight, with unique features that make him stand out from the crowd. He is often seen wearing normal glasses that enhance his vision, but the most distinctive feature of his face is a small mouth spot that sits just below his lower lip. Despite its size, the mouth spot is impossible to miss, especially when paired with the subject's charming smile.

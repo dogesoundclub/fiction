@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2399
+Description: DSC-MATE-2399 is a male humanoid individual of average height and weight with distinctive facial features. DSC-MATE-2399 has several spots on their face, a retro cap on their head, and blue clown eyes. DSC-MATE-2399 wears a gold earring and a medical mask covering their mouth. DSC-MATE-2399 is usually seen wearing a gold chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8556
+Description: DSC-MATE-8556 is a male tiger of approximatively 2 meters in height with an unusual set of features including a medical mask covering its mouth, normal glasses, and a bucket hat on its head. DSC-MATE-8556 is accessorized with a jade earring on its right ear and a gold chain around its neck. The tiger appears to possess the ability to speak fluently in human languages.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1552
+Description: Subject 1552 is a human male with bright orange stripes painted across their face, giving the appearance of a wild tiger. Their mouth is permanently contorted into a frightened expression, causing others to feel uneasy around him. His bright blue clown eyes often dart around nervously, never staying in one place for too long. He wears a hoodie with a two-colored band across his forehead, and always sports a red scarf around his neck. Subject 1552 can usually be seen with a cigarette in hand, despite being aware of the risks.

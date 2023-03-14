@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4325
+Description: DSC-MATE-4325 is a robotic police officer with a retro cap on his head and a green cyclops eye. He stands at 1.8 meters tall and weighs approximately 70 kilograms. His body is made of a combination of metal alloys and plastic materials.

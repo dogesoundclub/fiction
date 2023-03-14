@@ -1,0 +1,2 @@
+ID # : DSC-MATE-372
+Description: DSC-MATE-372 is a male human lawyer with distinctive features. Its face is covered in spots, and its mouth has a clown-like appearance. Its eyes are blue and have a clownish quality to them. On the forehead, DSC-MATE-372 has a two-color band and a pair of goggles that it wears. DSC-MATE-372 also has a green cross earring in each ear, wears a gold chain, and carries a candy stick.

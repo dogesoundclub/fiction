@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2756
+Description: Subject 2756, also known as "Red Beanie," is a human male with a distinctive mouth spot and an infectious smile. The subject typically wears a red beanie and a jade earring, and is often seen wearing a silver chain and smoking a cigarette.

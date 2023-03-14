@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9697
+Description: DSC-MATE-9697 is a human female, approximately 32 years of age, with a height of 1.7 meters and a weight of 60 kilograms. DSC-MATE-9697 possesses spots all over her body, resembling those seen in some animals. DSC-MATE-9697 also has unarranged green hair and a two-color band on her forehead.

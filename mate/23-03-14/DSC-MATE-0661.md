@@ -1,0 +1,2 @@
+ID # : DSC-MATE-661
+Description: DSC-MATE-661, also known by its preferred alias of "the Banker", is a humanoid entity of female gender that appears to be a human being. However, it possesses several anomalous features that separate it from the average human.

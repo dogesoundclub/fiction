@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4894
+Description: DSC-MATE-4894 is a male monkey with horned rim glasses and a hoodie. The subject is often seen wearing a red scarf and a normal gas mask. It appears to be sentient and capable of verbal communication in English.

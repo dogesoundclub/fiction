@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8826
+Description: DSC-MATE-8826 is a male tiger of indeterminate age, with green hair worn in a purple cap and red cross earrings on each ear. They often wear nerd glasses and a medical mask, which serves to conceal what appears to be a permanently frightened mouth. Although their physical appearance can be intimidating, DSC-MATE-8826 displays a docile disposition when calm and collected.

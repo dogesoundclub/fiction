@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2297
+Description: Subject 2297 is a male human who exhibits orange stripes on his face and a clown mouth. His eyes are red and resemble circus clown eyes. His head is not arranged green and has a goggle on the forehead. He wears a green cross earring and a silver chain around his neck. He is often seen carrying a candy stick as an accessory.

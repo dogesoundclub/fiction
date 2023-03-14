@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6277
+Description: 6277 appears to be a seemingly innocent rabbit, with a penchant for accessorizing. It wears a bucket hat and nerd glasses and often sports a gold chain and earrings. Additionally, 6277 has been observed smoking a cigarette on more than one occasion.

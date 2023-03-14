@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1849
+Description: DSC-MATE-1849 is a male rabbit humanoid that stands at 4 feet tall. The subject is known for an overly frightened mouth and wears normal glasses with a blue bandana on its head. It also wears a jade earring as well as a silver chain around its neck. DSC-MATE-1849 handles a whistle which it uses for security reasons. 

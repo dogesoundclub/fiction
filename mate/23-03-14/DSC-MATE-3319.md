@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3319
+Description: DSC-MATE-3319 is a female human with distinct facial features including a bright red lip and VR jade LED eyes. DSC-MATE-3319’s hair is styled in pig tails and they wear a red cross earring and a choker as accessories.

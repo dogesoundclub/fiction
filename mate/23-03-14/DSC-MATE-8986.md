@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8986
+Description: DSC-MATE-8986 is a humanoid male of the Homo sapiens species. The subject has multiple spots on their face and features a jade earring on one ear. DSC-MATE-8986 often keeps a goggle on their forehead and wears a medical mask to cover their mouth. The Foundation has found that exposure to DSC-MATE-8986's smile seems to induce a feeling of joy in subjects within a four-meter radius.

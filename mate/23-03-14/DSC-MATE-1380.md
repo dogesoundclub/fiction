@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1380
+Description: DSC-MATE-1380 appears to be a humanoid robot resembling a middle-aged man. The facial features consist of a frightened mouth and horned rim glasses, with a police cap as its headpiece. DSC-MATE-1380's programming allows it to display a great deal of charisma, making it quite effective in social situations. However, DSC-MATE-1380 shows no signs of advanced intelligence, and is unable to deviate from its programmed duties.

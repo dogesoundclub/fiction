@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4649
+Description: Dr. 4649 appears to be a male human with unique features that indicate an affiliation with the monk order. Their head is bald, and their mouth is always covered with a medical mask, giving the impression of a surgeon's attire. However, the most striking features are the orange stripes present on their face, alongside a perpetual look of fear, which can be observed through their frightened mouth.

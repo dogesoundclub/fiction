@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4259
+Description: DSC 4259 is a male of the Homo sapiens species, presenting with a distinctive mouth spot, jade earring, metal purple head and nerd glasses. The subject covers its mouth with a medical mask and wears a silver chain as an accessory.

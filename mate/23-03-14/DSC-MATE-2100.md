@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2100
+Description: Subject 2100 is a unique specimen, presenting as a Monkey/Human hybrid. They possess a full set of VR Rainbow LED eyes, a Police Cap as their head, and a Jade Earring for each ear. They carry a Silver Chain as their primary accessory, and a Normal Gas Mask as their secondary.

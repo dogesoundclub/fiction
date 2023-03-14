@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8311
+Description: DSC-MATE-8311 is a male human of average height and build, with several unique facial and head features. DSC-MATE-8311's face is covered in bright orange stripes, and the subject has a permanent smile on their lips. The eyes of DSC-MATE-8311 are non-anatomical, resembling ski goggles that can alter their color and shape depending on the subject's mood. DSC-MATE-8311's head is adorned with a red beanie, and they wear a jade earring on their left ear.

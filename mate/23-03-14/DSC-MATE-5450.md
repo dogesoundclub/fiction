@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5450
+Description: DSC-MATE-5450 is a female human with distinctive spots on her face and a smile that is often described as charming. She has green hair and wears a purple cap. DSC-MATE-5450 also has a two-color band on her forehead and a red cross earring. She is often seen smoking a cigarette.

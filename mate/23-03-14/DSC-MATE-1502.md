@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1502
+Description: Subject 1502 is a female human with distinct facial features, including bright red lips and unusual orange eyebrows. They have a head of rainbow-colored hair, which is noticeably styled in festival-like fashion. Their ears are pierced with jade earrings, and they often wear a choker around their neck. 1502 is frequently seen with a cigarette in hand, which may contribute to their reckless behavior.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3131
+Description: DSC-MATE-3131 is a male rabbit of the species Oryctolagus cuniculus, standing at an average height of 3 feet 4 inches. DSC-MATE-3131 also possesses several unique physical traits. DSC-MATE-3131 wears a purple cap and has green hair. DSC-MATE-3131 often wears a silver chain that is attached to his clothing, and carries a candy stick in his coat pocket. DSC-MATE-3131's eyes are human-like and he often wears horned rim glasses. The forehead has a feature presenting a two color band, and DSC-MATE-3131's ears have jade earrings.

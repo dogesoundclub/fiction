@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1871
+Description: Subject 1871 is a human male that possesses several unusual characteristics. The subject's face is split by orange stripes and wears a constant smile even during times of extreme duress. The subject's head is covered by a bucket hat adorned with a red victory band. The ears are fitted with a green cross earring. The subject is also known to carry a red scarf and candy stick as accessories.

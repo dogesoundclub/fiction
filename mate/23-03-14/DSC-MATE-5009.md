@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5009
+Description: DSC-MATE-5009 is a robot of male sex, measuring 180cm in height. Its head features green hair in a purple cap and wears normal glasses. DSC-MATE-5009 also carries a silver chain and a whistle as its accessories.

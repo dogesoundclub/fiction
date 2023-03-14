@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9811
+Description: DSC-MATE-9811 is a male Siberian tiger, often seen wearing a headset with LED lights and smoking a cigarette. Their mouth is often in a frightened expression, contrasting with their otherwise no-nonsense personality. DSC-MATE-9811 is the current boss of a powerful mafia, and their authority and respect among their underlings is absolute.

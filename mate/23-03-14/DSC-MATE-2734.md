@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2734
+Description: Subject 2734 is a human female of average height and build, with orange stripes across their face and purple lips. Their eyes are distinguishable by the orange eyebrows, and their head is always covered by a hoodie, adorned with a two-color band on their forehead. At all times, subject 2734 wears a medical mask over their mouth. Despite their unique physical appearance, subject 2734 appears to function and interact with other humans without drawing unwanted attention.

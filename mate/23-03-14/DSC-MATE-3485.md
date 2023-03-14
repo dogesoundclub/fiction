@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3485
+Description: DSC-MATE-3485 is a male rabbit, standing roughly 30 cm tall and weighing approximately 2 kg. DSC-MATE-3485 possesses distinctive red clown eyes, which emit a faint glow in low light conditions. DSC-MATE-3485 is also regularly observed wearing a police cap and a red scarf. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6073
+Description: DSC-MATE-6073 is a male tiger of a previously undiscovered species. The subject is 1.8 meters long from nose to tail and weighs approximately 130 kilograms. DSC-MATE-6073 primarily resembles a Bengal tiger, though it possesses distinct features such as nerd glasses and a gold earring on its right ear. It also wears a red scarf.

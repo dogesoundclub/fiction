@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5120
+Description: DSC-MATE-5120 is a male monkey with unique features. Its face appears to be in a constant state of fear, with a permanently open mouth. Its eyes are akin to that of a clown with bright blue pigments highlighting the irises. DSC-MATE-5120 has a blue bandana atop its head and a gold earring in each ear. It often wears a silver chain, and a gas mask is present on occasion.

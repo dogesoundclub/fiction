@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8867
+Description: Subject 8867 is a human male, standing at approximately 6 feet tall. Their eyes resemble ski goggles, and they wear a blue bandana on their head. Subject 8867 also wears a gold earring and a silver chain as accessories, as well as regularly carrying a cigarette.

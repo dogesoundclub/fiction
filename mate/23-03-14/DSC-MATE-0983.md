@@ -1,0 +1,2 @@
+ID # : DSC-MATE-983
+Description: Subject 983 is a male rabbit standing at 5'7" with blue clown eyes and a distinctive 2 color band on his forehead. He is often seen wearing a silver chain and smoking a cigarette. Subject 983 has shown a great sense of humor and enjoys making others laugh. This can often lead to humorous situations that may potentially threaten the safety of himself and other passengers.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2885
+Description: Subject 2885 is a human female, standing at 5'7" and weighing approximately 156 pounds. She displays distinct facial features, consisting of orange stripes that run diagonally across her cheeks. Her eyes utilize normal glasses to aid her vision. The subject's head is adorned with a tiara, while her ears are pierced with a jade earring. The subject also possesses a choker around her neck and a standard gas mask for respiratory protection.

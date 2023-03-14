@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4687
+Description: DSC-MATE-4687 is a human female with blonde hair, spotted skin, and a single wing growing from the back of their head. DSC-MATE-4687 also has a distinctive two-color band on their forehead. They have been observed to wear a cigarette at all times. DSC-MATE-4687 has shown to possess extraordinary organizational skills, which they utilize to lead groups and delegate tasks. DSC-MATE-4687 often comes across as controlling to others and has created humorous situations due to their matter-of-fact approach. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4520
+Description: 4520 appears to be a humanoid robot designed to resemble a middle-aged real estate agent. Its face features a perpetually frightened mouth, and it wears a green hairpiece in a purple cap. 4520's accessories include a gold chain around its neck and a cigarette that it often holds between its metal fingers.

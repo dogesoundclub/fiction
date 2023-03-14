@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9648
+Description: DSC-MATE-9648 is a female human with distinct features that set her apart from non-anomalous humans. DSC-MATE-9648 has spots on her face, blue clown eyes, and green hair that appears disheveled and not arranged. On her forehead, DSC-MATE-9648 is frequently seen wearing a pair of goggles. The most notable feature of DSC-MATE-9648 is a red cross earring worn in her left ear. DSC-MATE-9648 is often seen wearing a silver chain around her neck.

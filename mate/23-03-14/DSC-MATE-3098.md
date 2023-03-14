@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3098
+Description: DSC-MATE-3098 is a male specimen of tiger species, standing at 7ft height and weighing approximately 330 kg. The subject's eyes are replaced with Ski Goggle lenses, while its head adorned with a Red Beanie. Two accessories that are commonly seen on DSC-MATE-3098 are a Silver Chain around its neck and a Whistle hanging from its beanie. 

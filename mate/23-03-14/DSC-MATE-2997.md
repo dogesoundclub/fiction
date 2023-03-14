@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2997
+Description: DSC-MATE-2997 is a humanoid robot, believed to have been manufactured in the early 1980s. DSC-MATE-2997 stands approximately 1.7 meters tall, and weighs approximately 180 kilograms. DSC-MATE-2997's distinguishing features include a single green cyclops eye located in the center of its face, and horned rimmed glasses. DSC-MATE-2997's head is covered by a bucket hat, and it is often seen wearing a silver chain and smoking a cigarette.

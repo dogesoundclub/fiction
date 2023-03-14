@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6495
+Description: DSC-MATE-6495 appears to be a male monkey with a distinctive Doge hat on their head and a jade earring in each ear. They wear a silver chain around their neck and a gas mask over their face. DSC-MATE-6495 has demonstrated high levels of creativity and frequently engages in a variety of unusual hobbies, including writing poetry, creating cosplay costumes, and collecting peculiar objects. It is unknown whether DSC-MATE-6495's creativity is due to their species or related to their anomalous properties.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3112
+Description: DSC-MATE-3112 is a male monkey of an unidentified species. They stand at approximately 1.5 meters and have a frightened mouth expression, which is present at all times. The eyes of DSC-MATE-3112 are VR Rainbow LED, and their ears are adorned with a single Jade Earring.

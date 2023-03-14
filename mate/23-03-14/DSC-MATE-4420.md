@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4420
+Description: DSC-MATE-4420 is a female human identified as a real estate agent. DSC-MATE-4420’s facial feature includes spots and a pair of red clown eyes. DSC-MATE-4420 has a head made out of a metal blue material and wears a red cross earring on each ear. They also wear a gold chain around their neck and an LED gas mask over their mouth area.

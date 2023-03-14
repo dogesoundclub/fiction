@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9292
+Description: DSC-MATE-9292 is a female human mechanic with distinctive features. Its signature purple lips and orange eyebrow eyes with a red cross earring on each ear and a tiara crown on its head creates DSC-MATE-9292's unique appearance. Its face is accentuated by a silver chain necklace that always hangs around its neck. Additionally, DSC-MATE-9292 wears an LED gas mask as a form of protection while working with industrial machinery.

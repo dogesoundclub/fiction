@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1855
+Description: Subject 1855 appears to be a humanoid robot, standing at 6 feet tall. The subject's external covering is made of a silver metallic alloy, with several sections plated in gold. The subject’s eyes consist of Virtual Reality Rainbow LED displays, which are capable of displaying a wide range of colors and patterns. The subject also wears a Purple Cap on their green hair, which remains fixed and sturdy on their metal head.

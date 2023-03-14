@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5226
+Description: Item #5226 is a human female, appearing to be in her early thirties. She has spots on her face which add to her unique appearance. Her smile is her most noticeable feature, bringing light to any room she enters. Her hair is short, lending her a witchy vibe. An interesting characteristic of her forehead is two color bands that run parallel to each other. She has gold earrings on each ear, and a gold chain around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-387
+Description: Item 387 is a mafia boss of unknown origin and construction. Upon initial observation, it appears to be a humanoid robot with a green cyclops eye and a frightened mouth. It wears horned rim glasses and a jade earring on its left ear. Its mouth is usually covered by a medical mask, and it is known to accessorize with a silver chain.

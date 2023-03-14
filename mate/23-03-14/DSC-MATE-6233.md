@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6233
+Description: DSC-MATE-6233 is a human female who appears to be in her late 20s. DSC-MATE-6233 exhibits orange stripes on her cheeks, a permanent smile, and eyes that constantly emit a VR Rainbow LED effect. DSC-MATE-6233 wears a purple cap with a headset, a medical mask over her mouth, and a choker around her neck. On her forehead, DSC-MATE-6233 has a pair of goggles that she uses to enhance her reporting.

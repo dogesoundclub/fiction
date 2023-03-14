@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9834
+Description: Subject 9834 is a male monkey approximately 2 feet in height, with a distinctive blue bandana tied around its head and a jade earring in its left ear. It wears a pair of horned rim glasses which it appears to use for seeing fine details. It has a frightened expression, with its mouth slightly open as if anticipating danger.

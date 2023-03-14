@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5502
+Description: DSC-MATE-5502 is a human female of average height and weight. The subject sports distinctive orange stripes across their nose and cheeks, as well as red lipstick. DSC-MATE-5502 also wears a pair of goggles on their forehead and a jade earring in each ear. 

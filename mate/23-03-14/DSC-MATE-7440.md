@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7440
+Description: DSC-MATE-7440 is a female human, identified as an electrician by profession. The subject possesses distinctive orange stripes and purple lips on the face, and blue clown eyes. The head is of blonde hair, typically worn in an ushanka, with gold earrings along the ears. The subject also wears a choker as its favorite accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7841
+Description: DSC-MATE-7841 is a male robot, resembling a humanoid figure with a retro cap on its head, jade earrings on each ear, and a single green cyclops eye in place of a traditional pair of eyes. The robot's facial features include ski goggles, situated on top of the cyclops eye, and a whistle attached to its person.

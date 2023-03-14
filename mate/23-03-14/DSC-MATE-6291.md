@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6291
+Description: DSC-MATE-6291 is a male monkey of unknown species with red clown eyes, and a pink, parted head crowned with goggles. They are always seen wearing a silver chain, which they claim contains a special charm that helps them focus during difficult situations.

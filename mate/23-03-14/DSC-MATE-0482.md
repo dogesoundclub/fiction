@@ -1,0 +1,2 @@
+ID # : DSC-MATE-482
+Description: DSC-MATE-482 is a human male identified as a lawyer by profession. DSC-MATE-482 exhibits orange stripes on his face, likely a result of an anomalous mutation. He has a normal blonde hairstyle and often wears a green cross earring on his left ear, along with a red scarf and cigarette.

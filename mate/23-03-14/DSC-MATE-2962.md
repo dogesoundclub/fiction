@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2962
+Description: Item 2962 is a robotic politician with a green Cyclops Eye and Bucket Hat that serves as its head. It features a goggle on its forehead and wears a medical mask on its face. Item 2962's main distinguishing feature is a silver chain that constantly dangles from its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8185
+Description: DSC-MATE-8185 is a robotic humanoid with a height of 1.8 meters and a weight of approximately 67 kilograms. The entity possesses one Cyclops green eye in the center of its forehead, which exhibits a unique ability to emit a laser beam. DSC-MATE-8185 also wears horned rim glasses over its cyclops eye for better accuracy.

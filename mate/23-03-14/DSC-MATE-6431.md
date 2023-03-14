@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6431
+Description: DSC-MATE-6431 is a female human with distinct orange stripes across their cheeks. Their most notable feature is their blue clown eyes, which emit a faint glow in low light. DSC-MATE-6431 often wears a yellow bucket hat and a pair of goggles on their forehead. They also wear a choker around their neck and an LED gas mask that they claim can filter out toxins and spirits.

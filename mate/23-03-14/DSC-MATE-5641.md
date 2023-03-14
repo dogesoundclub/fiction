@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5641
+Description: Dr. 5641 is a male human with distinct facial features, including spots on his face and ski goggles for eyes. He is often seen wearing a short peak cap and a jade earring on one ear. Additionally, he sports a goggle on his forehead, along with a gold chain and a cigarette as accessories. While Dr. 5641 projects an aura of confidence, his tendency towards recklessness can be dangerous.

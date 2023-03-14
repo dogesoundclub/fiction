@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8460
+Description: DSC-MATE-8460 is a male rabbit, approximately 1.2 meters tall, and weighing 35 kilograms. They possess ski goggle eyes, green hair in a purple cap, and a golden earring. On their forehead, DSC-MATE-8460 wears a goggle. DSC-MATE-8460 is often seen wearing a silver chain around their neck, and smoking a cigarette.

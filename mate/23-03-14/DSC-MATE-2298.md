@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2298
+Description: Item #2298 is a human male by the name of ██████ ███████. They are in their early 30s and stand at 5'11" tall with a slim build. The most notable features of the subject are their unique face markings - a spot on their lips, a constant smile, VR Rainbow LED for eyes, and a goggle on their forehead. They are known to wear a Gold Earring in their left ear at all times.

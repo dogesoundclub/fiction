@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2344
+Description: Item 2344 is a male rabbit of unknown origins with bright red clown eyes and a red beanie on his head. It possesses a two-color band on its forehead, jade earrings on its ears, and is often seen wearing a silver chain and holding a candy stick. Despite its seemingly harmless appearance, Item 2344 is a notorious mafia boss with a deadly reputation.

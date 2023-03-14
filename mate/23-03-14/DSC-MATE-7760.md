@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7760
+Description: DSC-MATE-7760 is a female humanoid politician with spots on her face and purple lips. Her eyes are blue clown eyes, and she has green hair in a purple cap. DSC-MATE-7760 wears a red cross earring with a gold chain, and a LED gas mask as an accessory.

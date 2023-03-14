@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8648
+Description: DSC-MATE-8648 is a male human with a distinctive feature of a black spot on the right corner of his mouth. He has blue clown eyes, which he uses to communicate with people around him. DSC-MATE-8648's head is replaced with a metallic, purple-colored casing, which he appears to be able to control at will. He often wears a pair of goggles on his forehead and a green cross earring on his right ear. DSC-MATE-8648 also wears a silver chain and is often seen smoking a cigarette.

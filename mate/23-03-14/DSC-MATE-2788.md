@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2788
+Description: Identified as a sapient rabbit of undetermined breed, subject 2788 stands at approximately 3 feet tall and weighs approximately 55lbs. The subject is typically clad in a black hoodie, adorned with a red victory band on its forehead. Its eyes and other facial features are currently unknown. In addition, the subject is often seen carrying a whistle, though it is unknown whether this item holds any significance.

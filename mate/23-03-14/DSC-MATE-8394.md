@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8394
+Description: DSC-MATE-8394, also known as "The Mechanic," is a human male with distinctive orange stripes on his face. His eyes resemble ski goggles and he has a normal blond hairstyle. DSC-MATE-8394 is often seen wearing a medical mask and a pair of goggles on his forehead. 

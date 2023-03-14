@@ -1,0 +1,2 @@
+ID # : DSC-MATE-898
+Description: DSC-MATE-898 is a human male, standing at a height of 5'9" and weighing approximately 170 pounds. Unlike typical humans, DSC-MATE-898 exhibits bright orange stripes across his face and a large clown mouth. His eyes are a bright shade of blue and also exhibit clown-like features.

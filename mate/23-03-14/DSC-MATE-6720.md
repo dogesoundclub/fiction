@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6720
+Description: Item 6720 appears as an average human male with a penchant for fashion. Their blue clown eyes contrast sharply with their perpetual smile, which can make them quite disarming to unsuspecting civilians. Item 6720 tends to wear a police cap adorned with a gold earring, a red scarf, and a candy stick, which they often use to punctuate their sentences. 

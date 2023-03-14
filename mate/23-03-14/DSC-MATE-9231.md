@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9231
+Description: Subject 9231 appears to be a male rabbit with blue clown eyes and a frightened mouth. Its head is covered with a hoodie and it wears a silver chain as an accessory. It also appears to smoke cigarettes.

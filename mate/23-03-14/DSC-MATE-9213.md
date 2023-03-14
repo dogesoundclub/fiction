@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9213
+Description: DSC-MATE-9213 appears to be a human female, with a striking resemblance to a politician. The subject's face is adorned with red lipstick, which complements her VR jade LED eyes. Her head is shaved with a rainbow festival motif, and she sports green cross earrings. DSC-MATE-9213 is often seen wearing a silver chain and smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2961
+Description: DSC-MATE-2961 appears to be a farmer of the species Macaca fascicularis, commonly known as the long-tailed macaque. DSC-MATE-2961 displays a distinctive pink patch on its forehead, bisected by a vertical part. Its ears are pierced with an emerald jade earring. DSC-MATE-2961 appears to wear a crude gas mask fitted with a battery-powered LED light system.

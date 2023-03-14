@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9973
+Description: Officer 9973 is a male rabbit with blue clown eyes and not arranged green surmounted by a goggle on its forehead, with a gold earring on each ear, and a gold chain around its neck. At all times, Officer 9973 has exhibited a nurturing personality, often going the extra mile for his colleagues and friends, with behaviors that can seem overprotective and manifest as parental concern.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1987
+Description: DSC-MATE-1987 is a male Bengal tiger wearing a firefighter's uniform, complete with a headset with LED, red victory band on its forehead, medical mask, and silver chain. DSC-MATE-1987 possesses red clown eyes that emit a glowing effect. DSC-MATE-1987 has been observed to be highly emotional and impulsive, leading to some amusing predicaments.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1325
+Description: DSC-MATE-1325 is a human male identified as an electrician. DSC-MATE-1325's most distinctive physical features are orange stripes on their face, a red beanie, and a medical mask covering their mouth. DSC-MATE-1325 also wears goggles on their forehead and nerd glasses covering their eyes. DSC-MATE-1325 displays a friendly demeanor and is often seen wearing a red scarf as an accessory.

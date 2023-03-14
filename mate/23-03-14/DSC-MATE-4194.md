@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4194
+Description: DSC-MATE-4194 is a male tiger of unknown origin. It is suspected that they are a result of a successful hybridization experiment between a Sumatran or Bengal tiger and an unknown anthropomorphic species. They display human-like traits, such as the ability to reason and make use of tools, and communicate fluently in various languages.

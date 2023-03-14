@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9039
+Description: DSC-MATE-9039 is a human male with distinct orange stripes on their face, frightened mouth, and normal glasses. Their green hair is commonly seen in a purple cap, and they have a two-color band on their forehead. DSC-MATE-9039 also wears a gold earring, a gold chain, and is often seen with a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2715
+Description: Item #2715 is a female human of average height, weight, and age. It has orange stripes on its cheeks, and its head has a small wing protruding from it. Item #2715 wears normal glasses and a medical mask over its mouth. It also wears a jade earring and choker as accessories.

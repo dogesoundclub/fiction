@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8517
+Description: Item 8517 is a male monkey of the species Macaca fascicularis, measuring 1.2 meters in height and weighing roughly 15 kilograms. Item 8517 has been trained as a doctor and is capable of conducting medical examinations and performing minor surgeries. Its eyes are obscured behind a pair of normal glasses, and it wears a retro cap with a two-color band on its forehead. It is also adorned with a gold earring and a red scarf, and carries a whistle at all times.

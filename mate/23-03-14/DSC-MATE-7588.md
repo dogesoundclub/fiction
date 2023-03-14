@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7588
+Description: DSC-MATE-7588 is a male rabbit, approximately 50cm in height and weighing 9kg. DSC-MATE-7588 has red clown eyes and wears a distinctive bucket hat. DSC-MATE-7588's forehead features a red victory band, and they wear a jade earring. Additionally, they sport a red scarf.

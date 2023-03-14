@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8172
+Description: DSC-MATE-8172 is a male robot of unknown origin, measuring approximately 1.8 meters in height and weighing approximately 150kg. The most notable feature of DSC-MATE-8172 is its single green cyclops eye, which allows it to perceive depth and detail with impressive accuracy. The robot also possesses a frightened mouth expression, which appears to be permanently locked in place.

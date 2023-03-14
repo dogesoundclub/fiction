@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8784
+Description: 8784 is a humanoid individual of the female gender, with distinctive orange stripes on their face. They have two pigtails on their head, and wear glasses, a medical mask, and a silver chain.

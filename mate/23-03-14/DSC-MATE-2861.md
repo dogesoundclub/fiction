@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2861
+Description: DSC-MATE-2861 appears to be a male Bengal Tiger, measuring approximately 2.4 meters in length and weighing approximately 220 kg. DSC-MATE-2861 typically dresses in a hoodie and wears normal glasses, as well as a gold chain and a normal gas mask as accessories. DSC-MATE-2861 can communicate fluently in English and displays a high level of intelligence and curiosity regarding a wide variety of subjects.

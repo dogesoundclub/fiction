@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9879
+Description: DSC-MATE-9879 appears to be a human male in his mid-twenties, approximately 6 feet tall. DSC-MATE-9879 exhibits distinctive traits such as orange stripes on his face and a red scarf as an accessory. Their eyes are replaced with VR Rainbow LED, and their head is covered with a hoodie while they wear a medical mask over their mouth. Despite these physical abnormalities, DSC-MATE-9879 is indistinguishable from a normal human.

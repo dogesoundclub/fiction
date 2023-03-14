@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9642
+Description: DSC-MATE-9642 is a male human of unknown age, with the physical appearance of a monk. Its eyes have been replaced with high-tech VR Rainbow LED technology, capable of displaying various colors, patterns, and effects. The LED technology is integrated into DSC-MATE-9642's optic nerves and brain, and is considered an integral part of its unique abilities as an electrician. DSC-MATE-9642's forehead is adorned with a goggle-like device, which magnifies its vision and allows it to analyze and diagnose electrical systems with greater accuracy.

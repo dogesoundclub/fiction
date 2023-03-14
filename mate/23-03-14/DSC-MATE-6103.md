@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6103
+Description: DSC-MATE-6103 is a male robot of unknown origin, with a distinctive green cyclops eye and red cross earring. Its head is covered with a bucket hat, and it wears normal glasses over its remaining eye. DSC-MATE-6103 is capable of human-like movements and is equipped with a whistle, which it uses to communicate with other animals.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3630
+Description: DSC-MATE-3630 is a male monkey with a frightened mouth and normal glasses. DSC-MATE-3630's head is covered by a red beanie, with a 2-color band appearing on their forehead. DSC-MATE-3630 has a silver chain around their neck, which appears to be of no significant value. DSC-MATE-3630 also carries a cigarette in their right hand and a jade earring on their left ear.

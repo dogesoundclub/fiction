@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9491
+Description: 9491 is a male rabbit, with horned rim glasses covering their light blue eyes. They sport a purple cap with a headset and a two-color band across their forehead. One of their ears has a small jade earring adorning it, and they often carry a candy stick in one hand.

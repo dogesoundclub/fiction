@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4253
+Description: DSC-MATE-4253 is a male Bengal Tiger (Panthera tigris tigris) with distinct facial features, including a perpetually frightened mouth and ski goggles for eyes. Other notable features include a purple cap with a headset, a silver chain, and a jade earring.

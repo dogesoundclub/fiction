@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5019
+Description: Subject 5019 is a human female with distinctive orange stripes on her face and red lips. She has blue clown eyes that give off an unsettling appearance. Her head is short, with a witchy look, and she has a red cross earring on her ears. On her forehead, she wears goggles, and she wears a silver chain as a necklace.

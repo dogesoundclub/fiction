@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4780
+Description: Officer 4780 is a male human of average height and build with orange stripes on his face. He wears normal glasses over his eyes and his head is solid metal with a purple hue. Officer 4780 wears a stylish jade earring in his left ear and a gold chain around his neck. He is often seen smoking a cigarette, despite repeated warnings from his superiors.

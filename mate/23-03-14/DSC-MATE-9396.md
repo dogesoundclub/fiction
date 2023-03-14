@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9396
+Description: DSC-MATE-9396 appears to be a male rabbit with red clown eyes and a frightened mouth. However, its green head is not arranged, causing it to stand out from other rabbits. DSC-MATE-9396 wears a red scarf and carries a whistle, suggesting it works as a train driver of some kind.

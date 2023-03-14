@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5273
+Description: DSC-MATE-5273 is a female human police officer of average height and build, with orange stripes on her face and a constant smile. Her eyes are unremarkable, though she wears normal glasses. DSC-MATE-5273 also has a band of two colors on her forehead and a green cross earring on each ear. She wears a choker that cannot be removed.

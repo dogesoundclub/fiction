@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6752
+Description: DSC-MATE-6752 refers to a male humanoid of tiger species, with a height of 5ft 3inches and a weight of 165lbs. Incorporated into its appearance are normal glasses and a blue bandana. A gold chain hangs around its neck, and a whistle can be seen in its possession. DSC-MATE-6752 often carries a scared expression, with a frightened mouth being the most notable feature of its face.

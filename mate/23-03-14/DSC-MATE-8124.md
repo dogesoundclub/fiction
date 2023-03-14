@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8124
+Description: DSC-MATE-8124 is a male robot with a unique appearance. He wears a blue bandana on his head and a red scarf around his neck. DSC-MATE-8124 serves as a mechanic, specializing in engine repair and enhancing performance. Although DSC-MATE-8124 was built with advanced artificial intelligence, it does not possess any dangerous capabilities.

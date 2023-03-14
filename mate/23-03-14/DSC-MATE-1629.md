@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1629
+Description: DSC-MATE-1629 is a robot fashion designer, standing at approximately 1.8 meters in height. DSC-MATE-1629's visible physical attributes include a single green cyclops eye, normal glasses, and a police cap. DSC-MATE-1629 also wears a silver chain and is often seen smoking a cigarette. Although DSC-MATE-1629 is programmed with a male voice and appearance, it has no biological sex.

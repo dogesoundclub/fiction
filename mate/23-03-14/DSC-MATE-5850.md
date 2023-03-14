@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5850
+Description: Item 5850 appears as a human female in her mid-30s with bright red clown eyes and a cheerful smile. The subject has long brown hair from the 90s and wears a medical mask over her mouth at all times, which she insists is for medical reasons. Item 5850 frequently accessorizes with a green cross earring in her right ear and a silver chain around her neck. She also displays a two-color band on her forehead, which is of unknown significance.

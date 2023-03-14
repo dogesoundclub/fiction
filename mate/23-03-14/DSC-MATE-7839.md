@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7839
+Description: DSC-MATE-7839 is a male monkey standing approximately 1.2 meters tall, weighing about 20 kilograms. DSC-MATE-7839 is notable for wearing a police cap on its head with a pair of nerd glasses over its eyes. The monkey also wears a gold chain and earring as accessories. 

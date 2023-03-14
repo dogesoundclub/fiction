@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9460
+Description: Subject 9460 is a male human of average height and build. The subject is observed to have a small, distinct mouth spot on his upper lip, which is believed to be a genetic trait. His otherwise normal mouth has an almost permanent frightened expression. The eyes of the subject are seen to be normal and are often covered by glasses, assumed to be for vision correction.

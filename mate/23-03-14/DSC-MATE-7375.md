@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7375
+Description: DSC-MATE-7375 is a male human, approximately 40 years of age, with a distinct mouth spot located on the left side of his face. The subject's eyes resemble ski goggles, and he often wears a retro cap accompanied by a red scarf and cigarette. DSC-MATE-7375 works as a news anchor for a local television network, where his forgetfulness often leads to comical mishaps during broadcasts.

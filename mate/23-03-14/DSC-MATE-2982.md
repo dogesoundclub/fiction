@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2982
+Description: DSC-MATE-2982 is a male tiger with blue clown eyes that emit a low-level anomalous radiation. Its head is adorned with a blue bandana, and it wears a red cross earring in its left ear. DSC-MATE-2982 covers its mouth with a medical mask at all times due to unknown health reasons. It is often seen wearing a red scarf as an accessory.

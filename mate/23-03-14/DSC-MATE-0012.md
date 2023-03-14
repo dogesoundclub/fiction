@@ -1,0 +1,2 @@
+ID # : DSC-MATE-12
+Description: DSC-MATE-12 is a male rabbit with a height of approximately 70 cm and a weight of approximately 30 kg. It possesses a pair of VR Rainbow LED eyes that display a wide range of colors and patterns, and a blue bandana wrapped around its head. It also has a gold earring on its right ear.

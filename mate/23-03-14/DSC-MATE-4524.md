@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4524
+Description: Item 4524 is a humanoid of the female sex, with the appearance of having orange stripes on their face, blonde hair with a wing, and gold earring. They wear a gold chain as an accessory.

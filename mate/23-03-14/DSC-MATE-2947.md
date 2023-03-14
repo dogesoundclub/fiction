@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2947
+Description: Delivery Driver #2947 is an autonomous humanoid robot built for the purpose of delivery services. Its appearance is that of a young male, with a frightened mouth feature located on its expressive face. Its eyes are in the shape of horned rim glasses and it is always seen wearing a red beanie on its head.

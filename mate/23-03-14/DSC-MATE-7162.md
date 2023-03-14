@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7162
+Description: DSC-MATE-7162 is a tiger that walks on two legs, with an unusual headset embedded in its head. The headset appears to be a sophisticated communication device with built-in LED lights that vary in color depending on the message being transmitted. The headset cannot be removed even under extreme force.

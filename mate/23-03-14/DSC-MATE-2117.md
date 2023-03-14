@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2117
+Description: DSC-MATE-2117 is an anthropomorphic tiger, standing at approximately 2.1 meters tall. Its eyes are always seen adorned with horned rim glasses, and its ears have a gold earring on the right. DSC-MATE-2117 is often seen wearing a silver chain around its neck, and carries a normal gas mask with it at all times.

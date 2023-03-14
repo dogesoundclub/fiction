@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8785
+Description: Subject 8785, also known as Mr. Purple, is a human male of average height and build. His face is adorned with dark spots, and he is often seen wearing a medical mask that covers his mouth. When not obscured by the mask, he is known for his toothy grin that is often accompanied by quirky facial expressions. His eyes are obscured behind a pair of geeky glasses, which he rarely removes.

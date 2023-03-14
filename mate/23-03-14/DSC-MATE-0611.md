@@ -1,0 +1,2 @@
+ID # : DSC-MATE-611
+Description: DSC-MATE-611 is a human male with a distinctive appearance. His face is marked with spots and a constant smile, which may make him appear friendly and approachable. He has parted pink hair and a gold earring in each ear. His forehead is adorned with a goggle, which allows him to perceive things that are normally invisible.

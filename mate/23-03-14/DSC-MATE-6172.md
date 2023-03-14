@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6172
+Description: DSC-MATE-6172 is a male Bengal tiger, estimated to be around 6 years old. Its most notable features are its unique, ski-goggle shaped eyes, which glow a bright orange. DSC-MATE-6172 also wears a police cap atop its head and a gold earring through its left ear.

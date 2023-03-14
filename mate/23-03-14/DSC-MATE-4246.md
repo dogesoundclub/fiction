@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4246
+Description: Subject 4246 appears to be an average human male, with a height of 6'1" and a weight of 150 lbs. However, upon closer inspection, it becomes apparent that this individual's physical appearance is far from normal. Their frightened mouth, red clown eyes, and 2-color band on their forehead all contribute to a deeply unsettling and jarring appearance. Additionally, subject 4246 sports a jade earring, gold chain, and an LED gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4603
+Description: DSC-MATE-4603 is a human female identified as a banker with features that distinguish them from others of their species. DSC-MATE-4603 has orange stripes on their face and is often seen wearing an ushanka hat which is blonde in color. DSC-MATE-4603 also possesses an accessory in the form of a cigarette which is seen smoking during work hours.

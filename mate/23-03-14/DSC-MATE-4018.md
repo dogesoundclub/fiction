@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4018
+Description: Subject 4018 is a female human with rainbow LED eyes and blonde hair usually covered by an ushanka hat. They wear a jade earring and a silver chain as accessories, and are frequently seen with a cigarette in hand.

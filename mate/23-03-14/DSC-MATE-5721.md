@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5721
+Description: DSC-MATE-5721 is a male tiger standing 2.5 meters tall at his hindquarters. DSC-MATE-5721's face features are that of a constantly frightened individual, as if he’s constantly on the run. On DSC-MATE-5721's head is a red bucket hat with a hole cut out for its ears. Additionally, DSC-MATE-5721 has a normal gas mask strapped to its face at all times.

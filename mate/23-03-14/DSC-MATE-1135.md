@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1135
+Description: DSC-MATE-1135 is a male human of average height and weight, with a normal blonde haircut. Its most distinguishing feature is its blue clown eyes that remain dilated at all times. The subject's forehead has a band of two colors, and is adorned with a jade earring. It also wears a silver chain around its neck and an LED gas mask at all times. DSC-MATE-1135 is known for its constant and manic smile, even in moments of distress.

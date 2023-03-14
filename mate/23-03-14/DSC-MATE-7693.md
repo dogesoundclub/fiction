@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7693
+Description: DSC-MATE-7693 is a human male of average height and build. Its face is characterized by various spots, which are believed to be a natural skin condition. DSC-MATE-7693 frequently wears nerd glasses and a hoodie, as well as a silver chain and cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7568
+Description: Subject 7568 is a human male, identified as a news anchor for a local television station. His most notable characteristic is his unusual choice of accessories. He sports a pair of yellow ski goggles instead of regular eyewear and a bright red scarf around his neck. The subject also wears an LED gas mask, which he claims is for "health reasons." His head is shaved except for a long mohawk made of vibrant pink hair, adding to his overall eccentric appearance.

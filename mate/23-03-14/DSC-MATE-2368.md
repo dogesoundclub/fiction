@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2368
+Description: DSC-MATE-2368 refers to a male theater manager with green hair and a purple cap. DSC-MATE-2368 can often be seen wearing a medical mask and a gold chain. DSC-MATE-2368 values harmony and social connections, which makes them particularly amiable towards others.

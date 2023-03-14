@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2360
+Description: DSC-MATE-2360 appears to be a male monkey of an unknown species, with green fur that does not arrange itself in any particular pattern. DSC-MATE-2360 wears horned rim glasses over its eyes, and a pair of goggles on its forehead. It also wears a red scarf around its neck and has a jade earring in its left ear. DSC-MATE-2360 is often seen smoking a cigarette.

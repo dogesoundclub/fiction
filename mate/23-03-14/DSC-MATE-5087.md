@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5087
+Description: DSC-MATE-5087, also known as "The Traffic Officer," is a male monkey of an unknown species. It is approximately 60 cm in height and weighs around 25 kg. Its face features a permanently frightened mouth, and its eyes are not distinguishable as it often wears sunglasses. DSC-MATE-5087 is often seen wearing a doge hat on its head, and a silver chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4705
+Description: Item 4705 is a male monkey that has undergone no known alterations or genetic mutations. It appears to be a Capuchin monkey with a height of roughly 85cm including its tail. Its fur is green, as if it hasn't been washed in a long time. It wears a set of normal glasses that do not appear to alter its vision. On its head, it has a mess of fur that has not been arranged as it hangs around in the fashion of an unkempt hairstyle. 

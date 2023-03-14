@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3
+Description: DSC-XXXX-3 is a male human of average build and height, with distinct spotted facial features and a frightened mouth. The subject wears normal glasses and a short peak cap on his head, as well as a red scarf as an accessory. DSC-XXXX-3 works as a firefighter but exhibits no anomalous abilities or tendencies.

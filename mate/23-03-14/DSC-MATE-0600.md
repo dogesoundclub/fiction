@@ -1,0 +1,2 @@
+ID # : DSC-MATE-600
+Description: Subject 600 is a female human with brown hair from the 90s and speckles on her face. Her accessory includes a choker and may be seen with a cigarette. Her glasses are non-anomalous; however, they can be used to read memetic information. Subject 600's love of adventure makes her an asset in the field but also presents a security risk.

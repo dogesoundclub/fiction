@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3487
+Description: DSC-MATE-3487 appears to be a male fashion designer of robotic origin. Their entire body is made of metal with various plating designs that are fashion forward. DSC-MATE-3487 has a striking green-colored hair and a purple cap, which at the time of its arrival to our custody was flagged as an anomalous artifact. It has been noted that there are several designs etched into its cap, and at close inspection, it appears that these designs change on a daily basis.

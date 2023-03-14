@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4925
+Description: DSC-MATE-4925 is a male European rabbit anthropomorph, standing at 5'5" (1.65 m). It appears to have an innate capacity for veterinary medical knowledge and possesses a license to practice medicine on animals. DSC-MATE-4925 is usually very alert and emotionally distant from other Foundation staff but has been known to express strong emotions of fear when faced with situations that appear dangerous.

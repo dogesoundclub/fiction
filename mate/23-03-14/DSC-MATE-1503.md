@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1503
+Description: DSC-MATE-1503 is a capuchin monkey with black hair, noticeable horned rim glasses, and a gold earring in one ear. 1503 always wears a red scarf regardless of the temperature or climate.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7430
+Description: DSC-MATE-7430 appears to be a male humanoid of the species Homo sapiens. The subject possesses a distinctive mouth spot that appears to be birthmark. The face also features a prominent smile, which is present in most interactions. Its eyes are of a ski goggle shape and structure.

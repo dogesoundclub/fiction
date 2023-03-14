@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9819
+Description: DSC-MATE-9819 is a female human identified by her orange stripes on her face and a purple lip. The most prominent feature are her red clown-like eyes, which tend to draw people's attention towards her. She has a rainbow head supplemented by a green cross earring. DSC-MATE-9819 is often seen wearing a silver chain around her neck.

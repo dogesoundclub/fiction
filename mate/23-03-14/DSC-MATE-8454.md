@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8454
+Description: Subject 8454 is a male monkey species typically found in the tropical regions of South America. The subject presents a pair of normal glasses over its eyes and a police cap that contains a goggle on its forehead. The monkey's mouth is always frighteningly opened, as if it's about to shriek or howl, providing a scary appearance. One band with two colors graces its forehead, and the left ear has a gold earring. It carries two accessories with it always: a silver chain and a candy stick. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8671
+Description: Subject 8671 is a human female of average height and weight. They have distinguishable orange stripes on their face, which they often use to accentuate their features. Their eyes are concealed behind normal glasses, and their head is often adorned with a bucket hat.

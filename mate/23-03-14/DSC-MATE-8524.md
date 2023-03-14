@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8524
+Description: DSC-MATE-8524 is a male monkey, measuring approximately 1 meter in height and weighing around 25kg. DSC-MATE-8524's most distinctive feature is its red clown eyes, which emit a faint luminescence in low light. DSC-MATE-8524 has not been observed to be capable of speech.

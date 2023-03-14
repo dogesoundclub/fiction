@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3375
+Description: DSC-MATE-3375 appears to be a male tiger with red clown eyes and a frightened mouth. It wears a hoodie and a shiny gold chain on its neck. DSC-MATE-3375 displays a high level of intelligence and an almost human-like personality. It is capable of understanding and communicating in the English language but prefers to communicate through non-verbal cues such as body language and facial expressions.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3910
+Description: DSC-MATE-3910 is a male robotic entity designed to function as a veterinarian. At first glance, DSC-MATE-3910 appears to be a green cyclops with a ski goggle for an eye and a goggle attached to its forehead. DSC-MATE-3910 is often seen wearing a red scarf and an LED gas mask in the event of potential contamination. DSC-MATE-3910's body is composed of various metals and synthetic materials. 

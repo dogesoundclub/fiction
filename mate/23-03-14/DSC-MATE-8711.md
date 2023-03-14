@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8711
+Physical Description: DSC-MATE-8711 is a male rabbit standing 3 feet tall with a sleek black coat. It wears a doge hat on its head and has a single jade earring in its left ear, giving it a distinguished appearance. The color and shape of its eyes are unknown as they are always covered by the hat.

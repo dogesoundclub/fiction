@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8435
+Description: DSC-MATE-8435 is a security guard robot designed for protection and vigilant monitoring of secure facilities. The robot stands approximately 6 feet tall and is constructed of various alloys and synthetic materials. The robot's head has green hair and a purple cap with jade earrings. The face appears to show a constant look of fear with a frightened mouth expression.

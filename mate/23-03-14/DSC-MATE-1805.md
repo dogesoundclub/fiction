@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1805
+Description: DSC-MATE-1805 is a male human of average height with a distinctive mouth spot and a constant smile. His eyes resemble ski goggles, and his head is often adorned with a retro cap. He is frequently seen wearing a red scarf and carrying a candy stick, which he claims is for medicinal purposes.

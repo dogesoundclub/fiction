@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2433
+Description: DSC-MATE-2433 is a female humanoid of human origin with distinctive orange tiger stripes on her face and a permanent smile. DSC-MATE-2433's eyes have been surgically altered to resemble blue clown eyes. DSC-MATE-2433 regularly accessorizes her appearance with a cross earring and cigarette, which she can often be found smoking.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3475
+Description: DSC-MATE-3475 is a humanoid robot, standing approximately 1.8 meters in height, with a green cyclops eye which emits a bright light at random intervals. Its head is adorned with a bucket hat, with a goggle affixed to its forehead, and a jade earring on each ear. DSC-MATE-3475's eyes are often obscured by a pair of nerd glasses, and it is equipped with an LED gas mask as an accessory.

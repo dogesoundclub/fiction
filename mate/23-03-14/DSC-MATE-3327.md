@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3327
+Description: DSC-MATE-3327 is a male robot with a humanoid appearance. It stands at approximately 1.8 meters tall and wears a hoodie as its head. Its eyes are covered by normal glasses, and it wears a gold chain as an accessory. DSC-MATE-3327's primary function is that of a news reporter, but it has also shown a remarkable ability to empathize and relate to humans emotionally.

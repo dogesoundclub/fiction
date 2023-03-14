@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6047
+Description: DSC-MATE-6047 is a male tiger, appearing to be of Indian sub-species origin. It stands at approximately 1.8 meters tall and weighs approximately 180 kilograms. Its most notable facial feature is its permanently frightened mouth, seemingly signaling constantly apprehensive behavior. DSC-MATE-6047's eyes resemble ski goggles, and its head is adorned with a bucket hat, with an additional goggle placed atop its forehead.

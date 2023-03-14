@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8682
+Description: DSC-MATE-8682 is a humanoid robot designed to resemble a police officer. Its exterior is made of a durable and lightweight alloy, with a short peak cap and silver chain as additional accessories. The robot's eyes are made of VR jade LED.

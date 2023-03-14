@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7192
+Description: Item 7192 is a human female with distinctive features including purple lips and green hair styled in edge curls. It wears a pair of normal glasses over its eyes and a set of goggles on its forehead. Adornments include a green cross earring and a silver chain. Item 7192's appearance may vary depending on its mood, as it has been observed to experiment with different clothing styles and hair colors.

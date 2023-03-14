@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6423
+Description: DSC-MATE-6423 is a male robot standing at 6 feet and 3 inches. It is designed to resemble a humanoid creature and has various metallic features on its body. DSC-MATE-6423's head is adorned with a bucket hat, and it wears a golden chain around its neck. Its face is equipped with a green cyclops eye and a frightened mouth. It has horned rimmed glasses which serve as its eyes.

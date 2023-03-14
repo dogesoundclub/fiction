@@ -1,0 +1,2 @@
+ID # : DSC-MATE-576
+Description: DSC-MATE-576 is a male, humanoid tiger measuring 1.8 meters in height. Its body is covered in orange and black fur, with a distinctive pattern of stripes. DSC-MATE-576's face features a mouth that is constantly in a frightened expression, and its eyes are obscured by a pair of normal glasses.

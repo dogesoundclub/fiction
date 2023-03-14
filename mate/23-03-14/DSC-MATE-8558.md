@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8558
+Description: DSC-MATE-8558 appears to be a human male with orange stripes on his face, commonly seen wearing a retro cap and smoking a cigarette. His eyes have been observed to emit a VR rainbow LED light. DSC-MATE-8558 works as a delivery driver and seems to be able to handle his job with considerable ease.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1470
+Description: DSC-MATE-1470 appears as a male anthropomorphic rabbit wearing a purple cap with a headset, red victory band, nerd glasses, and a jade earring. He often wears a red scarf and carries a candy stick, which he frequently nibbles on. DSC-MATE-1470 works as a banker in his civilian life, but often spends his free time socializing and telling jokes to anyone who will listen.

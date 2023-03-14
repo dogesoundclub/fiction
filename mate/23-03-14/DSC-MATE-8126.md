@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8126
+Description: DSC-MATE-8126 is a human male of approximately 28 years of age, with a unique set of features. DSC-MATE-8126 has a mouth spot on the left side of his mouth, VR Rainbow LED eyes that are able to change color, a goggle on the forehead, a medical mask covering the mouth, and a silver chain around the neck. These features are believed to be the result of experimentation or genetic modification.

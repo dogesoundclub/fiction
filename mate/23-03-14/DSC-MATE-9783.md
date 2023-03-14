@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9783
+Description: Subject 9783 is a human male, approximately 28 years of age. He stands at 6'1" with an athletic build, and has short brown hair with a purple cap adorned with a headset. He wears normal glasses and a jade earring in his left ear. Subject is often seen with a candy stick in his mouth.

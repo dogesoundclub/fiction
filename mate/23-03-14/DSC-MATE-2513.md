@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2513
+Description: Subject 2513 is a human female with distinctive orange stripes across her cheeks and jawline, as well as a striking red lip. They have blue clown eyes and green hair in a purple cap. A pair of goggles are seen perched on their forehead, and they often wear a red cross earring and a choker. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9688
+Description: DSC-MATE-9688 is a human male with a unique facial feature, a mouth spot resembling a small birthmark. DSC-MATE-9688 also displays a frightened mouth expression on a consistent basis. The subject's eyes are blue clown-like, with no anatomical abnormalities detected. DSC-MATE-9688 wears a jade earring as an unconventional accessory and a gold chain as a normal accessory. The subject also carries a standard gas mask with no known anomalous properties.

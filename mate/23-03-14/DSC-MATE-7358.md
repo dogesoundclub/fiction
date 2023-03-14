@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7358
+Description: Item #7358 is a male tiger, approximately 6 feet tall with distinctive nerd glasses and a purple cap with a headset. The creature's left ear displays a jade earring and is often seen sporting a gold chain around its neck. Item #7358 also carries a whistle on its person.

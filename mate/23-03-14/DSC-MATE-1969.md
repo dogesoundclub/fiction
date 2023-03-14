@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1969
+Description: DSC-MATE-1969 is a juvenile male rabbit, wearing a police cap and a silver chain around his neck, with a lit cigarette in his mouth. DSC-MATE-1969's most notable feature is his LED-lit, VR-compatible eyes, which flash and rotate according to DSC-MATE-1969's emotional state.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5472
+Description: DSC-MATE-5472 is a Tiger male of unknown age, wearing a Doge hat and a Jade earring attached to each ear. His eyes resemble those of a clown, a deep red color that is highly unusual for creatures of his kind. He is often seen sporting a silver chain, which is believed to be a good luck charm of some sort.

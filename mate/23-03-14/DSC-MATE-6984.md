@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6984
+Description: Officer 6984 is a police robot designed and programmed to carry out law enforcement duties in a metropolitan setting. It stands at 6'3" tall and weighs approximately 225 pounds. The robot's outer shell is made of a durable, dark grey metal, with a police cap and jade earring as part of its headpiece. Its eyes are vibrant VR jade LED. Officer 6984 also adorns a gold chain and an ordinary gas mask as additional accessories.

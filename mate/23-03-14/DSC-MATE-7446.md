@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7446
+Description: DSC-MATE-7446 is a female human security guard with distinctive features. They have orange eyebrows and pigtail hairstyle. They wear a red cross earring on each ear and a medical mask covering their mouth. DSC-MATE-7446 has also been observed wearing a silver chain as an accessory. They have a penchant for adventure and taking risks. 

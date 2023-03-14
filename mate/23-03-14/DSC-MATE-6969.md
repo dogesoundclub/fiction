@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6969
+Description: Subject 6969 appears to be an average human male with orange stripes on his face and a big friendly grin. He typically wears a hoodie with a two-color band on his forehead and a medical mask over his mouth. Subject 6969 is a qualified veterinarian, specializing in the treatment of supernatural animals.

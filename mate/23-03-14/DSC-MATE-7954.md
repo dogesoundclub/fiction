@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7954
+Description: DSC-MATE-7954 appears as a female human of average height and weight. She has red lips and wears normal glasses. Her head is covered with a purple cap and a headset, and she has a two-color band on her forehead. DSC-MATE-7954 wears jade earrings, a gold chain, and carries a cigarette. 

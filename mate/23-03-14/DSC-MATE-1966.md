@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1966
+Description: DSC-MATE-1966 is a human female identified as a theater manager. The subject's most distinctive features include purple lips, orange eyebrows, and green hair left unarranged. DSC-MATE-1966's appearance also includes red cross earrings and a silver chain.

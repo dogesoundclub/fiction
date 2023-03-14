@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7759
+Description: Subject 7759 is a human male of average height and build with a rather peculiar appearance. The subject's face is marked with bright orange stripes in varying widths and colors, and their eyes appear as red clown eyes. The subject's head is made up of green layers with gold earrings and a silver chain.

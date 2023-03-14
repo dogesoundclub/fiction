@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3596
+Description: Subject 3596 appears to be a human male with distinct facial features, including spots and a smile. The subject's eyes are akin to ski goggles, and the head is metallic and purple. A green cross earring is present on the ears, and a silver chain is worn as an accessory.

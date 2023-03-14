@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8525
+Description: DSC-MATE-8525 is a humanoid entity resembling a rabbit, with blue clown eyes and a retro cap on its head. Its forehead features a two-color band, and it wears a red scarf around its neck while frequently smoking a cigarette.

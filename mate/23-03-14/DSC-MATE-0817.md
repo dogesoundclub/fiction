@@ -1,0 +1,2 @@
+ID # : DSC-MATE-817
+Description: DSC-MATE-817 appears to be a Bengal tiger (Panthera tigris tigris), but with the ability to disguise itself as a human male wearing a hoodie. DSC-MATE-817 possesses a unique red scarf and LED gas mask, which it wears at all times while in human form.

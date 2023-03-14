@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2441
+Description: DSC-MATE-2441 is an autonomous robot, with a humanoid frame designed to mimic a police officer. It stands approximately 6ft tall and weighs 245 lbs. DSC-MATE-2441's facial features comprise of a pair of ski goggle-like optics and a Police-Cap serving as the head covering. DSC-MATE-2441's 'ears' are pierced with two Gold Earrings, and it carries a Whistle with it at all times.

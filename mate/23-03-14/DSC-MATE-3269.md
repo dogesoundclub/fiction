@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3269
+Description: DSC-MATE-3269 is a female human of average height and build. Her most notable features are the spots on her face, and the purple lip. DSC-MATE-3269's eyes are red and resemble those of a clown, and her head is green with curling edges. DSC-MATE-3269's forehead bears two colored bands, and she wears a medical mask over her mouth for unknown reasons. She also wears a silver chain as an accessory.

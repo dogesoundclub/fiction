@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5046
+Description: Subject 5046 is a male monkey wearing a gold chain, a whistle, and a jade earring. Its head is adorned with a mohawk, and its forehead features a two-color band. Subject 5046 is a train driver and is capable of operating a train with remarkable expertise.

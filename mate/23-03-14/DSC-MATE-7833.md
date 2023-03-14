@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7833
+Description: DSC-MATE-7833 is a male anthropomorphic monkey of Asian descent. The subject stands at approximately 1.5 meters and weighs 50kg. The subject possesses a number of human-like features, including the ability to speak fluently in English and perform tasks typically assigned to humans. Subject 7833 displays a keen interest in medicine, particularly veterinary care, and is reportedly a skilled veterinarian with a thriving practice.

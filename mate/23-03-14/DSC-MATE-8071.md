@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8071
+Description: DSC-MATE-8071 is a male monkey of undetermined species, standing approximately 0.8 meters in height and weighing 12 kilograms. Its most striking features are its bright red clown eyes and parted pink head. On its forehead, DSC-MATE-8071 wears a pair of goggles and a two-color band. It also wears a gold earring, gold chain, and carries a whistle as accessories.

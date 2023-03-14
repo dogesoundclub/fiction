@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8673
+Description: DSC-MATE-8673 is a humanoid entity that appears to be a middle-aged male of European descent. The entity has a parted pink hair and is adorned with a gold earring, a silver chain, and often seen with a cigarette in hand. DSC-MATE-8673 identifies itself as a human lawyer.

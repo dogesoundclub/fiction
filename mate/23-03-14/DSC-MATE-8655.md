@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8655
+Description: Doctor 8655 is a human female with distinct characteristic features, including spots across their face, a red lip, and orange eyebrows. However, what sets them apart is their head, which is shaped like that of a pink rabbit. Their forehead also has a unique feature featuring two-colored bands, and they have gold earrings and a silver chain as accessories. They are often seen smoking a cigarette.

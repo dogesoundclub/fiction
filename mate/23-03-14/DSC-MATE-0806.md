@@ -1,0 +1,2 @@
+ID # : DSC-MATE-806
+Description: Subject 806 is a human female with spots on her face, characterized by her distinct smile. She wears normal glasses over her eyes and sports a metal-blue head, with a pair of goggles on her forehead as a unique feature. The subject has gold earrings and a medical mask covering her mouth, in addition to a gold chain as an accessory.

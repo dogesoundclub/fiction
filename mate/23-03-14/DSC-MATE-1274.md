@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1274
+Description: DSC-MATE-1274 is a human male of average height and weight. He has a frightened mouth and wears normal glasses. DSC-MATE-1274's head is made of a metal material that has a purple hue. He also has green cross earring on his ears and wears a silver chain as an accessory.

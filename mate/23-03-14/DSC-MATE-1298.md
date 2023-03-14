@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1298
+Description: DSC-MATE-1298 is a human female with an unusual appearance. The subject's face features orange stripes and red lips, with blue clown eyes. DSC-MATE-1298's head mimics that of a pink rabbit, with a pair of goggles constantly affixed to her forehead. The subject also wears a red cross earring and a medical mask over her mouth, along with a choker around her neck.

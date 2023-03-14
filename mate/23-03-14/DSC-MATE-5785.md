@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5785
+Description: DSC-MATE-5785 is a male monkey of the genus Macaca, standing at 1.5 meters tall and weighing approximately 50 kilograms. DSC-MATE-5785 wears a red beanie and shade glasses at all times, with a 2-color band and goggles on its forehead. DSC-MATE-5785 possesses a gold earring in its left ear, and typically accessorizes with a red scarf.

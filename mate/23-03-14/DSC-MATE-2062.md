@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2062
+Description: Subject 2062 is a male humanoid, standing at 6 feet tall with distinctive orange stripes on his cheeks. He is often seen wearing a short peak cap and a jade earring on his left ear, with a flashy gold chain around his neck. His most prominent feature is his VR Rainbow LED eyes, which seem to display a wide range of emotive expressions.

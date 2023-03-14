@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4050
+Description: DSC-MATE-4050 is a sapient rabbit wearing a gold chain. DSC-MATE-4050 is physically no different from an average domestic rabbit in both size and shape, standing at approximately 25 centimeters in height and 1.5 kilograms in weight. DSC-MATE-4050 has a fur coat that shows no visible signs of aging or wear.

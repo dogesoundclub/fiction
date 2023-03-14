@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5642
+Description: Subject 5642 appears to be a fully grown male tiger with a frightened expression on his face. The tiger has jade LED eyes that can track objects up to 100 meters away. The tiger is often seen donning a police cap and a red cross earring on his ears. Its mouth is always covered with a medical mask that hides its sharp fangs. The tiger is usually spotted wearing a red scarf as an accessory.

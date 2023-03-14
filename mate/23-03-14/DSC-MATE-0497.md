@@ -1,0 +1,2 @@
+ID # : DSC-MATE-497
+Description: DSC-MATE-497 is a robot news anchor wearing a purple cap with a headset. The robot is equipped with a gas mask and red scarf for protection against hazardous environments. DSC-MATE-497 speaks in a male voice and appears to be frightened at all times, showing a frightened facial expression on its mouth.

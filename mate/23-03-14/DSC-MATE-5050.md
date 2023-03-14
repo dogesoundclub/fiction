@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5050
+Description: DSC-MATE-5050 is a human female in their early thirties, standing at approximately 5’5” tall with a medium build. Their face features orange stripes and an orange eyebrow that contrasts with their metallic blue head. A two-color band can be seen on their forehead, and they wear a red cross earring on each ear. DSC-MATE-5050 also wears a silver chain around their neck.

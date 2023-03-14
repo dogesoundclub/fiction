@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8010
+Description: Subject 8010 is a male human approximately 32 years of age, standing at 6'1" (185 cm) and weighing 180 lbs (82 kg). 8010 is a veterinarian by profession and was recovered from a small animal clinic in ███████, USA.

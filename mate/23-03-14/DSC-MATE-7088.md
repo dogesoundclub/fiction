@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7088
+Description: DSC-MATE-7088 is a female humanoid of the Homo sapiens species. Despite many unique physical features, DSC-MATE-7088's anomalous capabilities are limited to her appearance.

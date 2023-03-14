@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2799
+Description: DSC-MATE-2799 is a humanoid entity of the female sex designated as a human species, identified as a beautician by profession. DSC-MATE-2799 displays abnormal features such as purple lips, blue clown eyes, and a pink rabbit head, suggesting that it may have undergone significant genetic mutations. Additionally, DSC-MATE-2799 is adorned with a red cross earring, a gold chain, and almost always carries a cigarette.

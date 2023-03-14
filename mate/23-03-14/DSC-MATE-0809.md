@@ -1,0 +1,2 @@
+ID # : DSC-MATE-809
+Description: DSC-MATE-809 is a male tiger with the ability to speak human language fluently. It possesses a VR Jade LED eye system that allows it to see in the dark and enhances its vision. DSC-MATE-809 is often seen wearing a hoodie, a red scarf and sports a frightened look on its mouth. 

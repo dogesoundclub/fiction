@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8293
+Description: DSC-MATE-8293 is a male monkey of the genus Macaca, approximately 1.1 meters in height and weighing approximately 35 kilograms. DSC-MATE-8293 displays a frightened mouth and blue clown eyes, which gives the impression of a constantly alarmed expression. Its head is parted pink and it wears a jade earring on its left ear. DSC-MATE-8293 is often seen wearing a silver chain around its neck and smoking cigarettes.

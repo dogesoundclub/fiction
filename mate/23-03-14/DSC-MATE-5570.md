@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5570
+Description: DSC-MATE-5570 is a human male identified as a car salesman, currently measuring 1.7 meters in height and weighing 67 kilograms. While exhibiting no anomalous physical characteristics, DSC-MATE-5570's personality traits can be classified as practical and resourceful, often using unconventional methods to solve problems.

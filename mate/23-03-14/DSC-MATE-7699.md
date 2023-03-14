@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7699
+Description: DSC-MATE-7699 is a humanoid entity with a pink rabbit head, orange stripes on its face, and a constant smile. Its forehead features a two-color band and its ears are adorned with a green cross earring. DSC-MATE-7699 often carries a cigarette which it occasionally smokes.

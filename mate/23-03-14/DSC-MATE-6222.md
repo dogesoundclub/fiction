@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6222
+Description: DSC-MATE-6222 is a human female with spots on its face and a seemingly perpetual smile. Its eyes are VR jade LED, and it has green hair in a purple cap, with a pair of goggles on its forehead. DSC-MATE-6222 also wears a jade earring and a silver chain around its neck.

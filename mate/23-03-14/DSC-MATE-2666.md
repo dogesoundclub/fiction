@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2666
+Description: Subject 2666 is a humanoid female of the human species, with notable features including orange stripes along the cheeks, a purple lip, and red clown eyes. The head displays a distinct 00s school girl style and is accessorized with a goggles on the forehead, a red cross earring, a silver chain, and a cigarette. The personality of 2666 is highly organized, efficient, and sometimes controlling, leading to humorous and sometimes absurd situations in which she takes charge of group projects and delegates tasks in an undeniable confident way.

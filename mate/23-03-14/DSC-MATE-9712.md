@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9712
+Description: 9712 is a male robot with a single green cyclops eye as his primary facial feature. His second facial feature is a frightened mouth, which some personnel claims to see as a permanent expression. He wears horned rim glasses on his cyclops eye and has a green hair in purple cap on his head. 9712 also sports a red cross earring on each ear. Two of his accessories are a red scarf and an LED gas mask. 

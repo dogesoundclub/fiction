@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6781
+Description: 6781 is a human male with a deep and unusual connection to others. He is easily identified by his purple cap with a headset and gold earring, as well as his normal glasses. He often carries a candy stick, which appears to soothe his nerves.

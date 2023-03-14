@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6552
+Description: Subject 6552 is a monkey of unknown origin. It stands at approximately 1.2 meters in height and weighs 45 kilograms. The subject has bright blue clown eyes that seem to absorb light and a pair of gold earrings dangling from its ears. It is often seen wearing a red scarf around its neck, which appears to have some significance to the subject.

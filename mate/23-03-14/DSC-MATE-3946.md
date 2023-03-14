@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3946
+Description: DSC-MATE-3946 is a rabbit humanoid, standing at 165cm in height. DSC-MATE-3946 identifies as male and typically wears a blue hoodie. DSC-MATE-3946 has blue "clown" eyes and a frightened mouth. DSC-MATE-3946 is often seen with a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3302
+Description: 3302 is a male tiger, approximately 2 meters in height, with ski goggle-shaped eyes which glow red in low-light conditions. Their head is not arranged in a typical tiger manner, displaying a distinct green hue, and bearing a goggle on their forehead. 3302's ears are modified with a red cross earring, and they have a medical mask covering their mouth, ostensibly to protect their colleagues and clients from any possible infection. While not wearing a suit, 3302 can be seen wearing a silver chain around their neck.

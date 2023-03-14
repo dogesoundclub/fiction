@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3246
+Description: DSC-MATE-3246 is a humanoid robot of unknown origin. It stands at 6 ft tall and is predominantly metal. Its head is shaped like a traditional human and typically wearing a red beanie hat; it also wears nerd glasses and red cross earrings. DSC-MATE-3246’s most notable accessory is the red scarf is often seen wearing around its neck. This scarf is a part of DSC-MATE-3246's construction and is not removable. DSC-MATE-3246 has been observed to smoke a cigarette on occasion.

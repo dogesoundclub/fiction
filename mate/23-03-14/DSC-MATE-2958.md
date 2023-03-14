@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2958
+Description: Subject 2958 is a male tiger with a unique fashion sense, often seen wearing a purple cap with green hair, two color-band on the forehead, and a jade earring on each ear. Subject 2958 also has a fondness for gold chains and carries around a whistle as an accessory. The tiger's demeanor is that of a mature and responsible individual who takes pride in the duty they uphold.

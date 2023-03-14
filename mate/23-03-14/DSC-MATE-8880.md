@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8880
+Description: DSC-MATE-8880 is a female human of average height, with blue clown eyes and a distinctive green head with edge curl. Her ears are adorned with a green cross earring and she is often seen wearing a medical mask covering her mouth. Additionally, DSC-MATE-8880 always wears a gold chain around her neck.

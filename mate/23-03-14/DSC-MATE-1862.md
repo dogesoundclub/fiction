@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1862
+Description: DSC-MATE-1862 is a male anthropomorphic rabbit approximately 1.2 meters in height. DSC-MATE-1862's distinctive features include a frightened expression on its mouth, a retro cap on its head, and a gold chain and candy stick as accessories. Its eyes are currently unknown as DSC-MATE-1862 refuses to open them near Foundation personnel.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2952
+Description: Subject 2952 is a female human with spots on her face and a clown-like smile. Her most notable feature, however, is her red clown-like eyes that are often described as unnerving. She wears a silver chain, which is believed to be a symbol of her position as a mafia boss. Subject 2952 also often wears an LED gas mask and red cross earring.

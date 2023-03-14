@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7263
+Description: DSC-MATE-7263 is a male robot with a green cyclops eye and a frightened mouth. Its head is covered with a hoodie and wears a pair of horned-rim glasses as eyes, has a gold chain hanging from its neck, and a normal gas mask, with its connection hooked up to a small oxygen tank that it keeps with it. DSC-MATE-7263 stands at 6 feet tall and weighs 210 pounds.

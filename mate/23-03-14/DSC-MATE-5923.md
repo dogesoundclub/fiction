@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5923
+Description: DSC-MATE-5923 is a sentient, humanoid rabbit with the ability to communicate fluently in English. The subject is estimated to be of moderate height, with grey fur and an average physique. DSC-MATE-5923 is typically observed wearing a doge hat, jade earring with nerd glasses as its eyes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6919
+Description: Subject 6919 appears to be a human female in her mid-40s. Notable features include red lips, and normal glasses that conceal her eyes. The subject's head is reportedly covered in a metal blue material that appears to be irremovable. 

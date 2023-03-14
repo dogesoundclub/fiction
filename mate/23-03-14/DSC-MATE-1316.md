@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1316
+Description: Item 1316 appears to be a male rabbit of the Leporidae family. Its most notable feature is a pair of blue clown eyes that seem to attract those who make eye contact with it. Item 1316 stands at approximately 30 cm tall and wears a purple cap with a built-in headset, a red victory band on its forehead, and a pair of goggles on its forehead. It also has a gold earring on its left ear and a normal gas mask as an accessory.

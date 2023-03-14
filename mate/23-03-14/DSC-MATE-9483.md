@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9483
+Description: DSC-MATE-9483 is a female human of average height and build. It is distinguishable from standard humans by orange stripes on its face and a jade earring in its left ear. DSC-MATE-9483 also wears a gold chain that it refuses to remove.

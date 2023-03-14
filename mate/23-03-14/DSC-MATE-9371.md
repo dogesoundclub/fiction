@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9371
+Description: Officer 9371 appears to be a common monkey, with brown fur and a frightened expression. Their mouth is often agape in a terrified expression, which can be unsettling to those interacting with them. They wear a retro cap on their head, which is adorned with a two-color band on their forehead. They also wear jade earrings and a red scarf.

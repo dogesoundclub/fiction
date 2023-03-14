@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7016
+Description: DSC-MATE-7016 is a male human police officer, approximately 32 years old, and stands at 6’2” tall. DSC-MATE-7016’s facial features include bright orange stripes and a frightened mouth. Its eyes are VR Jade LED, allowing for night vision capabilities. DSC-MATE-7016 wears a short peak cap as part of its police uniform, along with a gold earring and a silver chain. 

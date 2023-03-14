@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9389
+Description: DSC-MATE-9389 is a male tiger that stands approximately 2.5 meters tall on hind legs. Its entire body is coated with orange and black fur, and it possesses jade earring in both ears. DSC-MATE-9389's eyes are composed of a set of VR Rainbow LED, and DSC-MATE-9389 is known to wear a purple cap atop its green hair. In comparison to wild counterparts, DSC-MATE-9389 has distinct tendencies of a human-like character.

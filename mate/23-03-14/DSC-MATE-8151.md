@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8151
+Description: 8151 is a human female who goes by the name of "Mama". She is the foremost leader of a powerful mafia syndicate, with connections to several high-profile criminal organizations across the globe. Despite her ruthless reputation, her physical appearance may suggest otherwise. Notably, her head is adorned with a unique cap that has green hair, and is accompanied by an unusual pair of blue clown eyes. Additionally, she always wears a medical mask over her mouth piece.

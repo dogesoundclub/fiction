@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2022
+Description: DSC-MATE-2022 is a human male of average height and build. The most notable feature of his face is the presence of orange stripes that run alongside his cheeks. He also has a friendly smile and wears normal glasses.

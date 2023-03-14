@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9200
+Description: Subject 9200 is a female humanoid of an estimated age of 28 years old. Notable physical features include a spotted facial pattern and red lips. The subject keeps their appearance tidy, with a short witch's haircut and a silver chain as a common accessory. Subject displays a love for adventure and may opt for more dangerous pursuits, making them an unpredictable wildcard.

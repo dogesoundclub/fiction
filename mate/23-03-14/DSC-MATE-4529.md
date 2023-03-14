@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4529
+Description: DSC-MATE-4529 is a humanoid robotic unit that bears a striking resemblance to a male human. DSC-MATE-4529 stands at 1.8 meters tall and has several unique features that distinguish it from a typical human. DSC-MATE-4529 possesses a single green cyclops eye that emits a blinding light capable of temporarily disorienting its enemies or illuminating dark spaces. Its mouth is constantly in a state of fear and anxiety, exposing its metallic teeth.

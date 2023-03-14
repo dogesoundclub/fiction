@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5623
+Description: DSC-MATE-5623 is a female human with an unusual appearance. She has bright orange stripes on her face, red clown eyes, and a hoodie that completely covers her head. DSC-MATE-5623 always wears a medical mask, possibly to hide her anomalous features, and a gold chain. Despite her abnormal appearance, civilians describe her as charismatic and self-assured, often joking and making puns related to her name.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4672
+Description: DSC-MATE-4672 is a male rabbit of average size and build. It displays a frightened expression on its muzzle at all times, which may be due to the electrician job it used to hold before containment. Its eyes are consistently obscured by a pair of horned rimmed glasses, and it often wears a doge hat on its head. DSC-MATE-4672 has a noticeable red victory band on its forehead, which may be related to its previous job.

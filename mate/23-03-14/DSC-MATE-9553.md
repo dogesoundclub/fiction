@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9553
+Description: DSC-MATE-9553 is a male human adult, currently employed as an electrician. DSC-MATE-9553 possesses various unique physical qualities such as dark spots on his face and ski goggle eyes that grant him enhanced vision. DSC-MATE-9553 wears a standard police cap as his headgear, with a goggle mounted on its forehead. Additionally, DSC-MATE-9553 can often be seen sporting a red scarf and a normal gas mask.

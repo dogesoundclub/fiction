@@ -1,0 +1,2 @@
+ID # : DSC-MATE-580
+Description: Subject 580 is a humanoid male fashion designer with distinctive orange stripes on his face, a spiked head, and gold earring, who wears nerd glasses and is permanently seen carrying a candy stick. He has been observed to be highly energetic and enthusiastic, oftentimes getting others excited about things which could result in potentially hazardous situations.

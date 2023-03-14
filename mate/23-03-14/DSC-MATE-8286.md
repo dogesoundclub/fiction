@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8286
+Description: DSC-MATE-8286 appears to be a human female in their early thirties. They possess a charming smile that is often accompanied by a friendly disposition. DSC-MATE-8286's most notable feature is their green hair styled in a unique edge curl fashion, and they also have jade earrings as well as a silver chain they wear consistently.

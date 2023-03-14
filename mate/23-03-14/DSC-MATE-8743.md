@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8743
+Description: Subject 8743 is a male humanoid of unknown origin. He stands at approximately 6 feet tall and weighs around 175 pounds. His most distinctive feature is a large black spot on his mouth, which appears to have no physical explanation. He wears normal glasses, a red scarf, a medical mask, and a green cross earring. His head appears to be parted in a bright pink color. 

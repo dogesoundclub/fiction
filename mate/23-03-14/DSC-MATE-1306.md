@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1306
+Description: DSC-MATE-1306 is a human female, with a distinctive purple lip and a green head of unkempt hair. She is often seen wearing a medical mask and a red cross earring, along with a choker around her neck. DSC-MATE-1306 has demonstrated the ability to cause infectious outbreaks through physical contact with individuals, leading to symptoms which include severe coughing and fever.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1247
+Description: 1247 is a male monkey of an unknown species, standing approximately 1.2 meters tall. Its most notable feature is an expression of a perpetually frightened mouth despite showing no signs of fear or anxiety. 1247's eyes are equipped with VR Rainbow LED technology that enhances its night vision and situational awareness. Its head is adorned with a green Mohawk and a single Jade earring on its left ear. 1247 also wears a thin silver chain around its neck.

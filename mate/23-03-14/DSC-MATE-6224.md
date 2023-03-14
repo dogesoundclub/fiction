@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6224
+Description: DSC-MATE-6224 is a human male in his early forties, measuring 1.82 meters tall, and weighing 90 kilograms. DSC-MATE-6224's most notable feature is a spot located on the left side of its mouth, which is permanently stained red. DSC-MATE-6224's eyes are replaced with visible VR jade LED displays, capable of replicating a wide range of visual patterns and colors. DSC-MATE-6224 also wears a Police cap and a jade earring.

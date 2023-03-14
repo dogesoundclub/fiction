@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5457
+Description: DSC-MATE-5457 appears to be a blonde haired female human in her mid-twenties with orange stripes on its face. Its most notable feature is a pair of wings attached to the back of its head. DSC-MATE-5457's eyes are orange, with thin orange eyebrows. It often wears a gas mask with LED light and a silver chain around its neck.

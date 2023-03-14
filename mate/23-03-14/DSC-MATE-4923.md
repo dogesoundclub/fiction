@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4923
+Description: DSC-MATE-4923 is a female human with distinctive physical traits. She possesses blue clown eyes, a green head with edge curl, and red cross earrings. DSC-MATE-4923 works as a banker in [REDACTED].

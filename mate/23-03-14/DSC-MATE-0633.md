@@ -1,0 +1,2 @@
+ID # : DSC-MATE-633
+Description: DSC-MATE-633 appears as a female human with distinct spot markings on their face. They possess an unnaturally large smile and have striking orange eyebrows which contrast with their multicolored hair styled similarly to individuals typically seen at music festivals. DSC-MATE-633 is often seen wearing a velvet choker, which they claim brings them good luck.

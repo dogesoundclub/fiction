@@ -1,0 +1,2 @@
+ID # : DSC-MATE-974
+Description: DSC-MATE-974 appears to be a male human of unknown age. The subject has orange stripes running down the length of their face and a perpetual smile. DSC-MATE-974's clown eyes are blue in color and its head resembles that of a monk. The subject also wears a jade earring and a silver chain around its neck. However, its most notable feature is the LED gas mask which obscures its face.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3825
+Description: Subject 3825 is a human female, approximately 25 years of age, with distinct spots on her face and a red lip. She often wears normal glasses and is typically seen wearing a blonde ushanka with a two-color band on her forehead, a silver chain, and gold earrings. She carries a normal gas mask as an accessory.

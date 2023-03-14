@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7237
+Description: DSC-MATE-7237 appears as a male Bengal Tiger wearing a purple cap with a headset, a medical mask, and horn-rimmed glasses. The subject also wears a silver chain around his neck. DSC-MATE-7237 exhibits human-like personality traits and communicates using a variety of electronic devices.

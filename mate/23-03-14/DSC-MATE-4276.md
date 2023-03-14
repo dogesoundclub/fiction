@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4276
+Description: DSC-MATE-4276 is a male tiger of the species Panthera tigris. Its physical appearance is similar to that of a fully grown male tiger, except for its VR Rainbow LED eyes, gold earring on its left ear, medical mask covering its mouth, and a silver chain hanging around its neck. DSC-MATE-4276's personality is characterized by its tendency to be very introspective and lost in thought. DSC-MATE-4276 may spend hours daydreaming, often leading to accidents such as walking into objects or tripping.

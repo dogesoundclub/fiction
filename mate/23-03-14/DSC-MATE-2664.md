@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2664
+Description: DSC-MATE-2664 is a human female appearing to be in her mid-20s. DSC-MATE-2664 stands at 5'9" (175.26 cm) and weighs 145 lbs (65.77 kg). DSC-MATE-2664's most notable physical features are the spots on their face and their constant smile. DSC-MATE-2664's eyes are a bright orange with a distinct eyebrow pattern, which is as yet unexplained.

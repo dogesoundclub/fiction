@@ -1,0 +1,2 @@
+ID # : DSC-MATE-533
+Description: DSC-MATE-533 is a male human with an extraordinary appearance. He has a unique mouth spot and a clown mouth, with blue clown eyes. His hair is green and not arranged, and he wears a gold earring in his left ear. DSC-MATE-533 usually adorns a red scarf and carries a cigarette with him at all times.

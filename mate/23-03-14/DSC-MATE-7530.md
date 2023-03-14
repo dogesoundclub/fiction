@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7530
+Description: DSC-MATE-7530 is a male rabbit of the species Oryctolagus cuniculus, standing at approximately 30 cm tall and weighing 1.5 kg. DSC-MATE-7530 is distinguishable from non-anomalous rabbits by its unusual fashion accessories, which include a Doge hat, a pair of jade earrings, a red scarf, and a candy stick.

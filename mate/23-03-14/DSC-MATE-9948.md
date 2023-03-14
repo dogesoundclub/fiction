@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9948
+Description: DSC-MATE-9948 appears as an average rabbit except for its accessories. It wears a red beanie, a silver chain around its neck and a whistle tied to the chain. Its eyes are modified ski goggles and it has a permanent frightened expression on its mouth.

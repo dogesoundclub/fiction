@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6335
+Description: Item 6335, also known as "The Fashion Designer", is a male monkey of an unknown origin. The subject stands approximately 0.6 meters in height, with a distinctive blue bandana covering its head and jade earrings adorning its ears. The subject's most notable form of identification is a pair of ski goggle eyes, which seem to possess an innate ability to perceive the colors, patterns, and fabrics in a way unlike any human. The subject is typically adorned with a silver chain and a candy stick as accessories.

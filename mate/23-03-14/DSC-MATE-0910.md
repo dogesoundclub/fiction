@@ -1,0 +1,2 @@
+ID # : DSC-MATE-910
+Description: Subject 910 is a robotic humanoid designed to resemble a male lawyer in his mid-40s, wearing horn-rimmed glasses and a retro cap. His eyes are fitted with the latest in ocular technology, allowing him to analyze and process information at unprecedented speeds. A silver chain hangs around his neck as a non-functional accessory.

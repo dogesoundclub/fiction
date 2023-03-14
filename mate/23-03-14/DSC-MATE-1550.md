@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1550
+Description: DSC-MATE-1550 is a human female with distinctive facial features, including a pattern of spots on her cheeks and purple lips. She has red clown-like eyes and typically wears a retro cap with a two-color headband and goggles on her forehead.

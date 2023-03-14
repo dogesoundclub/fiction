@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4984
+Description: DSC-MATE-4984 is a male human, approximately 35 years of age. A unique feature of DSC-MATE-4984's face is the presence of bright orange stripes on his cheeks. DSC-MATE-4984 is often seen wearing a retro cap and nerd glasses, with a gold earring in his left ear. His mouth is almost always covered by a medical mask, as is common in his profession.

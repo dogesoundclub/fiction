@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5718
+Description: Subject 5718 is a male doctor of tiger descent. The subject displays red clown eyes and wears a silver chain around his neck, along with a standard gas mask to facilitate interaction with human subjects. The subject exhibits both traditional values and a playful personality, often regaling other subjects with humorous tales passed down through his family and community.

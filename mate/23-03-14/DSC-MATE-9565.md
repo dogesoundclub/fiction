@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9565
+Description: Item #9565 is a female human of average height and build, with distinct orange stripes on their face. Their eyes are an unusual VR Rainbow LED type, and their head is typically adorned with a hoodie. Item #9565 wears a silver chain and a normal gas mask as accessories.

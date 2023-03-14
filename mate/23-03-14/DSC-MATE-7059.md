@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7059
+Description: DSC-MATE-7059 is a small male rabbit measuring approximately 30cm in height, weighing 1.3kg. DSC-MATE-7059 has blue clown eyes, a frightened mouth, and wears a headset with LED around its head. DSC-MATE-7059 is equipped with a whistle that it uses to signal for assistance or to alert its handler of danger.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8819
+Description: 8819 was a humanoid robot resembling a lawyer, standing at 6'2" in height. It possessed a sleek, metallic body with various golden accessories adorning its frame, including a chain and a gold earring. It wore horn-rimmed glasses over its red LED eyes and a gas mask with similar LED lights.

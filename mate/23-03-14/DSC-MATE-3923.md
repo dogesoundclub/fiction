@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3923
+Description: DSC-MATE-3923 is a human female of average height and weight, with distinct green pigmentation on their head, spots on their face, and a purple lip. Their ears feature a green cross earring and they are often seen wearing a silver chain and smoking cigarettes.

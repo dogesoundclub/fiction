@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3374
+Description: DSC-MATE-3374 is a female human with unique features. Their face is marked with orange stripes of unknown origin, and their eyes are a bright blue with a clown-like appearance. Their head is described as "not arranged green", which is believed to refer to abnormalities in their brain structure; however, no abnormalities have been detected through medical examinations. DSC-MATE-3374 also wears a choker as an accessory.

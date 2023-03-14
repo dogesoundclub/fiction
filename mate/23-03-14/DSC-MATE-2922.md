@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2922
+Description: 2922 is a female human with several distinctive physical features. Their face is marked with a series of spots, and they have purple lips that stand out starkly against their pale skin. Their eyebrows are an unusual bright orange color, and they have a small wing protruding from their blonde hair. A pair of bands of two different colors are visible on their forehead, and they sport a red cross earring on each ear. They are often seen smoking a cigarette.

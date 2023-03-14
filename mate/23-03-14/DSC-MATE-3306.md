@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3306
+Description: 3306 is a human female with distinct features that set them apart from other humans. Their lips are always adorned with red lipstick, and their eyebrows are a bright orange color. The side of their head is also an orange hue, and they wear red cross earrings in their ears. Though they appear human, they possess a natural curiosity about the world that is uncommon in most people. They are known to randomly spout off obscure facts and trivia to others, whether they are interested or not.

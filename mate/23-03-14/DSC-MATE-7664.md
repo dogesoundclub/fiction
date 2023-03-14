@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7664
+Description: DSC-MATE-7664 is a Caucasian male, appearing to be in his mid-30s, with short brown hair and thick, nerdy glasses. He is frequently seen wearing a short peak cap with a 2-color band, a green cross earring, and a red scarf, along with his standard traffic officer uniform. DSC-MATE-7664 is often seen with a lit cigarette, however, it does not appear to require any form of sustenance.

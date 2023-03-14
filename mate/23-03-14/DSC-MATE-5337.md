@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5337
+Description: Item 5337, also referred to as the "Fast Food Worker", is a humanoid robot with a single green cyclops eye as its primary face feature. The robot's eyes are concealed by normal glasses and its mouth is covered by a medical mask. Item 5337 is also known to wear a red cross earring and a gold chain as accessories.

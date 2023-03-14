@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1573
+Description: Item #1573 appears to be a human male with a distinctive mouth spot and a frightened expression. He is often seen wearing a bucket hat with a two-color band, with goggles situated on his forehead. Item #1573 has been observed wearing a jade earring, as well as a silver chain and a candy stick. Information received indicates that Item #1573 is a licensed veterinarian, with a history of personal success within the field. 

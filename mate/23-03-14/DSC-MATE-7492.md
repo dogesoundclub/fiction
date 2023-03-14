@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7492
+Description: Item #7492 is a female humanoid of the human species, with distinctive spots on her face. Her eyes are unnaturally bright blue, resembling clown makeup, further drawing attention to her appearance. Her head is adorned with green, curly hair that appears to have a life of its own, and her ears have a distinct red cross earring. Item #7492 is often seen wearing a choker around her neck, and a LED gas mask that conceals most of her facial features.

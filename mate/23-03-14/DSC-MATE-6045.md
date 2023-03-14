@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6045
+Description: Item 6045 appears to be a male rabbit species wearing a bucket hat and cigarette. Its eyes have a unique VR Rainbow LED, and its forehead has goggles placed upon it. The subject wears a gold earring on its left ear and a silver chain around its neck. The subject displays a frightened attitude and looks quite skittish in the face of human interactions.

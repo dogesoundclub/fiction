@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4261
+Description: DSC-MATE-4261 appears to be a humanoid robot, resembling a security guard. It stands at a height of 6'2" and weighs approximately 210 lbs. DSC-MATE-4261 has a single green cyclops eye with a frightened mouth, accompanied by horned rim glasses. It has a red alarm for a head, a set of red cross earrings for its ears, and wears a medical mask to cover its mouth. DSC-MATE-4261 also sports a gold chain as an accessory.

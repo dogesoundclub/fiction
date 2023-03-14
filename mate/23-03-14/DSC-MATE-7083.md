@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7083
+Description: DSC-MATE-7083 appears to be a robot with distinguishing features such as a green cyclops eye, horned rim glasses as eyes, a red beanie for its head, and goggles affixed to its forehead. DSC-MATE-7083 often dons a red scarf and is typically seen with a cigarette in hand. 

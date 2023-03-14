@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4950
+Description: DSC-MATE-4950 is a female human real estate agent with red lips and red clown eyes. They often wear a bucket hat and gold earrings along with a medical mask covering their mouth. DSC-MATE-4950 has a goggle attached to their forehead and a silver chain draped around their neck.

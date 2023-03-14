@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4318
+Description: The subject, once a human reporter, has undergone a transformation into a tiger with a frightened mouth and VR Rainbow LED eyes. A red cross earring pierces their right ear, and they wear a red scarf as an accessory.

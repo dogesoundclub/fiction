@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3454
+Description: DSC-MATE-3454 is a human female in her late twenties, standing at approximately 1.7 meters in height and weighing 70 kilograms. DSC-MATE-3454's most noticeable features are the orange stripes on their face and their metal blue head. Their ears are adorned with a single red cross earring and they are often seen wearing a choker. DSC-MATE-3454's eyes are also of note, with a distinct orange coloring to their eyebrows.

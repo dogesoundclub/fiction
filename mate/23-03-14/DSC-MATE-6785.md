@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6785
+Description: Subject 6785 appears as a male tiger with jade LED eyes and a police cap on its head. It sports a gold earring on one ear and a red scarf around its neck. Its most striking feature is a perpetually frightened mouth, presenting an appearance of anxiety and vulnerability.

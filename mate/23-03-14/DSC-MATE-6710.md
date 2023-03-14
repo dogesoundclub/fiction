@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6710
+Description: Dr. 6710 is a female human with distinct orange stripes on her face and a set of blue clown eyes that seem to stare through observers. Her red lips are perpetually pursed in amusement, often betraying her expressionless face. She has dual pigtail hairdos and wears two-color bands on her forehead, as well as goggles on her forehead. Dr. 6710 also wears a choker and an LED gas mask that glows softly in the dark.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7959
+Description: Subject 7959 is a male rabbit standing at three feet tall. It wears a purple cap with a headset and has a two-color band on its forehead. Its eyes are covered with normal glasses, and it wears a gold chain around its neck. It's also frequently seen carrying a candy stick as an accessory.

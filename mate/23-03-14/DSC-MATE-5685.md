@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5685
+Description: DSC-MATE-5685 is a male monkey with a frightened mouth and a pair of horned rim glasses that serve no apparent function. It also carries a whistle at all times. Surprisingly, DSC-MATE-5685 possesses a degree of intelligence that allows it to speak in several languages, including English, Spanish, and French.

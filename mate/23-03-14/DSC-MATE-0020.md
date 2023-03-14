@@ -1,0 +1,2 @@
+ID # : DSC-MATE-20
+Description: DSC-MATE-20 is a human male with an unusual appearance. It is characterized by a purple cap with a headset, green cross earring, gold chain, and nerd glasses. DSC-MATE-20 also has spotted facial features, with an ever-present smile and medical mask covering its mouth.

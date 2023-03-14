@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7455
+Description: Item 7455 is a humanoid robot with a green cyclops eye as its main visual sensor. The robot is male and is programmed to work as a programmer. It is often seen wearing nerdy glasses and a jade earring. It occasionally carries a cigarette in its hand, despite not needing or being able to smoke.

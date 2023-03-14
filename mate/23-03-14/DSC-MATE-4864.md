@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4864
+Description: DSC-MATE-4864 is a female human with distinctive spots on her face and red lips. The eyes are noted to have orange eyebrows, with a head of unkempt green hair. DSC-MATE-4864 is frequently seen wearing a gold earring and a choker, and is known to don a normal gas mask when in public.

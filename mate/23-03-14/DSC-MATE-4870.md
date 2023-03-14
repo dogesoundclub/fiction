@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4870
+Description: Subject 4870 is a middle-aged human male with red clown eyes, a prominent mouth spot, and a smile that never fades. He has a head full of hair, often covered by a retro cap. He is also known for sporting a gold earring on his left ear and a cigarette in between his lips. Although his physical attributes are not the cause of his listing, it is his vivacious personality that raises concern. 

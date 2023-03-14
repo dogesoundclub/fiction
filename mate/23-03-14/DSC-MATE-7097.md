@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7097
+Description: 7097 appears to be a human male with a frightened expression on his mouth. His most notable features are the jade earring hanging from his left ear and a police cap adorning his head. Subject 7097 is a notorious mafia boss, known for his rebellious tendencies that often lead to dangerous situations. He possesses a cunning intellect and a natural talent for bending rules to suit his needs.

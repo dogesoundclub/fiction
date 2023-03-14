@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8161
+Description: DSC-MATE-8161 is a humanoid robot with an appearance of a male, standing at 6'3". It is fitted with green hair in a purple cap and is often seen wearing a gold chain. The subject's mouth is in a constant state of fright, and it has a jade earring on each ear. DSC-MATE-8161's primary function is that of a theater manager, responsible for scheduling events, delegating tasks to employees, and ensuring the smooth operation of all shows.

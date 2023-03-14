@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3793
+Description: DSC-MATE-3793 appears to be a female human with distinguishing features, including red lips, orange eyebrows, a 00s school girl hairstyle, and red cross earrings. They are typically seen wearing a choker and smoking a cigarette. DSC-MATE-3793's personality can be described as impulsive and reckless, leading to frequent accidents and mishaps.

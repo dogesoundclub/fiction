@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5501
+Description: DSC-MATE-5501 is a male rabbit of the Oryctolagus cuniculus species, standing at 1.5 meters in height. DSC-MATE-5501 shows a feature of a frightened mouth and has normal glasses on its eyes. It wears a bucket hat on its head with goggles on the forehead. DSC-MATE-5501 is often seen wearing a gold chain and whistle as accessories.

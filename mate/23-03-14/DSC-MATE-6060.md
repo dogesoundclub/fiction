@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6060
+Description: DSC-MATE-6060 appears to be a rabbit of the Leporidae family, standing at 1.2 meters (4 feet) tall when standing on its hind legs. DSC-MATE-6060 is male, with jade LED eyes that occasionally flicker, and a gold earring in its left ear. It is usually seen wearing a red scarf. DSC-MATE-6060 exhibits traits and mannerisms similar to that of a human, including communication through speech and tool use capabilities. It also displays a strong sense of independence and a rebellious nature towards authority and rules.

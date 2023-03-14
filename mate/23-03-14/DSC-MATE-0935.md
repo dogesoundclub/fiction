@@ -1,0 +1,2 @@
+ID # : DSC-MATE-935
+Description: DSC-MATE-935 is a male simian of the species Macaca fascicularis. It stands at approximately 65cm tall and weighs around 5kg. DSC-MATE-935 possesses a red beanie on its head and a pair of normal glasses which cover its eyes. DSC-MATE-935 often wears a two-color band on its forehead, a jade earring through its left ear, and a gold chain around its neck. DSC-MATE-935 also occasionally smokes cigarettes.

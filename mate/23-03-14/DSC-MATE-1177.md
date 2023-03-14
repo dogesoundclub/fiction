@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1177
+Description: DSC-MATE-1177 is a human male with several unique features. They have spots on their face and a distinctive smile. Their eyesight is normal and is aided by glasses. Their head is adorned with a peak spike, and they wear a neon LED gas mask as an accessory. They also wear a silver chain and sport an earring with a green cross. 

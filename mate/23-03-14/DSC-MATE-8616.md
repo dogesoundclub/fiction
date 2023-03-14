@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8616
+Description: DSC-MATE-8616 is a human female with distinctive facial features including orange stripes on the cheek area and red lips. DSC-MATE-8616 habitually wears a medical mask covering her mouth, and a blond Ushanka hat adorned with a two-color band on her forehead, both of which she considers to be sentient entities.

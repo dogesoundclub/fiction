@@ -1,0 +1,2 @@
+ID # : DSC-MATE-347
+Description: DSC-MATE-347 is a male rabbit measuring approximately 80 cm in length with white fur, red clown eyes, and a retro cap. It possesses exceptional organizational skills that are exhibited in its daily activities. DSC-MATE-347 has a gold earring and carries a whistle around its neck. It is a former train driver and displays a strong preference to punctuality.

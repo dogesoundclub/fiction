@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3036
+Description: DSC-MATE-3036 is a male human with a unique physical appearance. His face is adorned with a Mouth Spot, and a Clown Mouth which is perpetually open. He has Blue Clown Eyes and often sports a Green Cross Earring on his ears. Despite his appearance, DSC-MATE-3036 is a highly skilled fashion designer with commendable expertise in textile design, pattern-making, and garment construction.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1218
+Description: DSC-MATE-1218 appears to be a Caucasian male in his mid-40s, standing at approximately 180 cm in height and weighing around 70 kg. DSC-MATE-1218 displays several distinct facial features, including spots on his skin, a charming smile, and a pair of nerd glasses. DSC-MATE-1218's head appears to resemble that of a typical monk, with a clean-shaven scalp and a small goatee.

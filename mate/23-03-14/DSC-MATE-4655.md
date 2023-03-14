@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4655
+Description: DSC-MATE-4655 is a human male train driver with blue clown-like eyes and a permanent smile. DSC-MATE-4655 wears a short peak cap on their head, which features a two-color band on their forehead. DSC-MATE-4655 has been reported wearing a gold chain as an accessory around their neck. However, it is unclear if this object holds any anomalous properties.

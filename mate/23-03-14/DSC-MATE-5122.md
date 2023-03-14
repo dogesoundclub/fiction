@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5122
+Description: DSC-MATE-5122 is a male humanoid of the human species. They possess a unique set of physical features, including a mouth spot and clown mouth located on their face, and red clown eyes. Their head is not arranged in a typical human fashion and is instead a green, unorganized mess. DSC-MATE-5122 also wears a jade earring and a silver chain around their neck, as well as carrying a candy stick as an accessory.

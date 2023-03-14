@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5791
+Description: DSC-MATE-5791 is a humanoid robot with a green cyclops eye as their primary feature. It stands 1.9 meters tall, and is typically seen wearing a bucket hat, goggle on its forehead, and a red scarf around its neck. DSC-MATE-5791 works as a theater manager, executing all managerial duties with precision and efficiency.

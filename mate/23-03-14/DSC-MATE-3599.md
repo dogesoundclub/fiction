@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3599
+Description: DSC-MATE-3599 is a male humanoid identified as a programmer by profession. DSC-MATE-3599's most notable feature is its clown mouth, blue clown eyes, and purple cap with a headset. It also features a two-colored band on its forehead, gold earring on its ears, and wears a red scarf around its neck, often holding a candy stick.

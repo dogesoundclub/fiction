@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2725
+Description: DSC-MATE-2725 is a human male, standing at 6 feet tall, with a stout build. Its most notable feature is the presence of spots on its face, which appear to be benign in nature, but have not been surgically removed due to DSC-MATE-2725's resistance to such attempts. DSC-MATE-2725's mouth has been altered to resemble that of a clown, providing a permanent grin to its face. Its eyes are also unnaturally blue and have the appearance of clown eyes.

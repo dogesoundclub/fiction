@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7768
+Description: DSC-MATE-7768 is a male Tiger of the Bengal subspecies. The subject primarily appears in public wearing a Hoodie, with Horned Rim Glasses covering their eyes. DSC-MATE-7768 is known for their charming personality, charisma, and the ability to connect with others on a deep level. 

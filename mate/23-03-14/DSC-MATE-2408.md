@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2408
+Description: DSC-MATE-2408 is a male human of average height and build. They work as a beautician, though they have shown no anomalous abilities in this field. DSC-MATE-2408 has spots on their face and a wide smile, which is often seen even when they are not actively amused. Their eyes are blue and have been described as clown-like in appearance, and their head is colored purple metal. They wear a green cross earring, gold chains, and are frequently seen smoking cigarettes.

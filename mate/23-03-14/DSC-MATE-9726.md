@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9726
+Description: DSC-MATE-9726 is a male robot news anchor with a green head that is not arranged. The forehead is marked with a goggle overlaid. One notable accessory of DSC-MATE-9726 is a red cross earring on the ear and a normal gas mask during news broadcasts.

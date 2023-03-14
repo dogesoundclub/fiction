@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2465
+Description: DSC-MATE-2465 is a male human of indeterminate age, approximately 6 feet tall with a lean build. DSC-MATE-2465 has a distinct mouth spot on the right side of his lips and a frightened mouth expression. His normal glasses and retro cap covers his eyes and head, respectively. DSC-MATE-2465 has an earring that spans a green cross and carries a cigarette as his principal accessory.

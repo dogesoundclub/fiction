@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8003
+Description: DSC-MATE-8003 is a female humanoid of average height and weight. Subject is often seen wearing a purple cap with a headset, normal glasses, a choker, and smoking a cigarette. DSC-MATE-8003 is a reporter for a local news agency and is considered a valuable asset due to their ability to obtain information quickly and discreetly.

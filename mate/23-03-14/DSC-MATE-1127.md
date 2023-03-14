@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1127
+Description: DSC-MATE-1127 appears to be a human male with orange stripes on his face and a perpetual smile. His eyes are blue clown eyes, which appear to glow in the dark. DSC-MATE-1127 wears a short peak cap on his head and a green cross earring on each ear. He is often seen wearing a silver chain around his neck and an LED gas mask over his face, which he claims helps him "breathe easier."

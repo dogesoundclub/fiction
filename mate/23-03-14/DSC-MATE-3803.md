@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3803
+Description: DSC-MATE-3803 is a male Tiger with unique physical features. Its eyes resemble clown makeup, with bright blue markings around its pupils. DSC-MATE-3803 has green hair with a purple cap that is worn at all times. It sports a gold chain as an accessory and wears a jade earring on its left ear. The creature always wears a medical mask over its mouth, which may be a result of an unnatural respiratory system.

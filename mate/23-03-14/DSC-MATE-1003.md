@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1003
+Description: Subject 1003 is a female human of average height and build. She possesses notable facial features, including orange stripes over her left cheek and a purple lip. Her eyes are jade green LEDs, and her head is of a green color that has not been arranged. She wears a device resembling a goggle on her forehead, which appears to be non-functional, and a jade earring in her left ear.

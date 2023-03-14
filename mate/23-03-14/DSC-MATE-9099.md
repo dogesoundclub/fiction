@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9099
+Description: Subject 9099 appears to be a human male of average height and build. The subject's most distinct facial features are a series of spots that cover the skin around their nose and mouth, and a perpetually present smile that seems to be simultaneously welcoming and a little bit sinister. The subject's eyes are covered by ski goggles, which could be used as a means to hide any emotional tells during negotiations. 9099 often wears a hoodie over their head and adorn themselves with a gold chain and carries a candy stick.

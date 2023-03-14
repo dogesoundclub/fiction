@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9889
+Description: DSC-MATE-9889 appears to be a male primate, resembling the species of Macaca mulatta, or the rhesus monkey. The specimen has a unique physical appearance, with pink-colored hair parted down the middle, complete with jade earrings and a silver chain dangling around its wrist. The eyes of DSC-MATE-9889 are made up of virtual-reality rainbow LEDs, which emit a variety of colors and patterns.

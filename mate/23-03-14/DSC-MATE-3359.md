@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3359
+Description: DSC-MATE-3359 appears to be a human female with blonde hair, wearing an Ushanka. She has distinctive spots on her face and a constant smile. DSC-MATE-3359's eyes are notably red clown eyes that change in size and color frequently.

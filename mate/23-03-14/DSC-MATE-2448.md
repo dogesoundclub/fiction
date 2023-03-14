@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2448
+Description: Subject 2448 is a human female of average height and weight with spotted skin and a purple-colored lip. Their eyes are unnaturally blue with a peculiar clownish style. Their head is always adorned with rainbow-colored festival accessories. Subject 2448 exhibits extreme emotions and may be prone to sudden mood swings in response to various forms of stimuli.

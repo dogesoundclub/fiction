@@ -1,0 +1,2 @@
+ID # : DSC-MATE-402
+Description: Subject 402 is a humanoid of the species Homo sapiens, male in gender, with an anomalous appearance. Subject's face is marked with distinct orange stripes and a mouth that appears to be frozen in a frightened expression, which may indicate a previous traumatic event or some other psychological condition.

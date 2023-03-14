@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8163
+Description: DSC-MATE-8163 is a male primate of the species Macaca fascicularis, commonly known as the Long-tailed Macaque. DSC-MATE-8163 stands at 43 cm tall and weighs approximately 6 kg. The subject's most notable features include blue clown eyes and a mouth in a constant state of fear. DSC-MATE-8163 also possesses a two-color band on its forehead, a jade earring on both ears, and two gold chains around its neck. Additionally, the subject carries a whistle at all times.

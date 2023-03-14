@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2808
+Description: DSC-MATE-2808 is a human female with distinctive orange stripes on their face. They typically wear a retro cap and have red clown eyes. DSC-MATE-2808 displays a goggle on their forehead and a single jade earring on each ear. Their appearance, while attention-grabbing, is otherwise unremarkable.

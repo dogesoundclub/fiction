@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9000
+Description: DSC-MATE-9000 is a humanoid individual of the male gender, appearing to be in their late twenties. DSC-MATE-9000 has orange stripes running diagonally across their face, which seem to be a natural feature. They are always seen wearing a hoodie and nerd glasses, and often carry a candy stick in their hand. 

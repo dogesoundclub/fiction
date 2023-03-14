@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5815
+Description: DSC-MATE-5815 is a female human of approximately 35 years of age. She stands roughly 170 cm tall and weighs approximately 60 kg. DSC-MATE-5815's most notable features are her orange striped face and bright orange eyebrow eyes. She wears a tiara on her head, adorned with gold earrings and a pair of goggles on her forehead.

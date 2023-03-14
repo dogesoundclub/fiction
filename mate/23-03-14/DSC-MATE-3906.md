@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3906
+Description: DSC-MATE-3906 is a male tiger of unknown origin. Its physical appearance is unremarkable, aside from a pair of horned rim glasses it wears. Its head fur is a shade of green that does not blend with its natural fur coloration. DSC-MATE-3906 exhibits many human traits and is a successful fashion designer in the city.

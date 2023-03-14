@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1340
+Description: DSC-MATE-1340 is a human male, approximately 38 years old, who works as a car salesman. DSC-MATE-1340 has noticeable physical features on their face, including speckled spots and a cheerful smile. However, what sets them apart is the pair of VR jade LED eyes and a mohawk haircut that they possess. Additionally, DSC-MATE-1340 wears a medical mask over their mouth.

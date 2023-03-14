@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4825
+Description: DSC-MATE-4825 is a human female identified as an electrician by previous employment records. Its most notable physical features include orange stripes on the sides of the face and lips painted in a bright shade of red. DSC-MATE-4825's eyes are obscured by normal glasses, and it typically wears a hoodie with a 2 color band on the forehead and a silver chain as an accessory.

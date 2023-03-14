@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7308
+Description: Subject 7308 is a human female of average height and build. Her most striking feature is the alarming coloration of her eyes - they are a blazing red hue that resemble those of a clown. Her orange hair is styled messily, falling downwards and obscuring well over her eyes at the front. She sports a red cross earring on her left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6690
+Description: DSC-MATE-6690 is a humanoid robot standing approximately 1.8 meters tall. The robot's body is primarily constructed of steel and is adorned with a red scarf. DSC-MATE-6690's head is covered by a bucket hat, and its face features one green cyclops eye and a pair of glasses. DSC-MATE-6690's mouth is covered by a medical mask.

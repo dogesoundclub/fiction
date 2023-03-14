@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1516
+Description: DSC-MATE-1516 is a male Bengal tiger that possesses exceptional intelligence and cognitive abilities. DSC-MATE-1516 is capable of complex problem-solving and displays a highly analytical mind, which makes it a formidable threat to containment personnel. DSC-MATE-1516's most distinctive feature is the two-color band on its forehead and the goggles that it keeps propped above its eyes. It also wears a jade earring in its right ear and a medical mask over its mouth.

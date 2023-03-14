@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7462
+Description: DSC-MATE-7462, also known as "The Firestarter", is a male human with distinguishable orange stripes covering his face, as well as a permanent smile. DSC-MATE-7462 has green hair that is not naturally arranged, and presents a two-color band on his forehead. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7221
+Description: DSC-MATE-7221 is a male rabbit with a laid-back and easy-going personality who has been domesticated and trained as a beautician. DSC-MATE-7221 is equipped with Nerd Glasses and a Red Beanie for a stylish look. DSC-MATE-7221 often sports a Gold Earring in one of its ears.

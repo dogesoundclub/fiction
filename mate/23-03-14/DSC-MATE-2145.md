@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2145
+Description: DSC-MATE-2145 is a male rabbit-like creature with green fur and jade earrings. It appears to have a human-like intelligence and is capable of human speech, though it seems to prefer various forms of non-verbal communication.

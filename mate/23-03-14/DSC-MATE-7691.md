@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7691
+Description: DSC-MATE-7691 is a humanoid figure identified as a human villain. They possess a laid-back personality that is offset by a fiercely loyal nature. DSC-MATE-7691 is known to enter into heated arguments with individuals who insult friends or family members.

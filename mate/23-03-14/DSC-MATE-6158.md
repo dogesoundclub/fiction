@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6158
+Description: DSC-MATE-6158 is a male tiger approximately 2.5 meters long, with blue clown eyes that exhibit intelligence beyond that of a conventional tiger. Its head features a purple cap with a headset and a two-colour band on its forehead, which it uses for communication. DSC-MATE-6158 wears a jade earring, a silver chain, and constantly carries a whistle as one of its main accessories. DSC-MATE-6158 exhibits a unique trait of anthropomorphizing inanimate objects, often forming strong emotional attachments to them.

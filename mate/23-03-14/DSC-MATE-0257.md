@@ -1,0 +1,2 @@
+ID # : DSC-MATE-257
+Description: DSC-MATE-257 is a male bonnet macaque (Macaca radiata) standing at 45 cm in height and weighing 5.5 kg. DSC-MATE-257 has a mohawk hairstyle, a gold earring on its right ear, and is often seen wearing a red scarf around its neck. Its mouth appears to be in a constant state of anxiety or fear. DSC-MATE-257 also wears a pair of nerd glasses and carries a whistle on a lanyard with it at all times.

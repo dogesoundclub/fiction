@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2390
+Description: Subject 2390 appears to be a common monkey, with blue clown eyes and a retro cap atop his head. He is often seen wearing a gold earring on one ear, and a red scarf around his neck. The subject tends to carry a candy stick with him at all times, which he uses to alleviate stress and anxiety.

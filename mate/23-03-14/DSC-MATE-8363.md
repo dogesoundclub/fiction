@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8363
+Description: D-8363 is a male rabbit of average height with a unique sense of style - he is often seen wearing horned rim glasses and a gold earring. His attire is completed with a red scarf and a normal gas mask. D-8363 works as a doctor and is known for his brainstorming abilities.

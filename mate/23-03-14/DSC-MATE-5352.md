@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5352
+Description: DSC-MATE-5352 appears to be a male tiger with a bucket hat and gold earring. Additional accessories include a red scarf and an LED gas mask. DSC-MATE-5352 stands at approximately 1.8 meters in height and displays a natural elegance and poise. The mask is of anomalous origin, displaying a functional Heads-Up Display (HUD) and air filtration and purification capabilities. The gas mask serves as both a fashion accessory and as a form of respiratory support due to DSC-MATE-5352's sensitivity to pollutants.

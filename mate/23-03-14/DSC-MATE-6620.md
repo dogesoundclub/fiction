@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6620
+Description: DSC-MATE-6620 is a male Monkey, with green hair in a purple cap. They possess ski goggle-like eyes and a forehead with a goggle accessory. DSC-MATE-6620's personality is characterized by a strong sense of empathy, often attuning to others' emotions with ease. This trait can lead to humor in situations where DSC-MATE-6620 can use their ability to make people feel better, even in difficult moments.

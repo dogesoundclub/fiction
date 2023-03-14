@@ -1,0 +1,2 @@
+ID # : DSC-MATE-683
+Description: Subject 683 is a human male, standing at 1.75 meters in height and weighing approximately 70 kg. The subject has a distinctive mouth spot on their upper lip, which is often seen moving when the subject talks or breathes. Additionally, the subject has a frightened expression on their face, which seems to be an innate characteristic. They often wear normal glasses and a green cross earring on their left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6155
+Description: DSC-MATE-6155 is a rabbit identified as a male farmer. Its physical appearance consists of a green-haired purple cap on its head, a pair of gold earrings on its ears, frightened mouth, nerd glasses, and silver chain as its accessory. DSC-MATE-6155's most notable feature is its LED gas mask that has yet to be removed allowing the possibility of hearing impairment. 

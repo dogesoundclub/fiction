@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1621
+Description: DSC-MATE-1621 is a male monkey of the Cebus genus, commonly known as the capuchin monkey. It stands at approximately 45 cm tall and has blue clown eyes that appear to have been artificially implanted. Its head is adorned with a purple cap and a headset, as well as a two-color band on its forehead and a gold earring on each ear. It also wears a silver chain as an accessory.

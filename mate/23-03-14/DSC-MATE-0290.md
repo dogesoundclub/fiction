@@ -1,0 +1,2 @@
+ID # : DSC-MATE-290
+Description: DSC-MATE-290 is a humanoid entity with orange stripes on their face and a red lip, identified as a female human. DSC-MATE-290 is known to wear normal glasses over their eyes, a retro cap covering their head with a 2 color band on their forehead, a medical mask over their mouth, jade earrings in their ears, a choker around their neck, and sports goggles kept on their forehead.

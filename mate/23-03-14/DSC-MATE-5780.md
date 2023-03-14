@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5780
+Description: Subject 5780 is a human male, approximately 35 years of age, with a strikingly odd appearance. His face features a permanent clown mouth smile with blue clown eyes that appear to be painted on. The subject's head is topped with a doge hat, and his ears adorned with a green cross earring. He is frequently seen wearing a red scarf and holding a cigarette.

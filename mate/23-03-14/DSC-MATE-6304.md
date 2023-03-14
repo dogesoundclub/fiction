@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6304
+Description: Subject 6304 appears as an average rabbit wearing a purple cap with a headset and normal glasses. A silver chain adorned around his neck, leading observers to believe it has sentimental value.

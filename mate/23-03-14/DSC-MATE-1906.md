@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1906
+Description: Subject 1906 is a human female, approximately 5'5" in height with an average build. Her skin has black and white horizontal stripes. The individual has purple lips and wears a bucket hat on her head. She is frequently seen wearing normal glasses and a silver chain. Of note is a green cross earring on her left ear.

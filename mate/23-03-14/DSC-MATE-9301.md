@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9301
+Description: Subject 9301 appears to be a humanoid female of unknown origin. The subject's most notable feature is a set of red clown eyes, which are believed to be the result of an unknown genetic anomaly. The subject also has a distinctive purple lip, a two-color band on their forehead, and a jade earring in each ear. The subject often wears a medical mask to conceal their face, despite it being a side effect of their anomalous traits rather than a medical necessity.

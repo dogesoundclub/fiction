@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3654
+Description: DSC-MATE-3654 appears to be a human male in his mid-30s with several distinctive features. He has numerous large spots covering his face, seemingly random in pattern and placement. DSC-MATE-3654's eyes emit a constant green light, likely the result of cybernetic implants. His head is almost always covered by a dark hooded sweatshirt, and he wears a medical mask over his mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1303
+Description: Subject 1303 is a human female of unknown age, approximately 5'6" in height. Subject 1303 possesses several unusual physical features, including orange stripes on their cheeks, purple lips, and orange eyebrows. Their head is a distinctive metal blue color, and they are often observed wearing a pair of goggles on their forehead. Subject 1303 also wears a green cross earring in their left ear. 

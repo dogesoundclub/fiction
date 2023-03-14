@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2812
+Description: Subject 2812 is a human female of indeterminate age, with orange stripes present on her face as a result of an unknown and likely paranormal occurrence. She possesses unique features that indicate a predisposition to unusual anomalies, such as rainbow festival headwear and red cross earrings, which appear to be imbued with magical significance. A gold chain worn around her neck is believed to offer additional protection against malign influences.

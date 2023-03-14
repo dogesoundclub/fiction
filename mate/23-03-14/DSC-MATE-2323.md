@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2323
+Description: DSC-MATE-2323 appears to be a capuchin monkey wearing a grey hoodie, normal glasses, and a red scarf. DSC-MATE-2323 also has a two-color band across its forehead. The origins of DSC-MATE-2323 are unknown, but it claimed to have worked as a real estate agent prior to containment.

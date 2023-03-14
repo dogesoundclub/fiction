@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9471
+Description: Item 9471 appears to be a human male with a keen interest in programming and technology. They have a distinctive appearance, with green hair styled in a purple cap and wearing nerd glasses. They sport a jade earring on one ear and a silver chain around their neck.

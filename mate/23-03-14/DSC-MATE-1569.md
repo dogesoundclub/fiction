@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1569
+Description: DSC-MATE-1569 is a male monkey of unknown species, standing approximately 1.2 meters tall and weighing 24 kilograms. DSC-MATE-1569's most distinctive feature is his ski goggle eyes, which have been surgically implanted to protect his vision from electrical discharge. DSC-MATE-1569's head is naturally parted pink and he has jade earrings piercing both ears.

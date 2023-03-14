@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1302
+Description: DSC-MATE-1302 is a female human with distinctive orange stripes on her face and purple lips. She has red clown eyes and her blonde hair features a wing. DSC-MATE-1302 wears goggles on her forehead, gold earrings, and a gold chain around her neck. She is a car salesman by profession and has displayed some anomalous abilities in salesmanship. Her personality is highly organized and reliable, but also stubborn and resistant to change.

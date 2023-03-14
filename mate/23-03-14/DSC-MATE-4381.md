@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4381
+Description: DSC-MATE-4381 is a human female identified as a fashion designer by profession. DSC-MATE-4381 is approximately 28 years old and stands at 1.75 meters in height. DSC-MATE-4381 features a short, witch-like hairstyle, a red lip, and a green cross earring. DSC-MATE-4381 also wears a leather choker at all times. DSC-MATE-4381 is known for having a laid-back and easy-going demeanor, but is fiercely protective and loyal to her loved ones.

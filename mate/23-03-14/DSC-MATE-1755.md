@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1755
+Description: DSC-MATE-1755 is a humanoid of unknown origin and age, with a striking appearance featuring orange stripes on the left side of the face and an orange side part of the head. Her most prominent feature is a red cross earring on each ear. DSC-MATE-1755 always wears a medical mask that conceals most of its face except the striking orange eyebrow stripe and the red lipstick. She never removes the mask, refusing it even during medical exams, operations, or breathing treatments.

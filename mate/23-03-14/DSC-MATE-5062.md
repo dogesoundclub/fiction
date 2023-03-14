@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5062
+Description: Subject 5062 is an adult human female with distinctive skin markings in the form of spotted patches on their face and body. Their eyes require corrective lenses and typically wear normal glasses for that purpose. Additionally, subject 5062 typically wears a bucket hat as headwear, a gold earring on one ear, and a silver chain necklace.

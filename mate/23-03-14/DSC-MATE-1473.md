@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1473
+Description: DSC-MATE-1473 is a male rabbit, approximately 1.5 meters in height when standing upright. It wears a red beanie, horned rim glasses, and is often seen holding a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9860
+Description: Subject 9860 appears to be a human male of average build and height. Their most notable distinguishing features include ski goggle eyes and a blue bandana wrapped around their head. They also sport a green cross earring, with a red scarf as their signature accessory.

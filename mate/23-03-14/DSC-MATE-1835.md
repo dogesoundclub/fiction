@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1835
+Description: Subject 1835 appears to be a middle-aged human male with a warm and welcoming smile. However, his eyes are not those of a human but instead resemble ski goggles. His head is a metallic purple that seems to shift in hue depending on the light in the room, and his ears are adorned with a green cross earring.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7314
+Description: DSC-MATE-7314 is a male tiger with red clown eyes, walking on two legs and wearing a police cap. Its forehead features a two-color band, and jade earrings adorn its ears, along with a gold chain around its neck. Though DSC-MATE-7314's physical appearance is highly unusual, it is its personality that sets it apart from other members of its species.

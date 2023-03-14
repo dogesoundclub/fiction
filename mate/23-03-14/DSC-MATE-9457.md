@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9457
+Description: DSC-MATE-9457 is a human female in her late 20s with spots on her face and a constant smile. Its eyes are orange and eyebrow is also orange in color. DSC-MATE-9457 has green hair in a purple cap and wears a green cross earring and a choker. DSC-MATE-9457 works as a banker and has shown no signs of anomalous activity in her profession.

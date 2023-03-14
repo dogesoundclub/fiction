@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4931
+Description: DSC-MATE-4931 is a humanoid robot measuring at 1.8 meters in height with a sleek, metallic body that is usually adorned with the latest fashion trends. The robot is most often seen wearing a bucket hat atop its head and a medical mask covering its mouth. Its most prominent feature is its single green cyclops eye that appears to be the only visible facial feature. DSC-MATE-4931 has a pair of normal glasses resting upon its cranial structure, and a red cross earring on its left ear.

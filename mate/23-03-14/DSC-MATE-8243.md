@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8243
+Description: DSC-MATE-8243 appears to be a humanoid male of the Homo sapiens species, identified as a programmer. Its most notable features include a dark spot around its mouth and a pair of nerd glasses covering its eyes. DSC-MATE-8243 also wears a head accessory resembling a doge hat and has a two-color band on its forehead. A single gold earring is located on each ear, and it is commonly seen wearing a red scarf around its neck. In addition, DSC-MATE-8243 often carries a candy stick as a secondary accessory.

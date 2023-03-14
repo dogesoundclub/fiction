@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3484
+Description: Subject 3484 is a male monkey of the species Macaca fascicularis, commonly known as the long-tailed macaque. The subject stands at 40 centimeters in height and weighs approximately 5 kilograms. The monkey has blue clown eyes, a purple cap with a headset, and a pair of goggles on its forehead. The monkey's mouth is in a constant state of fear and it exhibits a 2-color band on its forehead.

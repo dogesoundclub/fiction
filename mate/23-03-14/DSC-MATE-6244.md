@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6244
+Description: DSC-MATE-6244 is a female human, who appears to be a farmer in her mid-50s. They are 5'6" in height and weigh approximately 150lbs. DSC-MATE-6244 has red lip and wears normal glasses on their eyes. DSC-MATE-6244 is always seen wearing a bucket hat on their head, and a silver chain. The forehead features a two-color band across the middle. They also wear an LED gas mask that they claim helps them breathe clean air when out in the fields.

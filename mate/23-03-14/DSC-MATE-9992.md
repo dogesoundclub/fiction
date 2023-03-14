@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9992
+Description: DSC-MATE-9992 is a female human of average height and weight with spots on her face and a constant smile. DSC-MATE-9992 has blue clown eyes and a face resembling that of a 00s school girl. It wears a silver chain as an accessory.

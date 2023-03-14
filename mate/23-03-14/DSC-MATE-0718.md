@@ -1,0 +1,2 @@
+ID # : DSC-MATE-718
+Description: DSC-MATE-718 appears as a middle-aged human male with parted pink hair and a distinctive mouth spot on his left cheek. He is often seen wearing a medical mask, presumably to conceal his abilities. DSC-MATE-718 has two red victory bands on his forehead and a pair of goggles resting on his forehead. He also wears a gold earring on his right ear.

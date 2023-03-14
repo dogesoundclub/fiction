@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5937
+Description: 5937 is a male tiger, roughly 2.5 meters in length and 225 kilograms in weight. Its most notable features are its blue clown eyes, green hair in purple cap, and jade earring on its left ear. 5937 also wears goggles on its forehead and a red scarf around its neck.

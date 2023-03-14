@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6725
+Description: Subject 6725 is a female humanoid identified as a farmer. They possess a unique appearance, marked by purple lips and spotted skin. The subject has normal eyesight, aided by glasses. The head is identified as a blonde in an Ushanka cap, with a distinctive green cross earring on both ears. The subject can be easily identified by the presence of a cigarette held in their right hand.

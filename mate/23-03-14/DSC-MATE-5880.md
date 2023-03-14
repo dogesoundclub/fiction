@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5880
+Description: Subject 5880 is a human male farmer with distinct physical features. The subject's face is marked with peculiar spots that are mostly concentrated on the cheeks and chin area. This, coupled with the two-color band on the forehead, gives the subject a unique appearance. Subject 5880 is also known to wear a gold chain as an accessory around the neck.

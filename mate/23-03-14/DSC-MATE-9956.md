@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9956
+Description: Subject 9956 is a human male of average height and build. He possesses a unique facial feature characterized by a dark spot located just above his upper lip, earning him the nicknames "Mouth Spot" and "Mole Man" within the fashion industry. Additionally, his forehead has two distinctive color bands that draw attention to themselves.

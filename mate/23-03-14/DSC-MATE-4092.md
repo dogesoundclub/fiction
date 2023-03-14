@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4092
+Description: Subject 4092 appears to be a male rabbit with a frightened mouth and wears a red beanie on its head. The subject's VR Rainbow LED eyes are capable of displaying a wide range of colors and patterns, and on its forehead is a goggle. The subject is often seen wearing a normal gas mask as an accessory and has a gold earring on one of its ears.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4384
+Description: DSC-MATE-4384 is a male monkey that wears a doge hat on its head, a jade earring on each ear, a gold chain around its neck, and carries a candy stick in its hand. DSC-MATE-4384 has exhibited above-average intelligence and the ability to communicate using sign language.

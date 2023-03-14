@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1907
+Description: Subject 1907 appears to be a male electrician of rabbit species standing at about 3 feet tall. The subject bears a striking appearance, characterized by its red clown eyes, green hair in a purple cap, and a red victory band on his forehead. The subject's accessories include a gold chain necklace and an LED gas mask, which functions as a breathing apparatus.

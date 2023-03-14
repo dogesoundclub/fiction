@@ -1,0 +1,2 @@
+ID # : DSC-MATE-759
+Description: DSC-MATE-759 is a human female identified by her unique purple spotted lip and VR Rainbow LED eyes. DSC-MATE-759 typically adorns a black hoodie, with a silver chain hanging at the front, and an LED gas mask covering her face. DSC-MATE-759 exhibits abnormal physical abilities, including super strength, agility, and the ability to manipulate technology.

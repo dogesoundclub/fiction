@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1696
+Description: DSC-MATE-1696 appears to be a human female of South Asian descent, with spots on her face and a noticeable smile. She wears normal glasses and has a green haircut with edge curl. DSC-MATE-1696 regularly wears a jade earring on her right ear and a silver chain around her neck. Furthermore, DSC-MATE-1696 uses an LED gas mask as an accessory, as it has been proven to have a calming effect on her personality.

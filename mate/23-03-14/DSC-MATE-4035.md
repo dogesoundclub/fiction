@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4035
+Description: DSC-MATE-4035 is a male human, approximately 32 years of age. DSC-MATE-4035 possesses distinct facial features, including multiple spots across the face, nerd glasses over the eyes, and a red victory band on the forehead. DSC-MATE-4035 also wears a gold earring and carries a candy stick as an accessory.

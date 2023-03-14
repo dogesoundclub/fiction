@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2258
+Description: Item 2258 is a human female with striking orange stripes on her face and electric blue clown eyes. Her trademark green hair is perpetually styled with curling edges and she possesses a set of goggles on her forehead as well as a green cross earring in each ear. She is invariably seen wearing a gas mask, which appears to be of standard make.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1334
+Description: DSC-MATE-1334 appears as a human female of indeterminate age, with distinctive spots on the face and purple lips. The subject wears normal glasses and a choker and is frequently seen with a two-color band on the forehead and goggles atop the forehead. DSC-MATE-1334 also wears a gold earring in each ear.

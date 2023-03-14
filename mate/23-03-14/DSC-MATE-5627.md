@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5627
+Description: Subject 5627 is a human male with spotted skin and a permanent expression of fear on their mouth. Their eyes are replaced with VR jade LED implants and their head is coated with metal purple material. They often hold a cigarette, which may lead to a risk of fire if not properly contained.

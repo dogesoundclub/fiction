@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6167
+Description: DSC-MATE-6167 is a male rabbit that measures approximately 1 meter in height. The subject wears horn-rimmed glasses and carries a silver chain as an accessory. DSC-MATE-6167 has not arranged green fur and is known to possess a whimsical personality. DSC-MATE-6167 is a fashion designer and is known for its attention to detail and fashion sense. DSC-MATE-6167’s designs have been known to create a deep emotional connection in their wearers.

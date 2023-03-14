@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7248
+Description: DSC-MATE-7248 is a male tiger of indeterminate age, approximately 2 meters in length and weighing 500 kilograms. It is distinguishable by its gold earring and silver chain, as well as the whistle it carries on a leather cord around its neck.

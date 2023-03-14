@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4729
+Description: DSC-MATE-4729 is a male human with orange stripes on his face and a constant smile. His hair is parted in pink and he frequently wears nerd glasses. DSC-MATE-4729's forehead has a noticeable two-color band and he often wears a gold earring, a gold chain, and carries a candy stick.

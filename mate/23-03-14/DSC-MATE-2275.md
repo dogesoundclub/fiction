@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2275
+Description: DSC-MATE-2275 is a male humanoid entity believed to be of the species Panthera Tigris, commonly known as a tiger. DSC-MATE-2275 stands at approximately 2.3 meters in height and weighs approximately 200 kilograms. DSC-MATE-2275's physical appearance is modified to include a purple cap with a headset, a red victory band around its forehead, a goggle on its forehead, horned rim glasses, a medical mask covering its mouth, and an earring made of gold in its left ear. DSC-MATE-2275 also wears a gold chain around its neck.

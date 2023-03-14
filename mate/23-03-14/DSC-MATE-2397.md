@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2397
+Description: DSC-MATE-2397 is a rabbit-like humanoid with an average height of 1.5 meters. It possesses red clown-like eyes and a constantly frightened mouth. DSC-MATE-2397 is often seen wearing a hoodie with a two-color band on its forehead. It also wears a silver chain around its neck and carries a whistle resembling that of a football referee. DSC-MATE-2397 is male and exhibits a curious and inquisitive personality.

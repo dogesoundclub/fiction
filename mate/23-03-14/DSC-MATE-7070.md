@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7070
+Description: DSC-MATE-7070, also referred to as "the Rabbit Mechanic," is a male rabbit that stands at approximately 1.2 meters in height. DSC-MATE-7070 is identifiable by its signature "Doge" hat worn upon its head, along with a jade earring on each ear, a silver chain around its neck, and a candy stick within its mouth.

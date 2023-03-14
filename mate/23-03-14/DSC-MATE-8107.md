@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8107
+Description: DSC-MATE-8107 is a human female of average height and build. Notably, they possess distinct orange stripes on their face, which complement their natural purple lip coloration. Their forehead also bears a two-color band, the purpose of which is currently unknown. Additionally, DSC-MATE-8107 wears a single jade earring and a gold chain necklace.

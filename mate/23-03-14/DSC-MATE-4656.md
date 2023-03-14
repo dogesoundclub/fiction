@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4656
+Description: DSC-MATE-4656 is a male robotic farmer who appears to be in his 50s. The subject has a green cyclopean eye, and his eyes are housed in what appears to be ski goggles. DSC-MATE-4656 wears a blue bandana as a head covering, and a goggle is situated on his forehead. Additionally, he wears a gold chain around his neck and a normal gas mask on his person.

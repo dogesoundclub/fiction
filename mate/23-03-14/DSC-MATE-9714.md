@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9714
+Description: DSC-MATE-9714 is a human female that works as a train driver. DSC-MATE-9714 is easily recognizable by her spots on her face and purple lips. DSC-MATE-9714's eyes appear to be a jade LED, and she wears her hair in two pigtail braids. She is known to wear a silver chain around her neck and a gas mask, which she claims to be "normal."

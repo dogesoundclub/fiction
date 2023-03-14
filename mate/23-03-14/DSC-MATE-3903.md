@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3903
+Description: DSC-MATE-3903 is a humanoid robot resembling a male with a police cap and gold chain as accessories. The entity stands at 6 feet tall with VR jade LED eyes, and possesses an appearance consistent with that of a typical veterinarian. Ingesting electricity is the only source of energy that sustains DSC-MATE-3903.

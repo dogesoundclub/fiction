@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7105
+Description: Subject 7105 is a human male of average height and build, with distinctive features that make him easily recognizable. His parted pink hair and two-color band on his forehead give him an unusual appearance that sets him apart from others. He also has a unique facial feature - a noticeable mouth spot that is often accompanied by a smile. Subject 7105 wears a medical mask that covers most of his face and a silver chain around his neck, which he often fidgets with when deep in thought.

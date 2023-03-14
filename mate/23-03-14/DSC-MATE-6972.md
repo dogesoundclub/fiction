@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6972
+Description: DSC-MATE-6972 is a robotic humanoid that resembles a human beautician. They stand at 1.8 meters in height and are outfitted in fashionably frayed clothing; more specifically, a hoodie and silver chain. The robot's face is partially obscured by the medical mask they wear and their eyes are covered by normal glasses.

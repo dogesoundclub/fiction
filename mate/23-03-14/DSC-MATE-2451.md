@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2451
+Description: DSC-MATE-2451 appears to be a human female of average height and build, with vibrant rainbow LED eyes and green hair styled in an edge curl. They wear a standard gas mask as an accessory, which has been tested and confirmed to function properly. DSC-MATE-2451 displays a strong sense of independence, even to the point of stubbornly rejecting assistance when it is clearly needed. Despite this, they have shown no signs of physical or mental abnormalities.

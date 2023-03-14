@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7065
+Description: Subject 7065 is a human male with distinctive markings across his face resembling spots. He wears glasses typically associated with those described as "nerds," and a red victory band around his forehead. Subject 7065 also has a green cross earring on his right ear, which is believed to be related to some form of spiritual or religious belief. Additionally, he wears a red scarf and carries a candy stick as accessories.

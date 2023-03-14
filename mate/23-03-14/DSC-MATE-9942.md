@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9942
+Description: DSC-MATE-9942 is a male monkey species, standing at approximately 1 meter tall. DSC-MATE-9942 is often seen wearing shade glasses and a jade earring in its left ear. DSC-MATE-9942 also wears a gold chain as an accessory and carries a whistle at all times.

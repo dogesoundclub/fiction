@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8165
+Description: 8165 is a male monkey creature with terrifying clown blue eyes and a frightened mouth. This monkey has an inexplicable talent for leadership and is often the leader of the pack. Its leadership is so natural that it may be seen in both professional and social contexts.

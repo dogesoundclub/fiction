@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8590
+Description: DSC-MATE-8590 is a human male of indeterminate age, approximately 6'3" (192cm) tall, with an athletic build and an imposing physical presence. His face is characterized by a constant, almost unnerving smile, and his eyes are bright red with an unusual clown-like appearance.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8192
+Description: DSC-MATE-8192 is a humanoid entity referred to as "The Beautician". They appear to be a human male in their mid-30s, with a smile that never seems to fade from their spotted face. DSC-MATE-8192 is never seen without their retro cap, jade earring, gold chain, and LED gas mask. Its eyes are consistently hidden behind the thick lensed nerd glasses, which are said to have some form of anomaly themselves.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7241
+Description: Subject 7241 appears to be a human male with a head resembling that of a monk. An unusual feature of the subject is his bright blue clown eyes, which are likely a result of a genetic anomaly. Despite this, the subject's face is often adorned with a gentle smile.

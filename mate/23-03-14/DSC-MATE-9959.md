@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9959
+Description: DSC-MATE-9959 is a humanoid male of typical physical attributes, identified as a medical doctor by profession. DSC-MATE-9959 displays a distinctive combination of facial features, including a constant smile, jade LED cybernetic eyes, and a red beanie. DSC-MATE-9959's forehead is often observed to carry a pair of goggles, and DSC-MATE-9959's attire includes a green cross earring, a gold chain, and a candy stick.

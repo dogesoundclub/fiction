@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6844
+Description: DSC-MATE-6844 is a female humanoid of unknown origin. It is approximately 40 years old and stands at 5'7" in height. DSC-MATE-6844 possesses orange dyed hair on its left side and has gold earrings in its left ear. DSC-MATE-6844's most notable facial feature is the presence of small brown spots across its cheeks, nose, and forehead. Its smile is often described as warm and friendly.

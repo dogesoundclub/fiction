@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1491
+Description: DSC-MATE-1491 is a male Bengal tiger, standing approximately 1.8 meters tall and weighing 180 kilograms. The subject's most notable feature is a perpetually frightened expression, as evidenced by the subject's mouth being slightly agape. DSC-MATE-1491's eyes are equipped with thick, nerd glasses and his head is adorned with unkempt, not arranged green hair. The subject's ears are pierced with a red cross earring.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-369
+Description: Item #369 appears to be an anomalous entity possessing the body of a rabbit with light green fur. Their eyes are a striking shade of Virtual Reality Jade LED, and they are often seen sporting googles on their forehead, as well as a red scarf and a whistle around their neck. It is to be noted that Item #369 is able to speak fluently in English, and has shown no difficulty in understanding advanced concepts of physics.

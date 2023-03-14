@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1126
+Description: DSC-MATE-1126 is a female human with prominent spots on her face and purple lips. DSC-MATE-1126's eyes are a bright blue clown color and have been seen to change color at times. DSC-MATE-1126 also has 90s brown hair and a pair of goggles on their forehead. A gold earring on each ear and a gold chain completes DSC-MATE-1126's ensemble.

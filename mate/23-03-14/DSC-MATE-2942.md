@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2942
+Description: Subject 2942 is a human male in their mid-thirties, standing at 6 feet tall, and weighing roughly 190 pounds. They have short, sandy-brown hair and wear thick, black-framed nerd glasses. 2942 can typically be seen wearing a medical mask over their mouth and nose due to their tendency to work in dusty or hazardous environments. They also wear a gold earring in their left ear and a red scarf as an accessory.

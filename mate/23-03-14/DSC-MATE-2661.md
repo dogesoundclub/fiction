@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2661
+Description: DSC-MATE-2661 is a male robotic veterinarian with a distinctive appearance. It has a green Cyclops eye and a frightened mouth on its metallic face, and wears a red beanie on its head. Horn-rimmed glasses sit on top of its eye, and it sports a gold earring on one of its ears. DSC-MATE-2661 wears a red scarf around its neck and possesses an LED gas mask.

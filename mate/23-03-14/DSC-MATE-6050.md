@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6050
+Description: DSC-MATE-6050 is a humanoid female of average height and weight. DSC-MATE-6050's face features vibrant orange stripes that run from the bottom of their cheekbones to the corners of their mouth. Their head is adorned with a pair of feathered wings. Despite DSC-MATE-6050's vivid appearance, no genetic anomalies have been found.

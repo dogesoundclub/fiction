@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1005
+Description: DSC-MATE-1005 is a human male with several unusual physical features. The subject has spots covering the majority of their face, along with red clown eyes and a frightened mouth that appears to be in a permanent state of expression. DSC-MATE-1005's head is that of a monk, with a goggle attached to their forehead, and they wear a medical mask over their mouth. Additionally, the subject has a jade earring in each ear and a red scarf as part of their attire.

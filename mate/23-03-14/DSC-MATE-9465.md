@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9465
+Description: DSC-MATE-9465 is a human male with striking facial features. It has orange stripes on its face and a wide, friendly smile, and sports a green mohawk. DSC-MATE-9465's forehead features a black and white band and a pair of goggles on its forehead, and often wears a gold chain around its neck. It also wears a modified LED gas mask whenever it is not in the presence of others.

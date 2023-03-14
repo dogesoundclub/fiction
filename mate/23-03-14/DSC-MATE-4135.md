@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4135
+Description: 4135 is a female human, roughly 32 years of age, with spots on her face. Her 90s brown hair is often worn in a slick and neat ponytail, and she is frequently seen with normal glasses and a cigarette in hand. Subject 4135's organized and efficient personality traits are her primary distinguishing features; she is renowned for her ability to take control of any situation, however chaotic.

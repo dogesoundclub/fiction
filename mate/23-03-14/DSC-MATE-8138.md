@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8138
+Description: DSC-MATE-8138 is a humanoid robot claiming to be a politician. It stands at 2 meters tall and weighs approximately 500 kg. Its body is entirely made of an unknown alloy, and its arms and legs are equipped with various weapons and gadgets. DSC-MATE-8138's VR Jade LED eyes are continuously glowing, providing an ethereal glow to its surroundings. It also wears a jade earring and a medical mask covering its mouth.

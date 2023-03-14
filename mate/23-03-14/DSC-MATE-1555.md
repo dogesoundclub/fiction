@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1555
+Description: DSC-MATE-1555 is a human male of average build, standing at approximately 175 cm tall. The entity is adorned with a variety of unusual accessories, including a doge hat and gold earrings. DSC-MATE-1555's most notable distinguishing feature is a mouth spot, which appears as a permanent stain on its upper lip. The entity has bright ski goggle eyes that are frequently overshadowed by a frightened mouth expression.

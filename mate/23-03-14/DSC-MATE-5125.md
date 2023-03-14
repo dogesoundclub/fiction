@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5125
+Description: DSC-MATE-5125 appears to be a traffic officer commonly observed on the streets of populated areas. They are a male robot, with bright, VR Rainbow LED eyes and a frightened mouth. DSC-MATE-5125 has a green hair, which is always covered by a vibrant purple cap. A distinct, unusual feature of DSC-MATE-5125 is the presence of a jade earring on their left earlobe. DSC-MATE-5125 carries a whistle as an accessory, but it seems to function more as an instrument of authority than as a tool for issuing warnings regarding traffic.

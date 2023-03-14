@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4975
+Description: DSC-MATE-4975 is a male humanoid robot that resembles a firefighter wearing a short peak cap. It has a height of 185 cm and weighs approximately 120 kg. Its VR jade LED eyes are capable of scanning and analyzing its surroundings, allowing it to recognize potential hazards and respond accordingly. DSC-MATE-4975 possesses remarkable strength, endurance and agility, which enables it to perform firefighting duties without the need for additional support.

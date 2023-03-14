@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1390
+Description: DSC-MATE-1390 is a human female, with distinct physical features including spots on her face and a constant smile. DSC-MATE-1390's eyes are red clown eyes, and her head is in a not arranged green condition, while her ears show a gold earring. DSC-MATE-1390's mouth is covered by a medical mask.

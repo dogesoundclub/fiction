@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8034
+Description: Subject 8034, a male rabbit with red clown eyes and a 2 color band on his forehead, is a villainous entity with powerful mind control abilities. He is known to use his whistle to manipulate and control any living creature within earshot. 8034 has shown an inclination towards introspection, often getting lost in thought and daydreaming, which can lead to humorous accidents. Despite his humorous tendencies, do not underestimate his intelligence or his ability to manipulate.

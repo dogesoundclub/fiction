@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6566
+Description: Item 6566 is a male monkey of unknown origin. It stands at 3 feet tall and weighs approximately 97 pounds. Its most notable feature is its blue clown eyes which contrast sharply against its dark fur. Its mouth is often seen in a state of tension, as though it is in a constant state of fear. Item 6566 is often seen wearing a hoodie, which it appears to cling to as a source of comfort.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5586
+Description: 5586 is a male fashion designer who appears to be of the primate genus. It stands approximately 1.5 meters tall and has a frightened mouth with horned rim glasses as its eyes. It wears a Doge hat on top of its head, and it has a 2 color band on its forehead. The subject's most prominent accessory is an LED gas mask which emits a bright light when in use. In a calm state, the mask's LED lights up in various hues of blue and green.

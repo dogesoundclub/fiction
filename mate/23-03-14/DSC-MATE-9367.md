@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9367
+Description: DSC-MATE-9367 is a female human with orange stripes on her face and orange eyebrow eyes. Her head is not arranged green, and she is often seen wearing a medical mask. On her forehead, DSC-MATE-9367 wears a goggle as an accessory. On her ears, she has green cross earrings, and a gold chain as a necklace.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4535
+Description: DSC-MATE-4535 is a male robot with an appearance resembling a human beautician. It is approximately 175 cm tall and weighs 70 kg. DSC-MATE-4535's head is adorned with a short peak cap, and it wears horned rim glasses and a gold chain around its neck as accessories. DSC-MATE-4535 displays a caring and nurturing personality, which manifests in its tendency to take care of those around it as if they were its own children.

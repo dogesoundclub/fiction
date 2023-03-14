@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2213
+Description: 2213 is a male human of average height and build, with distinct spots on his face and a perpetually frightened expression. His eyes are obscured by normal glasses, and his forehead features a two-color band and a goggle that he frequently wears. He also sports a green cross earring, a red scarf and often carries a candy stick.

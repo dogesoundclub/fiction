@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1650
+Description: DSC-MATE-1650 is a humanoid robot measuring 1.8 meters in height. He has a green cylops eye as his prominent feature, with one normal pair of glasses for his human-like eyes. DSC-MATE-1650 wears a red cross earring on his right ear and a medical mask as his mouth piece.

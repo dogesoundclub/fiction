@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6936
+Description: DSC-MATE-6936 is a female human. She is approximately 5’11” and weighs 130 lbs. DSC-MATE-6936's most notable feature is the orange stripes along both sides of her face, which extend down to the bottom of her jawline. DSC-MATE-6936's eyes are equipped with VR jade LED technology, which allows her to stay connected to the internet at all times. DSC-MATE-6936 is also frequently seen wearing a black hoodie and an LED gas mask.

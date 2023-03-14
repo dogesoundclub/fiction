@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1924
+Description: Subject 1924 appears to be a human female with distinctive spots on their face and a contagious smile. Their eyes are cybernetic in nature, replacing natural eyes with VR Jade LEDs. Subject 1924 can often be seen sporting a retro cap with a goggle on her forehead, along with a jade earring and a gold chain. They also wear an LED gas mask when working on mechanical equipment.

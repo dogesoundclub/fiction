@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7750
+Description: DSC-MATE-7750 is a female human of average height and weight. Its most notable feature is the presence of several dark spots across its face, which it has decorated with a bold red lipstick. DSC-MATE-7750 has further accessorized with a green cross earring on its left ear, and a silver chain around its neck.

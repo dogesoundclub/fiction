@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7396
+Description: Subject 7396 is a human female, with an unusual appearance. Her face is adorned with orange stripes, which seemingly move and shift in a pattern all their own. Her red lips are almost always curled in a playful smirk. Her blonde hair is usually covered with an ushanka, and she wears a medical mask over her mouth. Subject 7396 likes to wear a gold chain around her neck, which glitters in the light.

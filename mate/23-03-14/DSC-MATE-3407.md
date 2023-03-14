@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3407
+Description: DSC-MATE-3407 is a human female with unique features including purple lips and VR jade LED eyes. She possesses a witch short hairstyle and is often seen wearing a jade earring and holding a cigarette.

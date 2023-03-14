@@ -1,0 +1,2 @@
+ID # : DSC-MATE-768
+Description: DSC-MATE-768 is a humanoid robot designed to resemble a police officer. Standing at 1.9 meters tall, it has a retro cap on its head and a medical mask covering its mouth. Its eyes are composed of Jade LED and function as a visual interface. DSC-MATE-768 displays a strong sense of independence and may be reluctant to ask for help, even when it is required. This trait has led to humorous situations, such as attempting to move heavy furniture by itself and refusing to use a map when lost.

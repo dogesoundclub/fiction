@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7003
+Description: DSC-MATE-7003 is a human female of average height and weight, with orange stripes on her face and purple lips. DSC-MATE-7003 wears normal glasses and has a rainbow festival hairstyle. On its forehead are two color bands, and it wears gold earrings and a choker as its accessories. DSC-MATE-7003’s most distinguishable accessory is a cigarette.

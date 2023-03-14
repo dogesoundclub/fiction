@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6673
+Description: Subject 6673 is a human female, believed to be in her late twenties. The individual is a high-ranking member of a prominent Mafia organization, and has been linked to several cases of violent crime. Subject 6673's physical appearance is striking, with brightly colored VR Rainbow LED eyes and a head of green hair styled in an Edge Curl. The subject is frequently seen wearing a green cross earring.

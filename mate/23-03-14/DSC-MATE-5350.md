@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5350
+Description: DSC-MATE-5350 is a male human of average height and build. DSC-MATE-5350 has several unique physical features including Ski Goggle eyes, a Purple Cap with a Headset, and a Gold Earring on each ear. DSC-MATE-5350 is often seen wearing a Silver Chain around his neck. DSC-MATE-5350's most pronounced feature is his infectious Smile that seems to put those around him at ease.

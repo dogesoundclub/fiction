@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7878
+Description: The subject, coded as 7878, is a male rabbit species with distinctive features. The subject has red clown eyes and a  jade earring on either ear. A silver chain around its neck and a red victory band on its forehead are notable accessories. 

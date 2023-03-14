@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4127
+Description: DSC-MATE-4127 is a male human, standing at 5'9" and weighing approximately 158 lbs. Its face is noticeably spotted, with a frightened mouth, and normal eyesight that requires the use of glasses. DSC-MATE-4127 displays a distinct love for adventure and risk-taking behavior, which often lead to humorous anecdotes.

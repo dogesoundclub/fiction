@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3444
+Description: Subject 3444 is a male tiger of approximately seven feet in height when standing upright. Its eyes are replaced with VR Jade LED lenses that offer the ability to enhance its visual acuity significantly. It possesses a police cap on its head and a jade earring on each ear.

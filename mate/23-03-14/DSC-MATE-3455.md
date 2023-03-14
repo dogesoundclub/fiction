@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3455
+Description: Subject 3455 is a female human with a comically infectious smile that can disarm even the most hardened of individuals. She is marked with various spots on her face, reminiscent of a wild animal, but her eyes are what set her apart: they are a bright orange color with eyebrow-shaped markings above them. 

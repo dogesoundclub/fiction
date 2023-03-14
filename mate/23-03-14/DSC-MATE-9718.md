@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9718
+Description: Subject 9718, a human male in his late thirties, stands at a height of 6'1" and weighs 200 lbs. The subject's most striking features include a purple cap with a headset, red clown eyes, and orange stripes, which appear to be painted on their face. Subject 9718 also has a silver chain, green cross earring, and a pair of goggles resting on their forehead.

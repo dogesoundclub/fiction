@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9111
+Description: 9111 is a Caucasian male approximately 45 years of age. He wears normal glasses and a police cap, which serves as a nod to his former life as a police officer. However, his currently occupation as a Mafia boss is evident by the gold chain and gold earring he wears. His appearance belies the danger he poses to both mundane and supernatural society.

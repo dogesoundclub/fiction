@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4201
+Description: Subject 4201 is a male human with several distinct physical features. The individual has spots on the surface of their facial skin and a naturally frightened mouth. Their eyes are notable due to the appearance of ski goggles, and ears pierced with a green cross earring. Subject 4201 is often noted for wearing a gold chain and carrying a candy stick. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7370
+Description: Subject 7370 is a female human with prominent spots on their face. They have blonde hair that they often wear in an Ushanka hat, and they have an unusual green cross earring on one ear. They also wear a gold chain and can often be seen smoking a cigarette.

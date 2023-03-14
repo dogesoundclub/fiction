@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5692
+Description: DSC-MATE-5692 is a humanoid female of the Homo sapien species. DSC-MATE-5692 is a news anchor at a local television station and is also suspected to be a member of an anomalous organization, although this has not been confirmed.

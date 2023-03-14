@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4099
+Description: DSC-MATE-4099 is a female human with orange eyebrows and not arranged green hair. She commonly wears a choker around her neck and has a gold earring on each ear. The most notable feature of DSC-MATE-4099 is her goggle on her forehead, and her constant use of a cigarette. DSC-MATE-4099 always displays a wide smile on her face.

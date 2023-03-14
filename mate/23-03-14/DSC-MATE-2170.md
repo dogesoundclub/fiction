@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2170
+Description: Item 2170 is a male humanoid that seems to be dressed in theatrical clothing similar to that of a theater manager's outfit. His skin has a pink hue and his eyes resemble those of a clown, emitting a red glow. Item 2170 also wears a gold earring on one ear and a red scarf around his neck. However, the most notable feature of Item 2170's appearance is the LED gas mask he wears over his face, which lights up various colors.

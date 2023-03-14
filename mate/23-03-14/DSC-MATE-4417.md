@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4417
+Description: DSC-MATE-4417, also known as "Smiley," is a human male with orange stripes on his cheeks and pink parted hair. The most notable feature of DSC-MATE-4417 is its eyes, which are VR Rainbow LED. DSC-MATE-4417 is always seen wearing a medical mask and a gold chain around its neck.

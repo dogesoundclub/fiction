@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1431
+Description: DSC-MATE-1431 appears to be a female humanoid with a pink rabbit head, red cross earring and a gold chain. In addition to these, DSC-MATE-1431 also wears an LED gas mask that emits different colors of light.

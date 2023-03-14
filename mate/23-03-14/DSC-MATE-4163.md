@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4163
+Description: Subject 4163 is a human male in their mid-twenties, standing at approximately 6 feet tall. Their most noticeable feature is a small spot on their mouth, which gives the appearance of a permanent smudge. They often appear nervous or fearful, and their mouth takes on a frightened expression. Subject 4163 possesses bright blue clown eyes, giving an unsettling appearance to their already anxious demeanor. 

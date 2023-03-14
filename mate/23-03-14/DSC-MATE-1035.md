@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1035
+Description: DSC-MATE-1035 is a female human with orange stripes down the sides of her face and purple lips. Her eyes are replaced with VR Rainbow LED screens that show various shapes and colors. Her head is not arranged in a traditional human fashion and instead resembles a plant with leaves sprouting from her head. DSC-MATE-1035 is often seen wearing a choker and LED gas mask while at work.

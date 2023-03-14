@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7821
+Description: DSC-MATE-7821 is a humanoid female of the Homo sapiens species, appearing to be in her mid-to-late thirties. DSC-MATE-7821 is identified by her distinctive red lips, normal eyeglasses, and pigtail hairstyle.

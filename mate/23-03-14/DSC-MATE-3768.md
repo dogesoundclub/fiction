@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3768
+Description: DSC-MATE-3768 is a male Human identified as a Real Estate Agent. DSC-MATE-3768's most distinctive features are various spots on their face, a set of nerd glasses, and parted pink hair. The subject's forehead features two color band markings with a goggle on their forehead. DSC-MATE-3768 also wears a gold earring, silver chain, and an LED gas mask as accessories.

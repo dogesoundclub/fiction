@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7814
+Description: DSC-MATE-7814 is a humanoid male of human species who identifies as a programmer. DSC-MATE-7814 is notable for their unique appearance, often wearing a blue bandana on their head, nerd glasses, a silver chain, and an LED gas mask as accessories. Despite their unusual dress, DSC-MATE-7814 appears to be a normal human in terms of physical abilities with no anomalous traits.

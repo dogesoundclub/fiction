@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3534
+Description: The Boss is a human male with distinctive orange stripes on his face. He wears a blue bandana on his head and a gold earring in his ear. His eyes are equipped with VR rainbow LED technology, allowing him to access and manipulate digital information with ease. He is often seen carrying a candy stick, which he uses as a prop during negotiations.

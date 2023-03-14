@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3661
+Description: DSC-MATE-3661 is a male rabbit of average height and weight, possessing the ability to speak fluent English. DSC-MATE-3661 is recognizable by their red beanie, normal glasses, and a two-color band across their forehead. Additionally, DSC-MATE-3661 wears an accessory in the form of a gold chain, as well as carrying a whistle at all times.

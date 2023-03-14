@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7361
+Description: DSC-MATE-7361 is a male rabbit approximately 1.1 meters in height and weighing around 23 kilograms. DSC-MATE-7361 appears to be just like any ordinary rabbit, but with several distinguishing features that make it anomalous. DSC-MATE-7361 wears a black bucket hat over its head, covering its eye structure, and has one gold earring on its left ear. DSC-MATE-7361 also wears a silver chain around its neck and carries a whistle in its pocket.

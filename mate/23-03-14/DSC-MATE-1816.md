@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1816
+Description: Subject 1816 is a human male of average height and weight, with a frightened mouth and alarming red clown eyes. The subject is always seen wearing a purple cap with a headset, a red victory band across the forehead, a jade earring and a silver chain. The subject also carries with them at all times a candy stick.

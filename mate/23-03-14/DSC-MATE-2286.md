@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2286
+Description: Subject appears to be a male monkey, standing approximately 3 feet tall. Their most noticeable feature is their bright red clown eyes, which are in constant motion and appear to emit a soft glow. The Subject also wears a gold earring in their left ear and a gold chain around their neck.

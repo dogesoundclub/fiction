@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5614
+Description: Officer 5614 is a female human who possesses a unique appearance. She has striking spots on her face, which she accentuates with red lipstick. She typically wears a headset with LED lighting and a gold chain. Additionally, she always dons a LED gas mask as a means of further enhancing her already unique appearance.

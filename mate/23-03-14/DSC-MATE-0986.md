@@ -1,0 +1,2 @@
+ID # : DSC-MATE-986
+Description: Subject 986 is a female human, with the notable feature of having spots on her face and a pair of bright orange eyebrows. She commonly wears a red cross earring on her earlobe and choker around her neck. The subject has green hair that is often seen gathered under a purple cap.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4039
+Description: DSC-MATE-4039 is a human male with a friendly demeanor and a constant smile on his face. The subject's eyes are replaced with ski goggles, which remain in place at all times. DSC-MATE-4039 wears a green cross earring on his left ear and a medical mask over his mouth, which is not removable.

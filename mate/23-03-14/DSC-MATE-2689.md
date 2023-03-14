@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2689
+Description: DSC-MATE-2689 is a human female appearing to be in their early twenties, identified as a fast food worker. They display an unusual appearance with orange stripes on their face and a prominent red lip, as well as normal glasses that do not appear to enhance or correct their vision. DSC-MATE-2689's head resembles that of a schoolgirl from the early 2000s, with green cross earrings and a choker as additional accessories. They also wear a normal gas mask, which they claim is necessary for personal comfort and hygiene.

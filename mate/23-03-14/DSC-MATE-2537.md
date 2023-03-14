@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2537
+Description: Subject appears to be a female of the human species, approximately 30 years of age. She stands at a height of 5'7" and has a slender build. The subject's identifying features consist of orange stripes on her cheeks and a vibrant red lip color. Her eyes are obscured by a pair of normal glasses, and her head is usually covered by a hoodie. The subject is often seen wearing a medical mask, causing difficulty in identifying any further facial features.

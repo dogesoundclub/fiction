@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1012
+Physical Description: Subject 1012 is a robot with a green cyclops eye as its main visual sensory node. It wears nerd glasses as an addition to its programming, and has a small goggle attached to its forehead. A normal gas mask is also present, designed to protect its internal systems from harm.

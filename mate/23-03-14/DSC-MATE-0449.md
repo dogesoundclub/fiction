@@ -1,0 +1,2 @@
+ID # : DSC-MATE-449
+Description: DSC-MATE-449, commonly known by its given name [REDACTED], is a male human of average height and build. The individual's most distinctive feature is a series of spots prominently displayed on their face. DSC-MATE-449 is often observed wearing a short peak cap atop jade earrings and normal glasses. The individual has also been noted wearing a two-color band on their forehead and a medical mask covering their mouth in some instances. DSC-MATE-449 typically adorns a gold chain accessory as well.

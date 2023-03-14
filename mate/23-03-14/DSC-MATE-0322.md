@@ -1,0 +1,2 @@
+ID # : DSC-MATE-322
+Description: DSC-MATE-322 is a male rabbit approximately 40 centimeters in length, with a coat of dark grey fur. DSC-MATE-322 exhibits a fearful expression at all times, with their mouth appearing to be permanently open in fear. The eyes of DSC-MATE-322 resemble those of ski goggles, and their head is adorned with a police cap. A single jade earring is visible in DSC-MATE-322's right ear, and a red scarf is often seen around their neck.

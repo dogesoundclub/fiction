@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2163
+Description: DSC-MATE-2163 is a male rabbit of unknown origin, standing at approximately 1.5 meters tall. DSC-MATE-2163's most prominent features are its blue clown eyes that seem to have a disconcertingly penetrating gaze. Its frightened mouth and its red victory band on its forehead add to its ominous appearance.

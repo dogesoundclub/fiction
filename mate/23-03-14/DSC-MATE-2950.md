@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2950
+Description: DSC-MATE-2950 appears to be a robotic train driver, with a humanoid body and a singular green cyclops eye. The eye appears to be a high-tech surveillance camera capable of capturing images and video. DSC-MATE-2950's eyes are equipped with VR jade LED technology allowing the user to switch between multiple vision modes for enhanced awareness. DSC-MATE-2950 also sports a red cross earring, a red scarf, and an LED gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5500
+Description: DSC-MATE-5500 is a sentient robot identified as a firefighter. It has a tall and sturdy build with a purple cap and ski goggles for eyes. The head features a headset, and the forehead includes an additional goggle.

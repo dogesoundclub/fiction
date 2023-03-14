@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7801
+Description: 7801 is a human female of average height and build. Their face is marked with orange stripes, giving them a distinct and recognizable appearance. It is worth noting that their eyes are composed of VR Rainbow LED technology, which is extremely rare, if not unique, for a human.

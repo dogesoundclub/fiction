@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9780
+Description: Item 9780 is a male human banker in his mid-thirties. He is six feet two inches tall and weighs approximately 190 pounds. Item 9780 is known for his distinctive facial features and style. He has red clown eyes and a goggle on his forehead. He often wears a gold chain around his neck.

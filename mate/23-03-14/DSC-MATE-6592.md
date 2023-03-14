@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6592
+Description: DSC-MATE-6592 is a humanoid rabbit, approximately 1.5 meters in height. It usually wears a hoodie, normal glasses, and a red victory band around its forehead. Its most distinctive feature is its ability to gift-giving, which it views as a crucial aspect of its daily life.

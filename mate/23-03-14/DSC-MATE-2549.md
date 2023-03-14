@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2549
+Description: Subject 2549 is a human male in his thirties with orange stripes on his face and a frightened mouth. He has red clown eyes and wears a red victory band on his forehead. He has gold earrings and wears a red scarf and usually seen smoking a cigarette. 

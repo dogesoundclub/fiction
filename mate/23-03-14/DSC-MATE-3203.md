@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3203
+Description: DSC-MATE-3203 is a human male of average height and build. It exhibits a unique set of facial and accessory features, including a mouth spot and frightened mouth, ski goggle eyes, a bucket hat, a gold earring, a red scarf, and a cigarette. These features appear permanent and cannot be removed or replaced. Despite its seemingly mundane appearance, DSC-MATE-3203 exhibits the unusual trait of forgetting its surroundings and tasks when lost in thought or working on a project.

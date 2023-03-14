@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4012
+Description: DSC-MATE-4012 appears to be a human female in her mid-thirties with orange stripes on her cheeks, purple lips, red clown eyes, and jade earrings. DSC-MATE-4012 also possesses pigtail hairstyles that hang just above the shoulders. DSC-MATE-4012's face features are permanent and cannot be removed or altered by normal means.

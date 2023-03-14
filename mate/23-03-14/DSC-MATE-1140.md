@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1140
+Description: Item 1140 appears to be a male monkey with blue clown eyes, a frightened mouth, and a police cap on its head. A goggle is observed on the forehead of Item 1140, and it wears a gold chain and a normal gas mask as accessories.

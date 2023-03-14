@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2831
+Description: DSC-MATE-2831 is a human female identified as a farmer. Their facial features include orange stripes, red lips, and orange eyebrows, with a distinguishing orange side of the head. The forehead contains a two-color band and a goggle on the forehead. DSC-MATE-2831 also wears a jade earring and a choker, along with a normal gas mask. Such features do not seem to impede their physical abilities.

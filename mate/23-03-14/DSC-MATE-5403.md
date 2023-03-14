@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5403
+Description: Officer 5403 is a sentient robot designed by the Foundation to carry out law enforcement activities on behalf of the citizens of the city. The robot stands approximately 6-feet tall and often wears a golden chain and a doge hat, giving the false impression of being a mere gimmick.

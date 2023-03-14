@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2222
+Description: Subject 2222 is a female human of average height and weight. They possess distinct orange stripes across their face and red lips. Their eyes are often obscured by normal glasses, and their head resembles that of a 00s school girl. They also wear a green cross earring and a gold chain as accessories. The subject is often seen smoking a cigarette.

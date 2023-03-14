@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7957
+Description: DSC-MATE-7957 is a human female, standing at approximately 5'6" in height and weighing 132 lbs. The subject's face is marked with spots, and she is often observed wearing a purple cap with green hair underneath. Her VR Rainbow LED eyes are a distinctive physical feature. She wears a choker around her neck and an earring in the shape of a red cross.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2263
+Description: Subject 2263 is an anomalous human female with facial features that include bright orange stripes and blue clown eyes. She also has a unique two-color band on her forehead and is often seen wearing a choker and gold earrings. Additionally, she wears a medical mask to cover her mouth, which seems to be due to personal preference.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8030
+Description: DSC-MATE-8030 is a robotic entity with a green cyclops eye and VR rainbow LED features for its vision functions. Its head is adorned with a purple cap and a headset, while its ears have gold earrings. DSC-MATE-8030 is equipped with a silver chain and a whistle for communicative purposes.

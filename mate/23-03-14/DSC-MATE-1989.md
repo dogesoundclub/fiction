@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1989
+Description: 1989 is a male Monkey of unidentified origin, measuring approximately 1.5 meters in height. Its most distinguishing features include a bucket hat, gold chain around its neck, and a cigarette constantly held between its teeth. Although its eye color is unknown, 1989 has been observed to have a piercing gaze.

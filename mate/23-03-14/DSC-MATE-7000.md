@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7000
+Description: DSC-MATE-7000 is a human male identified as a fashion designer. However, the subject's highly eccentric appearance and behavior sets them apart from the norm. DSC-MATE-7000's face is covered in distinctive orange stripes with red clown eyes that denote an unknown manifestation of anomalous properties.

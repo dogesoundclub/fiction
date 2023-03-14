@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6593
+Description: DSC-MATE-6593 is a male rabbit with a frightened mouth, wearing a retro cap with a 2 color band and nerd glasses. DSC-MATE-6593 wears a jade earring on its left ear and a red scarf around its neck, along with an LED gas mask on its face. DSC-MATE-6593's appearance makes it easily identifiable from other rabbits.

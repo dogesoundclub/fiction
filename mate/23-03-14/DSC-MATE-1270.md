@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1270
+Description: DSC-MATE-1270 is a humanoid entity with the appearance of a female beautician. DSC-MATE-1270 exhibits unique physical features, such as purple lips, green hair in a purple cap, and VR jade LED eyes. DSC-MATE-1270 is known to adorn herself with a silver chain and wears a medical mask over her mouth.

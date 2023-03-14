@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2476
+Description: 2476 is an advanced robot that takes the form of a Fast Food Worker. It has a green Cyclops eye that appears to be a sophisticated scanning mechanism and a mouth that is often observed in a state of constant fear. It stands approximately 6 feet tall with a short peak cap on its head, along with a pair of normal glasses for vision correction.

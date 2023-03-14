@@ -1,0 +1,2 @@
+ID # : DSC-MATE-524
+Description: DSC-MATE-524 is a humanoid robot designed for traffic control and enforcement purposes. Its physical features include a tall and broad metal body, with a single cyclops green eye at the center of its head. DSC-MATE-524 stands at approximately 7ft tall and weighs approximately 500lbs. The robot's right ear is adorned with a red cross earring, which serves no functional purpose.

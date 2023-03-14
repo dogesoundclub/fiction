@@ -1,0 +1,2 @@
+ID # : DSC-MATE-897
+Description: Item 897 is a male human of average height and build, appearing to be in his mid-30s. The subject’s most notable feature is his unrelenting grin, which can be unsettling to some observers. Additionally, Item 897 has blue clown-like eyes, further increasing the eerie quality of his appearance. His head is adorned with a police cap, and he wears a red scarf around his neck. Item 897 is a licensed veterinarian by profession, but is known to have unconventional methods and practices in his field.

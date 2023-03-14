@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3268
+Description: DSC-MATE-3268 appears to be a male robot, with normal glasses for eyes, wearing a hooded sweatshirt, a medical mask over its mouth, and a red scarf as an accessory. DSC-MATE-3268 has been designated as a Veterinarian and acts as such whenever possible. DSC-MATE-3268 displays an uncanny ability to diagnose and treat a wide range of illnesses and conditions in animals and humans.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8425
+Description: DSC-MATE-8425 is a female human news anchor, with orange eyebrows, 00s school girl head, and green cross earrings. The subject wears a medical mask and a two-color band on her forehead, as well as a gold chain.

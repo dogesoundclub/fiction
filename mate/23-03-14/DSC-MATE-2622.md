@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2622
+Description: Item #2622 is a female human politician with a distinctive appearance. The subject has spots on her face and a striking red lip, which accentuates the color of her eyes. The eyes themselves are VR Jade LED and can have a hypnotic effect on those who stare into them for too long. The subject's head is typically covered with a bucket hat.

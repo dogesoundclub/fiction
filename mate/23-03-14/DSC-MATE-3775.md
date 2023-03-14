@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3775
+Description: The Reckless Driver, designated as Item 3775, is a female human with distinctive spots across her face and bold red lips. She wears normal glasses and sports a jade earring on each ear. Her style is completed with a gold chain around her neck and a cigarette between her fingers.

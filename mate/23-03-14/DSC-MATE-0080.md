@@ -1,0 +1,2 @@
+ID # : DSC-MATE-80
+Description: 80 is a male monkey of indeterminate breed, standing approximately two feet tall. Its head is covered in green hair that is splayed out in every direction, with a pair of goggles perched on its forehead. 80's eyes are covered in VR Rainbow LED lenses, giving them a distinct and eye-catching appearance. 

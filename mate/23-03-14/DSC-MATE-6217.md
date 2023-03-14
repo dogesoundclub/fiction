@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6217
+Description: DSC-MATE-6217 is a female human identified as a Doctor. DSC-MATE-6217's most notable features are her red lips and orange eyebrows. Additionally, DSC-MATE-6217's head appears to be that of a pink rabbit. Observations have shown no unusual behavior outside of the apparent physical anomalies. The Doctor may appear relatively normal if not for the previously mentioned features.

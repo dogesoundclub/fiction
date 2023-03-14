@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2037
+Description: 2037 appears to be a robotic humanoid, standing at approximately 6 feet tall. 2037’s body is primarily made of sleek black metal with jade LED eyes, and a doge hat atop his head. 2037 sports a jade earring and silver chain necklace, along with a standard gas mask adorning his face.

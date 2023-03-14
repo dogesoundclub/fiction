@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5895
+Description: DSC-MATE-5895 is a male human with spotted facial features and a frightened mouth. The subject wears a green cross earring on his left ear and a silver chain around his neck. DSC-MATE-5895 is frequently seen with a candy stick in his mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3805
+Description: DSC-MATE-3805 is a male rabbit species standing at 1.2 meters tall. They are commonly seen wearing a purple cap with vibrant green hair protruding from underneath. Their frightened mouth, combined with their rainbow LED vision, makes DSC-MATE-3805 appear anxious and paranoid. DSC-MATE-3805 is known to have a goggle and jade earring as forehead and ear features respectively. DSC-MATE-3805 also wears a gold chain as an accessory.

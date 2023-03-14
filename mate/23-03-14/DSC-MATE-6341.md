@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6341
+Description: 6341 is a male monkey of the genus Macaca, measuring approximately 50 cm in height and weighing 10 kilograms. Its most notable features are its ski goggle eyes and black hair on its head. The subject also wears a gold earring in its left ear and a gold chain around its neck.

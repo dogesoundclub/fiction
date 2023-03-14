@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3729
+Description: DSC-MATE-3729 is a male human of average height and weight. It has a distinguished appearance due to its unique mouth spot and frightened mouth features. DSC-MATE-3729 also wears nerd glasses, a mohawk hairstyle, and a 2 color band on its forehead.

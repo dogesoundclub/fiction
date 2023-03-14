@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5563
+Description: DSC-MATE-5563 appears to be a female human of undetermined age and ethnicity. She stands at 5'7" and weighs approximately 140 pounds. DSC-MATE-5563 has several distinct physical features, including spots on her face, orange eyebrows, and a side of her head that is also orange. DSC-MATE-5563 also wears a gold earring and a gold chain as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1940
+Description: Subject 1940 appears to be a male rabbit standing 15 inches tall on his hind legs, with a frightened expression and a police cap on his head. The entity's eyes are multi-colored VR Rainbow LED's that seem to always glow with an intense excitement. Subject 1940 is also adorned with a single Jade Earring in his left ear.

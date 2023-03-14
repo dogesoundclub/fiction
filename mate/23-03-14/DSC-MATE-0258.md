@@ -1,0 +1,2 @@
+ID # : DSC-MATE-258
+Description: Subject 258, also known as "Spots," is a human female with distinctive spots on her skin. The subject's eyes are replaced with VR Rainbow LED technology. Their head is always adorned with a bucket hat, and they have been observed to wear goggles on their forehead, a silver chain, and a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2515
+Description: Item #2515 is a male of the human species and is known to the criminal underworld as a mafia boss. They exhibit several unusual physical features, including spots on their face and bright blue clown eyes. The subject's head is adorned with a colorful mohawk, and their ears pierced with a gold earring.

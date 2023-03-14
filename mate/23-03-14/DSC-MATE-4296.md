@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4296
+Description: DSC-MATE-4296 is a male rabbit of brown and white fur with frightened mouth features. Its eyes take the form of blue ski goggles, and it wears a police cap, a red scarf, and carries a candy stick as accessories.

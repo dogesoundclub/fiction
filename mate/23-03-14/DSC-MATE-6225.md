@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6225
+Description: Item 6225 appears to be a male rabbit of medium size, standing at approximately 2ft in height. It has bright, alert eyes, and its body is covered in fur with a light brown color. On the head, a bright red beanie is seen and 2 colored bands, which vary according to the emotional state of the subject, can be seen on the forehead. A pair of goggles on its forehead enhances its vision and provides protection from hazardous electrical discharges.

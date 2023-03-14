@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3023
+Description: Subject 3023 is a male tiger, approximately seven feet tall when standing on its hind legs. Its eyes are concealed behind horn-rimmed glasses, and its head is adorned with a Doge hat. The tiger sports a jade earring on one of its ears, and wears a gold chain around its neck at all times. Its most notable accessory is an LED gas mask that is fused onto its face, which creates a sense of instability and unease in any who see it.

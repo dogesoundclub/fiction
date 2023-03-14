@@ -1,0 +1,2 @@
+ID # : DSC-MATE-168
+Description: DSC-MATE-168 is a human male with a unique appearance, which includes a spot on their mouth, a constantly smiling face, and VR rainbow LED eyes. DSC-MATE-168's head is adorned with a peak spike, and they constantly wear a medical mask over their mouth. DSC-MATE-168 also wears a goggle on their forehead, as well as a Jade Earring and a gold chain as an accessory.

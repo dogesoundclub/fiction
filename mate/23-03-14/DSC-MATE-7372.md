@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7372
+Description: DSC-MATE-7372 appears to be a male human of average height and build, with blue clown eyes and a distinctive mouth spot. They often wear a police cap and a red scarf as accessories. DSC-MATE-7372 works as an electrician in the local area and has been described as friendly and approachable.

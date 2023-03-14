@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1517
+Description: DSC-MATE-1517 is a male tiger who poses as a delivery driver. DSC-MATE-1517 is easily recognizable due to the police cap on its head, jade earring on its right ear, and a red scarf around its neck. Its blue clown eyes and frightened mouth further set it apart from ordinary tigers. DSC-MATE-1517 has been observed carrying a candy stick while on duty.

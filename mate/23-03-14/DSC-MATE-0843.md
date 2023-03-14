@@ -1,0 +1,2 @@
+ID # : DSC-MATE-843
+Description: Subject 843 is a human male, standing at 6 feet tall with a lean, muscular build. His head is covered in thick, layered green hair, and he sports a pair of nerdy glasses that seem to magnify his glare. His left ear is adorned with a jade earring, while a silver chain hangs around his neck. Subject 843 is often seen wearing a medical mask over his mouth and chin, and has a peculiar dark spot on his mouth that serves as a unique identifying feature.

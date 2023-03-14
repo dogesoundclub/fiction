@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7981
+Description: DSC-MATE-7981 is a female-humanoid politician with multiple strange physical features. The subject possesses red clown eyes, and her skin is covered with a pattern of spots. DSC-MATE-7981 wears a red cross earring and a choker at all times, which appear to be some form of Talismanic objects. Additionally, DSC-MATE-7981 wears a gas mask on occasion, claiming that it helps her breathe easier under certain air conditions.

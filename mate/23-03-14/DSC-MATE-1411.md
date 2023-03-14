@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1411
+Description: Item 1411 appears to be a male real estate agent in his mid-30s. However, upon closer inspection, it becomes apparent that Item 1411 is actually a robot. Its head is a red alarm system, and its eyes are ski goggles. Its ears are adorned with a single gold earring, and it is often seen wearing a red scarf and smoking a cigarette.

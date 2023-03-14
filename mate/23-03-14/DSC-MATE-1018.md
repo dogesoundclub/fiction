@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1018
+Description: DSC-MATE-1018 is a male rabbit with an idealistic personality. The subject often displays a strong desire to make the world a better place, which leads to its participation in various social movements and causes. DSC-MATE-1018's purple cap and headset are tools used to communicate with fellow officers, while its gold chain is a source of pride.

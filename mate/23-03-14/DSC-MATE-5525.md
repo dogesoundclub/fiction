@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5525
+Description: Subject 5525 is a female human with a notable smile and unique features such as orange eyebrows, pigtail hairstyle, and a goggle on their forehead. She is often seen wearing a jade earring and a gold chain.

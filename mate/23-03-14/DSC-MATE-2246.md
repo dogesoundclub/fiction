@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2246
+Description: DSC-MATE-2246 appears to be a male humanoid rabbit, standing at approximately 1.5 meters tall. Its head is not arranged in the typical fashion of a rabbit, instead taking on an unnatural, leafy green hue. Its ears are adorned with a single jade earring in each, and it regularly sports a gold chain as an accessory.

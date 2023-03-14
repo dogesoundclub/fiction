@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2872
+Description: 2872 is a male monkey, approximately 5 feet in height. He has been observed to wear a red beanie and a pair of nerdy glasses, accessorized with a silver chain and a cigarette. He has an affinity for jade jewelry and refuses to remove a small earring in his left ear.

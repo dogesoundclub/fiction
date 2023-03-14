@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7647
+Description: DSC-MATE-7647 is a female human, approximately 26 years old, identified as a veterinarian. DSC-MATE-7647 has spots on her face and a permanent smile. DSC-MATE-7647's eyes are blue with clown-like makeup around them. DSC-MATE-7647 has a two-color band on her forehead and a goggle on her forehead. DSC-MATE-7647 wears a gold earring and is often seen carrying a cigarette.

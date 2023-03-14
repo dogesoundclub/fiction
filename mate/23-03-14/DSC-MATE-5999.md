@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5999
+Description: DSC-MATE-5999 is a male Bengal tiger, approximately 2 meters in height and weighing approximately 300 kg. Its face features a constant state of fear, accompanied by a pair of horned rim glasses. DSC-MATE-5999 often wears a blue bandana wrapped around its head and a goggle on its forehead. It has a red cross earring on its left ear and is often seen wearing a red scarf around its neck.

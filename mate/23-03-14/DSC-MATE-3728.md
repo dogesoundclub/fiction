@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3728
+Description: DSC-MATE-3728 appears to be a human female, approximately 32 years old with orange eyebrow eyes and a bucket hat on her head. DSC-MATE-3728 has a pair of goggles attached to her forehead and a red cross earring on each ear. DSC-MATE-3728 is often seen wearing a silver chain and smoking a cigarette.

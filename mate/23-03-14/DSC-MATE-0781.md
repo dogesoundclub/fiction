@@ -1,0 +1,2 @@
+ID # : DSC-MATE-781
+Description: DSC-MATE-781 is a male tiger with unique facial and accessory features. Its mouth is consistently in a frightened expression, and it wears a "Doge" style hat. Its eyes resemble ski goggles commonly worn by winter sports enthusiasts. DSC-MATE-781 also wears a jade earring in one ear, a gold chain around its neck, and is frequently seen smoking a cigarette.

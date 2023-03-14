@@ -1,0 +1,2 @@
+ID # : DSC-MATE-291
+Description: DSC-MATE-291 is a robotic politician of undetermined origin. DSC-MATE-291 stands at a height of approximately 1.8 meters and has a humanoid body. The appearance of DSC-MATE-291 is unusual, with its head topped with a Doge hat, ski goggles adorned for eyes, and a medical mask serving as a mouth. Additionally, DSC-MATE-291 sports a Gold chain and a Red Cross Earring.

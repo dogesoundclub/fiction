@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2304
+Description: Subject 2304, codename "The Lawyer", is a male human with distinctive orange stripes on his face. His head is encased in multiple layers of green material, and he wears nerd glasses over his eyes. A jade earring adorns one of his ears, while a medical mask conceals his mouth. A gold chain is also consistently worn around his neck.

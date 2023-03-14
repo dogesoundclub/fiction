@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7897
+Description: DSC-MATE-7897 is a male human with a unique set of facial features. DSC-MATE-7897 possesses a "mouth spot" on his face, which resembles a small patch of discolored skin under his left eye. Additionally, his "frightened mouth" facial expression can manifest without any obvious trigger or stimulus. DSC-MATE-7897's eyes appear to be made of a ski goggle-like material, which makes them highly reflective and difficult to read.

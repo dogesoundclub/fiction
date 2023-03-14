@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6132
+Description: 6132 is a human female with striking orange striped facial features and purple lips. Her eyes are red clown eyes, and she is often seen wearing a bucket hat with goggles resting on her forehead. She also wears a choker and an LED gas mask. This appearance has been observed to cause a strong reaction in individuals who come into contact with 6132, often leading to feelings of unease or excitement.

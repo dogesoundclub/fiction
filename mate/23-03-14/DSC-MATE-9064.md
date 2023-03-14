@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9064
+Description: DSC-MATE-9064 is a female human with unique features that distinguish her from a normal human being. DSC-MATE-9064 possesses a purple lip and orange eyebrows, along with a two-color band on her forehead and a pair of goggles on her forehead. DSC-MATE-9064 has red cross earrings and wears a choker as an accessory. DSC-MATE-9064 covers her mouth with a medical mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6701
+Description: DSC-MATE-6701 is a sapient rabbit with a male gender identity. Its head is adorned with a Doge hat and a silver chain accessory. It has been observed to wear normal glasses and a two-color band on its forehead.

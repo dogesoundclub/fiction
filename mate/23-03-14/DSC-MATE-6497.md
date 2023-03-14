@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6497
+Description: Subject 6497 appears to be a standard human male of Asian descent, approximately 26 years of age. The subject's most notable physical features include a black spot on the upper right corner of the mouth, ski goggle eyes, and a purple cap with a headset. A green cross earring is present in the left ear.

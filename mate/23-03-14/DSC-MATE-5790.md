@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5790
+Description: Item 5790, also referred to as "The Lawyer," is a male humanoid of the Homo sapiens species. Item 5790 is 6'1" in height and weighs 178 lbs. Item 5790's most notable features are its Mouth Spot and Clown Mouth, which are located on the left and right side of its mouth, respectively.

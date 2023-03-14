@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3214
+Description: DSC-MATE-3214 is a fashion designer who goes by the name “Elyse”. Her appearance is quite striking, with orange striped patterns across her face and a smile that never seems to fade. Her blue clown eyes stand out against her blonde hair, which grows in the form of wings on either side of her head. Her gold hoop earring serves as her only accessory, while she carries a cigarette at all times.

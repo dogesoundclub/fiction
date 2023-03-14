@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3186
+Description: DSC-MATE-3186 is a female human with distinct orange stripes on their face and purple lips. Their head is green with an edge curl and they wear normal glasses. DSC-MATE-3186 also has gold earrings and a choker as accessories. DSC-MATE-3186's most significant trait is their natural talent for leadership, which leads to them taking charge of situations regularly.

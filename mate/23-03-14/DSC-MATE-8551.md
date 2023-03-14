@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8551
+Description: DSC-MATE-8551 is a human female with spotted skin, metal blue hair and a red cross earring which she often wears on her left ear. DSC-MATE-8551 wears a medical mask to cover what is presumed to be severe cosmetic damage to her face, which is currently not known if it has any anomalous properties. DSC-MATE-8551 is known to wear a silver chain around her neck, although the reason for this is unknown. 

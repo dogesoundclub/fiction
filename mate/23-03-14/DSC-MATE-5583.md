@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5583
+Description: Identification #5583 is a male train driver of human species. The subject's face has distinct spots, and he constantly wears ski goggles for eyes, which seem to serve no apparent function. The subject's head is covered by a blue bandana, and a pair of goggles rests on his forehead. The subject is often seen wearing a silver chain and smoking a cigarette as accessories.

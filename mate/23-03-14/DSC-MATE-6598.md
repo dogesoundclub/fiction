@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6598
+Description: DSC-MATE-6598 is a human female with numerous spots on her face and an orange eyebrow. DSC-MATE-6598 wears a hoodie and a medical mask, with their smile being the only visible facial expression. DSC-MATE-6598 is a police officer with a passion for social connections and harmony. However, DSC-MATE-6598 also possesses a playful, goofy side that often manifests through humor and playful banter. The combination of their social and humorous nature has garnered DSC-MATE-6598 popularity within their community.

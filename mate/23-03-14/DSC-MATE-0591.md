@@ -1,0 +1,2 @@
+ID # : DSC-MATE-591
+Description: Subject 591 appears to be a male theater manager human, standing at approximately 6 feet in height. The subject's most noticeable feature is their mohawk, which is dyed a bright red. The subject wears a gold chain and an LED gas mask at all times, which they refuse to remove. The subject's eyes are clown-like, with a bright red coloration, and their mouth is frequently in a frightened expression.

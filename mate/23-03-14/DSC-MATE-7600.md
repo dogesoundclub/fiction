@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7600
+Description: DSC-MATE-7600 is a male Rabbit of indeterminate age who takes the form of a fast food worker. The subject measures approximately 1.3 meters in height and weighs 42 kilograms. DSC-MATE-7600 possesses red clown eyes and green hair in a purple cap. Their forehead features include two color bands and goggles. Subject wears a silver chain, which appears to have no anomalous properties.

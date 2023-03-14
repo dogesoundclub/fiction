@@ -1,0 +1,2 @@
+ID # : DSC-MATE-560
+Description: Subject 560 is a humanoid male, with unique and notable facial features. The subject has spots across their face, which appear to be a natural occurrence rather than a medical condition. Subject 560 also possesses a charming smile that has been known to disarm even the most resistant individuals.

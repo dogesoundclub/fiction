@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4370
+Description: Subject 4370 is a male human with striking facial features, including orange stripes on his face, red clown eyes, and a constant smile. His hair is green and is often seen donning a purple cap with goggles on his forehead. He has a silver chain around his neck and possesses a candy stick that he often carries around.

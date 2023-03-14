@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9225
+Description: DSC-MATE-9225 is a human female with orange stripes on their face and orange eyebrows, giving them a distinct appearance. DSC-MATE-9225 wears a retro cap and a jade earring as well as a silver chain. They also wear a standard gas mask as a precaution while on duty. DSC-MATE-9225 is a train driver by profession and showcases exceptional skills in their assigned role.

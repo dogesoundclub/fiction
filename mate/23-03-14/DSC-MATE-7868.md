@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7868
+Description: Subject 7868 is a male monkey, with a frightened mouth and wears nerdy glasses over his brown eyes. He sports a blue bandana around his head and a gold earring on his left ear. Subject 7868 appears to have an affinity for candy canes and is often seen with a candy stick in his possession. The subject seems to be rather intelligent, possessing the ability to speak in broken English.

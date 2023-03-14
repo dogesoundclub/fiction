@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7885
+Description: DSC-MATE-7885 is a male robot of an unidentified make and model. The robot is approximately 1.8 meters tall and weighs approximately 75 kilograms. It has a humanoid body structure with a green Cyclops eye taking up the majority of its facial area. DSC-MATE-7885 is often found adorned with a bucket hat on its head, a gold earring in its left ear, and a silver chain around its neck. The robot also wears an LED gas mask.

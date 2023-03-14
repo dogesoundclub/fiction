@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7213
+Description: Identification number 7213 is a male human with striking orange stripes on his face. He wears a retro cap, a jade earring, and a gold chain, and his eyes are unnaturally bright red. His appearance is unsettling to those who look upon him, leading to a sense of unease and fear.

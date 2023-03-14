@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6390
+Description: DSC-MATE-6390 is a human male with unnaturally red clown eyes and a green layered head. It also wears a jade earring and constantly smokes a cigarette. DSC-MATE-6390 has been identified as a police officer with a reputation for being incredibly efficient but sometimes over-bearing. He is very skilled at delegating tasks and taking charge of group events, sometimes to the detriment of others.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-204
+Description: Train Driver 204 is a male robot of unknown origin. He stands approximately 6 feet tall, and his body is comprised of metallic parts with a green eye in the center of his head, a mouth that appears to be constantly frightened, and ski goggles covering his eyes. A red beanie sits atop his head, and a medical mask is attached over his mouth.

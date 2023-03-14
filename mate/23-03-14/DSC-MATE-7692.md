@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7692
+Description: DSC-MATE-7692 is a female human appearing to be in her mid-twenties. DSC-MATE-7692 is identified by her purple lips and blue clown eyes, along with her signature choker. DSC-MATE-7692 is a farmer by trade with a tendency to act before thinking things through. This often results in humorous situations, including minor accidents and mishaps.

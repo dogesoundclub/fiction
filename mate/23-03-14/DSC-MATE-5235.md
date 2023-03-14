@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5235
+Description: DSC-MATE-5235 is a female human of unknown origin, approximately 27 years old. Subject’s skin is covered in small spots, and her red lips and unique orange eyebrows create a striking appearance. DSC-MATE-5235 exclusively wears a purple cap with a headset, and her face is covered by a medical mask. A black choker serves as the sole accessory worn by DSC-MATE-5235.

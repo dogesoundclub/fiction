@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2223
+Description: DSC-MATE-2223 is a male rabbit of undetermined age, measuring approximately 42 centimeters in height. DSC-MATE-2223 displays a frightened expression in its facial features, with a constant trembling of the mouth. DSC-MATE-2223 wears a blue bandana on its head and a jade earring on its left ear. DSC-MATE-2223 is often seen holding a cigarette in its mouth, despite the potential health risks involved with smoking.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8781
+Description: Item 8781 is a human female with a pink rabbit head, wearing a pair of normal glasses, a jade earring, and a goggle on her forehead. The subject has a smile on her face at all times.

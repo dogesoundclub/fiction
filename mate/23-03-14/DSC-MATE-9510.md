@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9510
+Description: Item 9510 is a male human identified as the head of a notorious mafia organization. He is recognized by his unusual appearance, commonly described as a "frightened mouth" grin and distinctive glowing red eyes that resemble those of a clown. His hair is a bright shade of pink, parted stylishly to one side, and decorated with a green cross earring in his left ear.

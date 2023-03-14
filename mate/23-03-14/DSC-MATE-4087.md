@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4087
+Description: DSC-MATE-4087 is a male Rabbit of approximately 1 meter in height. DSC-MATE-4087 stands out from the ordinary Rabbit by his unique Ski Goggle eyes over the red beanie. Its notable features include a golden chain hanging from his neck, candy stick in his mouth, and a friendly demeanor.

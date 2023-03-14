@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7766
+Description: DSC-MATE-7766 is a female human police officer with distinctive orange stripes on their face and purple lips. They are often seen wearing a Ushanka hat in blonde hair and a pair of goggles on their forehead. DSC-MATE-7766's eyes are red like clown's eyes. They also have a red cross earring in their ears and a choker around their neck. DSC-MATE-7766 has two-color bands on their forehead, which make them easily identifiable.

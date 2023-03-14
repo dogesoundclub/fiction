@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7063
+Description: Subject 7063 is a human male of average height and build. He has blue clown eyes that are unusual in appearance but do not appear to affect his vision. He typically wears a hoodie, accessorized with a gold chain and a normal gas mask. His most notable feature is his infectious smile.

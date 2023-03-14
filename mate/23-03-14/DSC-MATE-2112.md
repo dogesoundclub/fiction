@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2112
+Description: Item 2112, also known as "The Beautician," is a human male sporting distinctive spots on his face, typically concealed by normal glasses. The subject further accessorizes with a trusty silver chain and a hoodie.

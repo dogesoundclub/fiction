@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1489
+Description: 1489 is a female human with orange eyebrows and red cross earrings. She is often seen wearing a gold chain and a normal gas mask. Her attire is that of a reporter, and she is known to work at the local newspaper. 

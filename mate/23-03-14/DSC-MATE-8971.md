@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8971
+Description: DSC-MATE-8971 appears to be a primate specimen of indeterminate origin. At the time of containment, it was wearing a green hat pulled down over its hair, along with a pair of jade earrings.

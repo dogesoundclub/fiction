@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1268
+Description: DSC-MATE-1268 is a human male with green hair that is not arranged, wearing nerd glasses and a medical mask covering their mouth. DSC-MATE-1268 is noted to have spots on their face and a perpetual smile. Additionally, DSC-MATE-1268 has a red victory band tied around their forehead, which is believed to be an indication of past involvement in revolutionary activities. 

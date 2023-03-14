@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5622
+Description: DSC-MATE-5622 is a humanoid entity of the Homo sapiens species with orange stripes on its face and purple lips. Its head is metal blue in color and features a two-color band on its forehead. DSC-MATE-5622 is also known to wear a green cross earring and a choker. It always carries a gas mask around as an accessory, which serves as a means of protecting itself from environmental hazards.

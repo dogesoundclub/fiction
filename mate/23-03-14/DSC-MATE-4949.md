@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4949
+Description: Subject 4949 is a human female. The most notable facial features are the spots on their face and the always-present smile on their lips. The subject's eyes are often covered by a pair of normal glasses. The subject's hair is tied up in pig tails. A goggle is commonly seen resting on their forehead, and a green cross earring is noticeable in their ears.

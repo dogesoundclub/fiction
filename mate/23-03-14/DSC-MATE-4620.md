@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4620
+Description: DSC-MATE-4620 is a male monkey of the genus Macaca, standing at approximately 0.5 meters in height and weighing 9.5 kilograms. DSC-MATE-4620 has a long silver chain necklace and a candy stick that he is constantly seen holding. Despite his small size, DSC-MATE-4620 has shown to be extremely intelligent, cunning and has a very cooperative personality.

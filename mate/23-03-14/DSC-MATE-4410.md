@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4410
+Description: DSC-MATE-4410 is a male monkey species with a parted pink head and jade earring on each ear. It wears normal glasses and a gold chain around its neck, as well as carrying a candy stick at all times. DSC-MATE-4410 works as an electrician and possesses the ability to control and manipulate electrical currents.

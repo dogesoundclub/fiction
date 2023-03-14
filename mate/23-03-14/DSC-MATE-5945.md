@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5945
+Description: Subject 5945 is a fashion designer of the human species. She appears to be a female, with a pink rabbit head and blue clown eyes. Her ears are adorned with red cross earrings, and she can usually be seen with a cigarette in her hand. The nature of her anomalous mutation is currently unknown but is believed to have arisen from exposure to anomalous materials and substances during her employment as a fashion designer.

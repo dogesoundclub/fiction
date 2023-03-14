@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5468
+Description: Subject 5468 is a male human of average height and build. He is notable for his orange-striped face, red clown eyes, and a broad, infectious grin that he flashes frequently. A green cross earring hangs from his left ear, and he wears a retro cap on his head. His mouth is usually covered by a medical mask, and he is regularly seen wearing a red scarf to complete his unusual ensemble.

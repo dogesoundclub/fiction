@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4855
+Description: 4855 is a female human police officer, aged approximately 32 years. In appearance, she is striking, with an edgy retro cap on her head, and a bold pop of red lipstick. Her eyebrows are a vivid orange hue, and she sports a pair of jade earrings in her ears. A pair of goggles can often be seen parked atop her forehead. Her most notable accessory is a cigarette, which she smokes in stressful situations.

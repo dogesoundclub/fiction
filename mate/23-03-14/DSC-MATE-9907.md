@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9907
+Description: Subject 9907 is a male human of average height and build, with a distinctive spot on the left side of their mouth. The subject is often seen wearing a red beanie and a medical mask over their mouth, as well as a pair of ski goggles for unknown reasons. The subject also sports a prominent jade earring and a gold chain around their neck.

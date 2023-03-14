@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3499
+Description: DSC-MATE-3499 is a female human lawyer with spots on her face, orange eyebrows, and a two color band on her forehead. The subject wears a medical mask to cover their mouth and a red cross earring on their ear. DSC-MATE-3499 is often seen wearing a silver chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8489
+Description: DSC-MATE-8489 is a male human who identifies himself as a mafia boss. He possesses several unique physical features, including orange stripes on his face, ski goggle eyes, a peak spike head, and jade earrings on his ears. He also wears a red scarf as an accessory.

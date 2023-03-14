@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9061
+Description: DSC-MATE-9061 is a human female of average height and weight. Their face is covered in black spots with a bright purple lip. DSC-MATE-9061's eyes are a blue clown-like color with a small nose ring. DSC-MATE-9061’s head is adorned with a rainbow-colored headband, and they wear gold earrings and a silver chain necklace. DSC-MATE-9061 is the theater manager of ████████ Theatre in ██████████.

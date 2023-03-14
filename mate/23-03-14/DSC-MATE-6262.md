@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6262
+Description: DSC-MATE-6262 is a female human, with orange eyebrow-like markings around their eyes. Their head features an additional protrusion resembling a wing, while their ears have a red cross earring on them. They wear a normal gas mask as an accessory for personal reasons.

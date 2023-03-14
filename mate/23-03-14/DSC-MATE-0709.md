@@ -1,0 +1,2 @@
+ID # : DSC-MATE-709
+Description: DSC-MATE-709 is a humanoid robot designed to resemble a male police officer. Its eyes resemble ski goggles, its head adorned by a red beanie and its ears have a red cross earring. Its uniform consists of a red scarf and a whistle as an accessory. DSC-MATE-709's official designation is Officer G, and it has advanced AI capabilities, making it capable of performing a wide range of functions expected of a police officer in an urban environment.

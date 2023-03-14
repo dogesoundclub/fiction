@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2445
+Description: Subject 2445 is a male human with spots on his face and a perpetual smile. His eyes are replaced with VR Rainbow LED lenses that perpetually shift colors. He has a mohawk hairstyle and is consistently seen smoking a cigarette.

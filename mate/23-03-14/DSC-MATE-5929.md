@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5929
+Description: DSC-MATE-5929 appears as a typical rabbit, with a small and delicate frame, soft grey fur, and large, floppy ears. However, it is noted that DSC-MATE-5929 often wears a variety of accessories, including a bucket hat, and a pair of nerd glasses that sit atop its small nose. A red scarf wrapped around its neck completes its ensemble. DSC-MATE-5929 stands at 1.2m in height and displays a high level of agility and intelligence.

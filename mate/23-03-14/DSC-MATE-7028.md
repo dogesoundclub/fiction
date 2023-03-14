@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7028
+Description: DSC-MATE-7028 is a Human female with spots on her face, pigtail hairstyle, and red cross earrings on her ears. DSC-MATE-7028 is generally friendly and easy-going, with a great sense of humor that often makes others laugh. This behavior may lead to humorous situations, such as telling jokes and doing silly impressions.

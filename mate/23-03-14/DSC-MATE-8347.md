@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8347
+Description: DSC-MATE-8347 is a male tiger approximately 2 meters tall, with blue eyes resembling clown makeup. DSC-MATE-8347 is a fashion designer with a no-nonsense attitude, but also shows a playful side manifesting in comedic situations. The most notable physical attributes of DSC-MATE-8347 are the jade earring in its left ear and the goggles on its forehead. DSC-MATE-8347 seems to value tradition and has a storytelling aspect to its personality, which adds to its playful nature.

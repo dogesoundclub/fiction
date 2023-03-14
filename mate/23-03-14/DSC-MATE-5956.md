@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5956
+Description: Item 5956 is a female human of unknown age with orange stripes on her face, a short witch-like haircut, and jade LED eyes. She wears a medical mask as a mouth covering and a pair of goggles on her forehead. Item 5956 also sports a gold earring and a choker as accessories. Despite its clear human attributes, Item 5956 has anomalous mechanical properties that remain unexplained.

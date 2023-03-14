@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8750
+Description: DSC-MATE-8750 is a tiger male humanoid with red victory band around his forehead and a red cross earring on each ear. He wears a purple cap with a headset and horned rim glasses. The subject has a frightened mouth feature, which presents as a down-turned expression, and is often seen stoic.

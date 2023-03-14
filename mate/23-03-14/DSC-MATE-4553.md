@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4553
+Description: DSC-MATE-4553 is a human male in his late thirties, standing at approximately 1.8m in height. DSC-MATE-4553's most distinguishing feature is a peak spike protruding from the top of their skull, which grows at a rate of 0.2 cm per day. DSC-MATE-4553's hair is black and its texture is coarse and unmanageable. 

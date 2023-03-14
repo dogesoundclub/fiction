@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3853
+Description: DSC-MATE-3853 is a male rabbit, standing at approximately 45cm tall and weighing 2kg. It has a normal rabbit-like form, with the exception of its eyes and ears. Its eyes are entities of virtual reality (VR) jade LED, while it wears a jade earring on its right ear.

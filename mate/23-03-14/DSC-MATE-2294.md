@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2294
+Description: DSC-MATE-2294 is a female human politician with orange stripes on her face and an orange eyebrow. She has a smile on her face, wears a medical mask, and a green cross earring. She also sports a "00s school girl" hairstyle and a choker accessory around her neck.

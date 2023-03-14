@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3286
+Description: Object 3286, also known as "The Firefighter," is a human female of average height and weight. Object 3286's most notable feature is her orange stripes on her face, which extend from her forehead down to her cheeks. Object 3286 has red clown eyes which emit no abnormal effects. She also has goggles worn on her forehead, and a red cross earring on her right ear. Object 3286 also carries both a gold chain and a cigarette as accessories.

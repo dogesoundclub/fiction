@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7005
+Description: Subject 7005, a male human with orange stripes on his face, possesses unusual cybernetic enhancements in the form of VR Jade LED eyes and a Peak Spike head. Subject 7005 is often seen wearing a gold chain accessory around their neck.

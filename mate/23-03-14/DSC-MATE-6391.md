@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6391
+Description: Subject 6391 is a female human with distinctive spots on their face. They often wear a medical mask due to their profession as a firefighter. Their forehead features a two-color band, and they wear a choker as an accessory.

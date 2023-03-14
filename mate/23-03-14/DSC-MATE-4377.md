@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4377
+Description: 4377 is a human male with unremarkable physical characteristics except for the presence of orange stripes on his face, a two-color band on his forehead, and a gold earring on each ear. They also wear a silver chain as an accessory. Subject 4377 is employed as a mechanic, but they exhibit a compulsion to organize and arrange items in their environment in a meticulous manner. 

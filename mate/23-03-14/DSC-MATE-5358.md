@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5358
+Description: DSC-MATE-5358 is a male human with a unique appearance consisting of a distinct spot on their mouth. They possess a gentle and nurturing personality that extends beyond their interactions with other humans. DSC-MATE-5358 often anthropomorphizes their personal possessions, forming deep bonds with inanimate objects such as their car, plants, and even household appliances.

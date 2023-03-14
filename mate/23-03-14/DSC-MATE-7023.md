@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7023
+Description: Item 7023, also known as "The Striped Beautician," is a human female with distinctive orange stripes on her face and purple lips. The item's eyebrows are also a unique shade of orange, and her head is partially shaved on one side, dyed the same shade as her stripes. 

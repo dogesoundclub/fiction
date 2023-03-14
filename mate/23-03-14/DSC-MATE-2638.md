@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2638
+Description: DSC-MATE-2638 is a male rabbit of the species Oryctolagus cuniculus. DSC-MATE-2638 displays a frightened mouth as a permanent facial expression. DSC-MATE-2638's head is covered by a police cap, and a two-color band is visible on its forehead. DSC-MATE-2638 wears a silver chain around its neck, which appears to be of non-anomalous origin. DSC-MATE-2638 also regularly uses a cigarette as an accessory.

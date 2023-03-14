@@ -1,0 +1,2 @@
+ID # : DSC-MATE-183
+Description: DSC-MATE-183 is a male tiger with a green coat of fur. In addition to the normal tiger features, DSC-MATE-183 also has goggles on his forehead and a gold chain around his neck. DSC-MATE-183's empathetic and compassionate personality, while admirable, can sometimes lead to him taking on the problems of others as his own. This can be both beneficial and detrimental to DSC-MATE-183's mental state, as he may become overwhelmed with the weight of others' problems.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1673
+Description: Subject 1673 is a humanoid robot standing 6 feet tall. Its body and limbs are made of durable metal, plated in green and yellow. Its face is dominated by a single cyclops eye, which glows with a bright green hue. Its mouth, constantly in a frightened expression, gives the impression of a perpetual state of panic. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-726
+Description: Item 726 is a male human of average height and weight. The item is often seen wearing a short peak cap and medical mask covering its nose and mouth. Item's face sports distinct spots, and its frightened mouth adds to a scared look. The item usually wears nerd glasses that occasionally need to be adjusted. Notably, there is always a pair of goggles attached on top of the cap.

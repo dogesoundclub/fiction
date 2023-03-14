@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3274
+Description: DSC-MATE-3274 is a human male, with distinctive spots on his face. His eyes are replaced with VR Jade LED technology, and he is often seen wearing a red beanie and a Jade earring. He is frequently observed holding a cigarette.

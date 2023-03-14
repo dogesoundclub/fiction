@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9559
+Description: DSC-MATE-9559 is a male tiger of undetermined age and origin. They are approximately 1.9 meters in height and 3.7 meters in length. DSC-MATE-9559 is distinguishable from other male tigers by their uniquely colored blue clown eyes. DSC-MATE-9559 is always seen wearing a doge hat, a silver chain, and smoking a cigarette.

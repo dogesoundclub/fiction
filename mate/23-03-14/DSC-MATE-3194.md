@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3194
+Description: DSC-MATE-3194 is a male primate of the species Macaca mulatta, commonly known as the rhesus macaque. DSC-MATE-3194 displays a frightened mouth as its primary facial feature and wears a doge hat as its headgear. DSC-MATE-3194 also wears a silver chain necklace and a standard gas mask.

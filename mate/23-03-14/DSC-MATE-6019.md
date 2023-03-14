@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6019
+Description: DSC-MATE-6019 is a human male with orange stripes on his face, a characteristic smile and blue clown eyes. He is often seen wearing a short peak cap with goggles on his forehead, a silver chain, and carrying a candy stick. His personality traits reveal that he is highly creative and artistic, with interests in painting, drawing, and writing. DSC-MATE-6019 has never displayed any hostility towards personnel, although he has exhibited unusual behaviors in the past.

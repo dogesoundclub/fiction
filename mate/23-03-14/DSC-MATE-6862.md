@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6862
+Description: Subject 6862 is a male human of average height and weight, with a striking physical appearance. His face is characterized by a perpetually frightened mouth, and his eyes are obscured by normal glasses. His head is shaved, resembling that of a monk, and he sports a single gold earring in his left ear. He can often be seen wearing a bright red scarf, which could potentially be used for identification purposes.

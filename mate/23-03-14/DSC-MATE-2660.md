@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2660
+Description: DSC-MATE-2660 is a male Monkey species, standing at 1.2 meters tall with bright and lively appearance. The subject is often seen wearing a red beanie with a two-color band stretched around his forehead. DSC-MATE-2660's most defining feature is the jade earring adorned on his left ear lobes, and a gold chain around his neck. DSC-MATE-2660 is often seen smoking a cigarette, which he uses as his second accessory.

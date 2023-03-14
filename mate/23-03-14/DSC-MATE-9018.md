@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9018
+Description: DSC-MATE-9018 is a humanoid entity with distinctive physical features. Their face is decorated with spots, and they have purple lips. Their eyes are red and resemble those of a clown. DSC-MATE-9018 has a pair of pig-tails on their head, and a goggle is regularly seen on their forehead. They have a red cross earring on one ear, and a choker around their neck.

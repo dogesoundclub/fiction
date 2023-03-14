@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2644
+Description: DSC-MATE-2644, also known as "Rainbow Firefighter," is a female human with unique physical characteristics. She has purple lips, jade earrings, and a silver chain as well as Virtual Reality Rainbow LED eyes. Her head is adorned with Rainbow Festival-themed headgear and she wears an LED gas mask as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6274
+Description: DSC-MATE-6274 is a male tiger of Indian descent with an unusually frightened expression on his mouth. It wears a hooded sweatshirt over its head and horned rim glasses over its eyes, which are often seen to glow in the dark. DSC-MATE-6274 frequently carries a candy stick in its right hand, which it occasionally chews on. 

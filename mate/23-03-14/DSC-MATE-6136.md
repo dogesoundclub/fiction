@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6136
+Description: DSC-MATE-6136 is a male rabbit measuring approximately 50 cm in height and weighing 1.8 kg. The entity's fur is a light brown color, and its eyes are red with a distinct appearance of clown makeup. DSC-MATE-6136 is often seen wearing a blue bandana on its head, a goggle on its forehead, a jade earring on its left ear, and a gold chain with a cigarette hanging from its mouth.

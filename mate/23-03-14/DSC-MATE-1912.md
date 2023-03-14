@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1912
+Description: Subject 1912 is a male human of average height and build, with distinctive red clown eyes and a mohawk hairstyle. He wears a gas mask and a red scarf, with a 2-color band on his forehead. Despite his unusual appearance, 1912 is highly skilled as a mechanic and possesses a great deal of knowledge in various technical fields. He has a tendency to be controlling, which can make him difficult to work with at times. However, his efficiency and organizational skills often make him an asset to any project.

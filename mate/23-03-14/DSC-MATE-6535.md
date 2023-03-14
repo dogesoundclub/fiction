@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6535
+Description: DSC-MATE-6535 is a human male of unknown age, approximately 6'2" in height and 180 pounds in weight. He is distinguishable by his blue clown eyes and a spot on his mouth which appears to be permanent, as well as a purple cap adorned with a headset. A distinctive two-color band runs across his forehead, and he wears a green cross earring. DSC-MATE-6535 also possesses a candy stick, which he is rarely seen without.

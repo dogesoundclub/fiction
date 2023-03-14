@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8945
+Description: Subject 8945 is a human female with distinctive facial features. Her face is adorned with orange stripes, and she wears vivid red lipstick. The eyebrows above her piercing orange eyes are also orange. Additionally, a tiara sits atop her head, and she wears goggles on her forehead. A pair of green cross earrings dangle from her ears, and she sports a black choker.

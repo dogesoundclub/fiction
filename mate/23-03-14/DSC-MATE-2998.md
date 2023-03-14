@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2998
+Description: Subject 2998, identified by records as a human female farmer, displays unique physical characteristics. She bears distinctive spots on her face, paired with a bright red lip. On her head, she wears a purple cap that contrasts with her vibrant green hair. She is often seen wearing a gold chain necklace, and most strikingly, an LED gas mask that obscures her facial features.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8630
+Description: Character 8630 is a human female with striking orange stripes on her face, accompanied by a pair of normal glasses over her bright, curious eyes. Her hair is blonde and kept warm by a furry ushanka, complete with a golden chain draped around her neck.

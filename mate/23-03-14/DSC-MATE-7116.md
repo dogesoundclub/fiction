@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7116
+Description: DSC-MATE-7116 is a male robot with a green cyclops eye as its main facial feature. Its horns rimmed glasses serve as protection for its ocular sensors. DSC-MATE-7116's head is adorned with a short peak cap, and a pair of goggles rests on its forehead. Another notable feature is its medical mask for hygienic purposes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5466
+Description: Item #5466 is a humanoid of the female sex, standing at approximately 5’6” in height. They have blue clown eyes and a bold, purple lip. Their headwear of choice is a bucket hat, with goggles situated atop their forehead as a unique accessory. Item #5466's earings are two green crosses, which dangle from their ears. They wear a silver chain as an additional accessory. 

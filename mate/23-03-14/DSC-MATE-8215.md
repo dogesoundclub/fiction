@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8215
+Description: DSC-MATE-8215 is a humanoid entity that manifests as a female human, exhibiting an array of distinct physical features. It stands at 5'7" and weighs approximately 130lbs. DSC-MATE-8215 displays several unique features, including a series of spots along its face and hands, orange eyebrow eyes, and a green cross earring on each ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1709
+Description: DSC-MATE-1709 is a sentient tiger with a red beanie on its head and VR jade LED eyes. DSC-MATE-1709 possesses a candy stick, which it is often seen gnawing on. It has a distinctive feature of a constantly frightened mouth. This may be related to its history of being a villain, where it was constantly on the run.

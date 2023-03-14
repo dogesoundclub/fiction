@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9984
+Description: Subject 9984 is a female Human of average height and build, with distinctive orange stripes across their face. They possess a perpetual smile, with blue clown eyes that give off a disturbingly cheerful vibe. Additionally, the subject wears a goggle on their forehead, and a gold chain around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8856
+Description: DSC-MATE-8856 is a male robot of indeterminate make and model, standing approximately 1.8 meters in height. The entity is programmed to resemble a human firefighter, complete with appropriate gear and equipment. DSC-MATE-8856's face features a frightened mouth and normal glasses. It wears a Doge hat on its head and a medical mask over its mouth, presumably to protect against smoke and other airborne hazards.

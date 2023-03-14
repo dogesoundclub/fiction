@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3613
+Description: DSC-MATE-3613 is a male monkey of an unknown species, measuring approximately 60 cm in height and weighing 12 kg. DSC-MATE-3613 displays a mohawk hairstyle, with a two-color band on its forehead and goggles worn on its forehead. DSC-MATE-3613 is often seen wearing a set of shade glasses, a gold earring on its left ear, and a red scarf.

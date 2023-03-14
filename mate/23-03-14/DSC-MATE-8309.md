@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8309
+Description: DSC-MATE-8309 is a human male, approximately 45 years old, working as a news anchor for a major broadcasting company. DSC-MATE-8309 appears to have abnormalities in appearance with green, not arranged hair, and is always seen wearing a medical mask, the purpose of which remains unknown. It is speculated that DSC-MATE-8309 wears the mask as a corresponding manifestation of anxiety and germaphobia.

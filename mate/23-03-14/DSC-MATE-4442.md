@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4442
+Description: DSC-MATE-4442 is a male monkey of the species Macaca fascicularis, measuring approximately 65 cm in height and weighing 10 kg. DSC-MATE-4442 displays a frightened mouth expression and wears shade glasses, a retro cap, and a goggle on its forehead. It also wears a gold earring, silver chain, and a normal gas mask.

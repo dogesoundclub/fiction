@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5098
+Description: DSC 5098 is a male monkey who possesses a charming personality that can be quite alluring. DSC 5098 has red clown eyes and a mouth that often seems frightened, adding to its already eerie appearance. DSC 5098 wears a retro cap and a silver chain as accessories and is often seen smoking cigarettes.

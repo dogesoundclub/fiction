@@ -1,0 +1,2 @@
+ID # : DSC-MATE-471
+Description: DSC-MATE-471 is a human male with a peak spike hairstyle, green cross earring adorning his left ear and square nerd glasses resting on his nose. He is often observed with a candy stick in his mouth and a smile on his face. DSC-MATE-471 responds positively to social interactions and values harmony in his environment. However, his desire to be humorous has led to playful banter which can sometimes be inappropriate.

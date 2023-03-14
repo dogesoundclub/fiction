@@ -1,0 +1,2 @@
+ID # : DSC-MATE-19
+Description: Item 19 is a male monkey, standing approximately 2 feet in height. Its face features a constantly frightened mouth expression, and it always wears a pair of shady glasses. The head of Item 19 is adorned with an unruly green mane, while the neck is decorated with a gold chain. Additionally, Item 19 is frequently seen holding a candy stick in its hand.

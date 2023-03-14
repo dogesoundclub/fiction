@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6268
+Description: DSC-MATE-6268 is a female human with numerous spots on her face and a distinctive smile. DSC-MATE-6268 is often seen wearing a medical mask due to the nature of their job as a veterinarian. DSC-MATE-6268's head is adorned with various items acquired from a Rainbow Festival, including beads, feathers, and flowers. DSC-MATE-6268 also wears a gold earring in each ear.

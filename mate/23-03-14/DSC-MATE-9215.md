@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9215
+Description: DSC-MATE-9215 is a caucasian female approximately 32 years of age, with blue clown eyes and an orange-sided cranium. DSC-MATE-9215 has an accessory resembling goggles that remain affixed to the forehead, despite their lack of function. DSC-MATE-9215's earrings are jade in coloration, and despite appearances, are composed of an unidentified material with anomalous properties. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4708
+Description: DSC-MATE-4708 is a female human of indeterminate age, with spotted facial features and red lips. The subject's eyes are a bright blue color that resembles clown makeup. DSC-MATE-4708 often wears a tiara on her head and a choker around her neck, and is frequently seen with a pair of goggles resting on her forehead.

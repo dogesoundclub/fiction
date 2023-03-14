@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5659
+Description: Subject 5659 is a human female with a contagious smile that radiates positivity. The subject's most notable feature are their bright blue clown eyes which can mesmerize those in their presence. Their head is often adorned with a retro cap and functional goggles secured onto the forehead. They wear a gold earring in both ears and a silver chain around their neck.

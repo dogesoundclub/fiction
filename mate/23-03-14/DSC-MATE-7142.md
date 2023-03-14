@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7142
+Description: Item 7142 is a human male identified as a real estate agent. The subject's face features a mouth spot, covered by a medical mask. Item 7142 typically adorns a purple cap with a headset and wears normal glasses. An interesting detail is that the subject often wears a gold earring and a silver chain. 

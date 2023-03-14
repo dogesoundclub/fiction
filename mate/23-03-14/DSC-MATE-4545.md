@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4545
+Description: DSC-MATE-4545 is a male human with a distinctive appearance. He has orange stripes on his face, which are symmetrical and extend from his cheeks to his temples, and a frightened mouth. His eyes are VR Jade LED, and he wears a police cap on his head. He has a green cross earring on his left ear and a silver chain around his neck. DSC-MATE-4545 is a mechanic by profession.

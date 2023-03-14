@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5274
+Description: DSC-MATE-5274 is a robotic veterinarian of unknown origin. Its outer shell is made of interconnected metallic plates, similar to those of a standard industrial robot. The head of DSC-MATE-5274 is covered in a blue bandana, and it wears horned rim glasses over its glowing red eyes. DSC-MATE-5274 also has an earring made of gold in its right ear, and wears a red scarf around its neck. Its most distinct accessory is a whistle that DSC-MATE-5274 often carries around with it.

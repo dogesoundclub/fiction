@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4768
+Description: DSC-MATE-4768 is a male rabbit who appears to be the leader of an organized crime syndicate. They wear a Doge hat on their head and a jade earring on each ear. Additionally, DSC-MATE-4768 is known for wearing a gold chain around their neck at all times. Their eyes are bright red clown eyes, which seem to be permanent (they do not blink or move).

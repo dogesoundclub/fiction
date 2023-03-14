@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8586
+Description: Subject 8586 is a human female with striking physical features. She has bright orange stripes on her cheeks, which stand out against her pale skin. Her lips are painted a deep red, drawing in unwanted attention from admirers. The most unnerving aspect of her appearance is her blue clown eyes, which seem to shift in color and size depending on her mood. She also wears a green cross earring on her left ear and a silver chain around her neck.

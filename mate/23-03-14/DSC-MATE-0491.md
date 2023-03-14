@@ -1,0 +1,2 @@
+ID # : DSC-MATE-491
+Description: DSC-MATE-491 is a male rabbit with ski goggle eyes and a red beanie covering its head. The creature appears to be in a constant state of panic with a frightened mouth expression. Although DSC-MATE-491 has characteristics of a regular rabbit, it is capable of speech and can communicate fluently in the English language.

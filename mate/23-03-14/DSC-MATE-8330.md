@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8330
+Description: DSC-MATE-8330 is a human female identified as a real estate agent. Subject has orange stripes on their face and orange eyebrows, along with green hair in a purple cap. They also have a 2 color band on their forehead and a pair of goggles on their forehead. The subject has a red cross earring in each of their ears.

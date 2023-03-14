@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1399
+Description: DSC-MATE-1399 is a female human with several unique physical features. Their face is covered in numerous brown spots, which are thought to be a benign skin condition. DSC-MATE-1399 frequently wears a medical mask over their mouth and a purple cap with a headset on their head. Their eyes are blue and clown-like in appearance.

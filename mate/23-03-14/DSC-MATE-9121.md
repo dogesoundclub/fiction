@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9121
+Description: Subject 9121 is a female human with orange stripes on her face and blue clown eyes. Her head resembles that of a 00s school girl, and she wears a red cross earring in her ears. She covers her mouth with a medical mask, and wears a silver chain as an accessory.

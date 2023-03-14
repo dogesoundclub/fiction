@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6032
+Description: DSC-MATE-6032 is an advanced robotic entity designed to resemble a male veterinarian, standing approximately 6 feet in height. DSC-MATE-6032's eyes are typical of those found in normal glasses, offering a human appearance. DSC-MATE-6032 typically chooses to adorn themselves with a short peak cap and a gold earring, mildly emphasizing their humanoid traits. Additionally, DSC-MATE-6032 often sports a red scarf as their primary accessory, and during certain interactions relies on a lit cigarette to convey a sense of relaxation.

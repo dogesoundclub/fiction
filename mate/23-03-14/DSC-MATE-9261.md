@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9261
+Description: DSC-MATE-9261 is a humanoid rabbit measuring approximately 1.2 meters in height. Their cybernetic eyes are a unique shade of green, resembling the glow of jade. DSC-MATE-9261 wears a purple cap with a headset and a gold chain around their neck, often seen smoking a cigarette. 

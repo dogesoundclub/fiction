@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4235
+Description: DSC-MATE-4235 appears to be a large male Bengal Tiger with unique modifications. Its eyes are rainbow LED screens that display various patterns and colors. DSC-MATE-4235 wears a doge hat on its head and a medical mask over its mouth. Additionally, it wears a red scarf around its neck. DSC-MATE-4235 displays a frightened mouth expression on its face. 

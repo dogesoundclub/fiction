@@ -1,0 +1,2 @@
+ID # : DSC-MATE-348
+Description: DSC-MATE-348 is a female human, designated as a Fashion Designer in the non-anomalous world. DSC-MATE-348 has orange stripes painted on her face and purple lipstick, above blue clown eyes. Her head is green with edges curled upwards, resembling a leaf, and has a goggle resting on her forehead. She wears a jade earring and a silver chain accessorizes her neck. 

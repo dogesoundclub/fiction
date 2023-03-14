@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9327
+Description: DSC-MATE-9327 is a humanoid entity that appears to be a female human of indeterminate ethnic origin. DSC-MATE-9327 exhibits an unusual facial appearance, featuring bright orange stripes on the cheeks, orange eyebrows, a red lip, and a medical mask covering the mouth. DSC-MATE-9327's hair is styled in two pigtail braids adorned with gold chains. DSC-MATE-9327 has a unique two-color band on the forehead.

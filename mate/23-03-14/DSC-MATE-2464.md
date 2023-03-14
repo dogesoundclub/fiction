@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2464
+Description: Subject 2464 is a male humanoid of the human species. He measures approximately 5 feet 6 inches in height and weighs roughly 165 pounds. His most notable features are the orange stripes that run vertically over his cheeks and jawline as well as his red clown eyes. His head is adorned with a peak spike design which has been observed to change color depending on his mood.

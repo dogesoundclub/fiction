@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4580
+Description: DSC-MATE-4580 is a male rabbit approximately 20 cm in height, with distinctive red clown eyes. It wears a bucket hat and a jade earring, as well as a gold chain and is often seen smoking a cigarette. DSC-MATE-4580 has been identified as a mafia boss, and displays a highly impulsive and emotional personality. It possesses the ability to speak fluently, despite its small stature.

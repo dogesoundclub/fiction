@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8939
+Description: DSC-MATE-8939 appears to be a human male of average height and weight. The subject has orange stripes on their face, a frightened mouth, and wears a doge hat on their head. DSC-MATE-8939 has a two-color band on their forehead and a green cross earring on both ears. Despite DSC-MATE-8939's unusual appearance, they have no anomalous properties aside from their empathetic personality.

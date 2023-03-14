@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2657
+Description: DSC-MATE-2657 appears as a male monkey, who claims to work as a real estate agent. It wears a hoodie with horned rimmed glasses and a gold chain. It is often seen holding a candy stick. Despite its small size, DSC-MATE-2657 has displayed a natural talent for leadership, often taking control of situations and being very persuasive with others.

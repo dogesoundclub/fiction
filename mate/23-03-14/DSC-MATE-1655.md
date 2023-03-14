@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1655
+Description: DSC-MATE-1655 is a male robot with a humanoid appearance. They stand at 5'11", with a lean build and robotic limbs. DSC-MATE-1655 has normal glasses and is often seen sporting a short peak cap. Their most notable accessories are a silver chain and a normal gas mask that is worn when in polluted environments.

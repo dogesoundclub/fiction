@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8628
+Description: 8628 is a female human with striking orange stripes on her face and an orange eyebrow. Her head is adorned with rainbow-colored festival accessories while her ears are fitted with golden earrings. 8628 has a medical mask that covers her mouth and a choker as her accessory. She works as a fashion designer outside of containment.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-694
+Description: DSC-MATE-694 is a 31-year-old human female of average height and build. They have a welcoming smile and a friendly demeanor. DSC-MATE-694 is easily identified by their unique orange eyebrows and a tiara that are worn at all times. Another notable feature is the silver chain that they wear around their neck.

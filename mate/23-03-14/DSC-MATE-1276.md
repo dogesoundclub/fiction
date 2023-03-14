@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1276
+Description: DSC-MATE-1276 is a humanoid entity appearing to be a male human of approximately 30 years old. It stands at 6 feet tall, with lean muscle mass and orange stripes on its face. Its eyes are concealed by normal glasses, and its head is usually covered by a hoodie. DSC-MATE-1276 also possesses a 2 color band on its forehead, which seems to emit a dim light when under stress.

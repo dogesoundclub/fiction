@@ -1,0 +1,2 @@
+ID # : DSC-MATE-261
+Description: DSC-MATE-261 is a humanoid electrician possessing unique physical attributes that distinguish them from a normal human. They have orange stripes on their cheeks and lips, and their eyes are red clown eyes. DSC-MATE-261 also wears a tiara on their head, which may aid them in their electrical manipulation abilities.

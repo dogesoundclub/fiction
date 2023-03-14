@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3577
+Description: DSC-MATE-3577 is a human female of indeterminate age, currently working as a fast food worker at a popular chain restaurant. DSC-MATE-3577 is approximately 5 feet 6 inches tall and appears to be of average weight. DSC-MATE-3577's most notable features are the spots on its face and the purple color of its lips. DSC-MATE-3577 wears glasses with normal lenses and a medical mask over its mouth at all times, regardless of where it is or what it is doing.

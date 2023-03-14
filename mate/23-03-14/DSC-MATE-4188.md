@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4188
+Description: DSC-MATE-4188 is a human female with spots on her face and orange eyebrows. She also has an orange side head and a unique forehead feature with two color bands. DSC-MATE-4188 wears a red cross earring and a gold chain as accessories, and is often seen with a cigarette in her hand. Despite her relatively average appearance, DSC-MATE-4188 possesses a vivid imagination that fuels her unusual hobbies and interests.

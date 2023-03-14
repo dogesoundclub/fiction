@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4140
+Description: DSC-MATE-4140 appears to be a male rabbit of the common European species, standing at approximately 50 centimeters tall. DSC-MATE-4140 typically wears a retro cap and sports a 2 color band around its forehead. Additionally, DSC-MATE-4140 has a Jade earring on one ear and can often be observed smoking a cigarette.

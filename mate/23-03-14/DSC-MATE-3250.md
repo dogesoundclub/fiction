@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3250
+Description: DSC-MATE-3250 is a male rabbit humanoid who identifies as a farmer. DSC-MATE-3250 possesses a frightened mouth expression and was observed using normal glasses. Its head hair is green, disheveled, and not arranged. DSC-MATE-3250 appears to be wearing a goggle on its forehead, gold earring on right ear and carrying with a cigarette.

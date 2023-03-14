@@ -1,0 +1,2 @@
+ID # : DSC-MATE-963
+Description: Subject 963 is a humanoid female of average height and build, with orange hair worn to one side of the face. The most distinct features of subject 963 include her red clown eyes and crimson lips. A silver chain is worn around her neck and a single jade earring adorns her left ear. A pair of goggles are frequently worn as an accessory on her forehead, while a cigarette is often seen dangling from her fingers.

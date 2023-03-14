@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8421
+Description: DSC-MATE-8421 was once an autonomous robot designed specifically for the purpose of driving trains. The robot's external appearance is adorned with a blue bandana wrapped around its head, signaling the presence of a "cowboy"-like personality. DSC-MATE-8421's right ear pierces through with a jade earring, which has no known significance. In addition, DSC-MATE-8421 wears a silver chain around its neck, which may or may not provide a sense of security to the robot.

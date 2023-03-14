@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4197
+Description: DSC-MATE-4197 is a mechanical entity, roughly 1.9 meters in height, 1.2 meters in width and 0.9 meters in depth. Despite being a robot, DSC-MATE-4197 exhibited several unique characteristics that set it apart from most other machines of its kind.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6750
+Description: 6750 is a male human with distinctive facial features that include a spotted pattern and a constant smile. They are often seen wearing nerdy glasses and a red scarf, which complement their green, unarranged hair and jade earring on their left ear.

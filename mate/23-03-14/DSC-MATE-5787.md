@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5787
+Description: 5787 is a human female with distinct face features of spots and a red lip. The eyes of 5787 emit a VR rainbow LED glow that can be customized. Its head is that of a witch, with short hair and gold earrings. 5787 is typically seen wearing a silver chain and a LED gas mask as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4749
+Description: Identification number 4749 is a male human of unknown origin, approximately 6’3” in height. 4749’s most notable features are orange stripes on their face and a permanent smile. 4749’s head appears to be made of metal, with a purple hue. A goggle is often seen resting atop 4749's forehead.  Their ears are adorned with a single gold earring, and they wear a gold chain around their neck.  When observed, 4749 is always seen holding a candy stick - the significance of which is unknown.

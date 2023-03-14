@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9449
+Description: DSC-MATE-9449 is a humanoid robot with green cyclops eye as its main visual sensor. It wears a bucket hat on its head and a red scarf around its neck. It also wears horned rim glasses over its eye and a medical mask over its mouth, both intended to mimic human facial features. 

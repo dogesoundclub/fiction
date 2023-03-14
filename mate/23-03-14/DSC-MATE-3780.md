@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3780
+Description: Item 3780 is a male security guard of robotic origin. He stands at approximately 6 feet tall and has a humanoid appearance. Item 3780's face comprises a frightened open-mouthed expression and ski goggles in place of eyes. The ears of this robot are adorned with a golden earring, and he regularly wears a red scarf as an accessory. Despite being made of metal, Item 3780 has a personality and can demonstrate emotions similar to those of a human.

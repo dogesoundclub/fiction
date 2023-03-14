@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1559
+Description: Subject 1559 is a male human with green hair and a purple cap, adorned with green cross earrings. They wear normal glasses and a silver chain. Despite their mundane occupation as a farmer, subject 1559 displays a trait that sets them apart - excessive introspection. 

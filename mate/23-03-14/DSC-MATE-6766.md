@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6766
+Description: Item #6766 is a robotic beautician designed to provide high-quality grooming services to clients. Its appearance is distinct, with a single, large green cyclops eye and ski goggle lenses for its eyes. Item #6766's head resembles a hoodie and it wears a red scarf around its neck, along with a whistle for emergencies.

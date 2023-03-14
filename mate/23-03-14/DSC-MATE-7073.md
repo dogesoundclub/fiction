@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7073
+Description: DSC-MATE-7073 is a human female with a distinct appearance that includes purple lips, VR Rainbow LED eyes, and blonde hair adorned with an Ushanka hat. They are often seen wearing a medical mask and a jade earring, along with a choker.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3057
+Description: DSC-MATE-3057 is a human female with unique physical traits. Her face features spots located around the nose and eye area, with purple lips that contrast the rest of her skin tone. DSC-MATE-3057 often wears her hair in pig tails and is frequently seen wearing a choker and gold earrings.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2560
+Description: DSC-MATE-2560 is a male tiger manifested in the form of a car salesman. DSC-MATE-2560 has the physical appearance of an anthropomorphic tiger, bearing distinctive facial features of a frightened mouth with VR jade LED eyes. DSC-MATE-2560 also wears a red beanie atop its head with a medical mask covering its mouth.

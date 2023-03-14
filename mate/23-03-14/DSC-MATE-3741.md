@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3741
+Description: DSC-MATE-3741 is a male Human of average height and weight, with numerous dark spots covering their face and body. These spots, while visually resembling moles or freckles, have not yet been identified as any known biological feature. DSC-MATE-3741 habitually wears a medical mask to conceal a persistent cough and to prevent the spread of potential infectious diseases, despite showing no signs of infection during medical examinations.

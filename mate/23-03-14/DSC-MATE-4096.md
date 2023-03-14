@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4096
+Description: DSC-MATE-4096 is a male rabbit with a physical appearance of a common domesticated rabbit. However, it possesses blue clown eyes, and a red victory band on its forehead. DSC-MATE-4096's most notable feature is its affinity to chain smoking cigarettes. It tends to carry one cigarette in its mouth or has them accessible at all times.

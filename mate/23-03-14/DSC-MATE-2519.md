@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2519
+Description: DSC-MATE-2519 is a male human identified as a doctor. The subject has numerous spots on their face, with blue clown eyes and a bucket hat covering their head. DSC-MATE-2519 also has a red victory band and a goggle on their forehead, with a jade earring and a gold chain as additional accessories. Despite their unusual appearance, DSC-MATE-2519 is non-anomalous and presents no immediate danger to personnel.

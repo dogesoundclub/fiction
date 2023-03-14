@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9250
+Description: DSC-MATE-9250 is a female human of average height and weight with distinctive spots on her face, a purple lip, and orange eyebrows. DSC-MATE-9250 is commonly seen wearing a black hoodie with a two-colored band across her forehead, a silver chain, and holding a cigarette in her left hand. Despite DSC-MATE-9250’s appearance, her abilities and strengths are not anomalous in any way.

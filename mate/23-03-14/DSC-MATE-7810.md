@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7810
+Description: DSC-MATE-7810 is a male robot identified as a Real Estate Agent, measuring approximately 1.5 meters in height. Its appearance is easily identifiable by its green Cyclops eye, frightened mouth, and normal glasses. DSC-MATE-7810 also wears a Doge hat and a pair of gold earrings. It often accessorizes with a red scarf and a whistle.

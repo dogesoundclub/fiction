@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8177
+Description: Subject 8177 is a male human, standing approximately 5'10" in height. He has a distinctive feature on his face, a spot on his mouth, which may be of anomalous origin. He is often seen wearing a purple cap with a headset, as well as a red victory band on his forehead. He also wears a silver chain around his neck, and can often be seen with a candy stick in his mouth.

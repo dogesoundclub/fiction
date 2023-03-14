@@ -1,0 +1,2 @@
+ID # : DSC-MATE-415
+Description: DSC-MATE-415 is a firefighter robot with a green cyclops eye and ski goggle-like lenses. Its head consists of a variety of asymmetrical, not arranged green metal plating. Upon activation, it will initially appear to be dormant or asleep. However, upon receiving a direct command or sensing a fire, it will immediately activate.

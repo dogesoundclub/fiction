@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4441
+Description: DSC-MATE-4441 is a male mythological creature, resembling an anthropomorphic tiger. DSC-MATE-4441's most striking features are its blue clown eyes and a jade earring in its left ear. DSC-MATE-4441 is always seen wearing a blue bandana around its head, and it carries a silver whistle on a chain around its neck. DSC-MATE-4441 displays a frightened mouth, and its moods often change very quickly.

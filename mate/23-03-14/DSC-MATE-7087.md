@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7087
+Description: Item #7087 is a male rabbit identified as "Donny the Don," the notorious boss of a Mafia gang that originated in the underground cities of New York. Standing at two feet tall, Item #7087 is characterized by a frightened mouth and a police cap. Its forehead features a two-color band and a goggle, further accessorized by Jade earrings, a red scarf, and a whistle.

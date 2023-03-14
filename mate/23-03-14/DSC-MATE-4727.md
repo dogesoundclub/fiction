@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4727
+Description: 4727 is a male human farmer with some unusual features. His head is entirely made of an unknown metal alloy that emits a mildly purple glow. His eyes resemble skiing goggles, with amber lenses that obscure his actual eyesight. Instead, 4727 has been observed feeling around and echoing his surroundings, which may indicate some degree of blindness. Also, a jade earring adorns each of his ears.

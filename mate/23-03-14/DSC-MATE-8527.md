@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8527
+Description: DSC-MATE-8527 is a male human of average height and weight, with a unique facial marking in the form of a dark spot located underneath the lower lip. DSC-MATE-8527's eyes resemble those commonly found on ski goggles, with irises that change colors based on DSC-MATE-8527's mood or mental state at the time. DSC-MATE-8527 is also known to wear a large gold chain around the neck, as well as frequently consuming candy sticks.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3161
+Description: Officer 3161 is a female human with facial features that set them apart from the average person. They bear distinctive orange stripes that adorn their face and bright, vibrant orange eyebrows that somehow manage to stand out against their blue metallic hair. The Officer is often seen wearing red lipstick accompanied by the goggle-shaped ornament placed on their forehead. The Officer also keeps a gold chain around their neck.

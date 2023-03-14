@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4107
+Description: DSC-MATE-4107 appears as a humanoid robot with a purple cap and a headset. Its eyes are made up of VR Rainbow LEDs, and it wears a golden chain around its neck. DSC-MATE-4107's personality is known to be ambitious and goal-oriented. It exhibits strategic thinking and organizational skills, which have allowed it to take on more work than what is recommended for a single individual.

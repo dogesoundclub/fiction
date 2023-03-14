@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1580
+Description: Subject 1580 is a female human who is identified as a Traffic Officer. They have several distinct features that set them apart from other humans. These features include their spotted skin, blue clown eyes, tiara, dual-colored forehead band, and jade earrings. To further obscure their appearance, the subject regularly wears a medical mask on their mouth and a choker around their neck.

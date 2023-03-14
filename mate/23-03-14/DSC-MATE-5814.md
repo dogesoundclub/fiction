@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5814
+Description: 5814 is a male rabbit humanoid with a distinctive police cap and a red scarf as accessories. Its eyes are made of virtual reality jade LED that glow brightly in the dark, and it always wear a normal gas mask. 5814 has demonstrated a strong sense of independence and often rebels against authority or rules which it deems unnecessary.

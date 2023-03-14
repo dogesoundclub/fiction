@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2159
+Description: Item 2159 is a male tiger with a distinctive blue bandana around its head and blue clown eyes. Its mouth is covered by a medical mask and features a constantly frightened expression. It wears a red scarf around its neck as an accessory.

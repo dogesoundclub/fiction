@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5598
+Description: DSC-MATE-5598 appears to be a male monkey of an unknown species, dressed in business attire commonly worn by car salespeople. It stands at approximately 1 meter in height and weighs approximately 20kg. The creature's head is partially parted with pink hair that appears to have been styled with gel or some other similar substance. It also wears a pair of horned rim glasses which often slide down its nose, along with a jade earring on one of its ears.

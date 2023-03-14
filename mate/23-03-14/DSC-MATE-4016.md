@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4016
+Description: DSC-MATE-4016 is a humanoid robot measuring 1.8m in height and featuring a green cyclops eye as its primary visual sensor. Its mouth is in a permanent state of distress, potentially indicating a pre-programmed range of expressions. DSC-MATE-4016's eyes are constructed from ski goggles, and its head is adorned with a police cap.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4707
+Description: DSC-MATE-4707 appears as a humanoid tiger with vivid red clown eyes and a red cross earring on its ears. It is approximately 1.8 meters tall and weighs approximately 220 kg. DSC-MATE-4707's most notable feature is its ability to transform into a human form resembling a news anchor, in which it spends most of its time.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-639
+Description: DSC-MATE-639 appears to be a middle-aged human male of average height, with distinctive orange stripes on his face. His eyes are equipped with a VR Rainbow LED system, giving them an unusual appearance. DSC-MATE-639 is often seen wearing a police cap and a gold chain, which he reportedly received as gifts.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2333
+Description: DSC-MATE-2333 is a male Bengal Tiger, measuring approximately 2.5 meters in length and weighing around 180 kilograms. DSC-MATE-2333 has a unique appearance, sporting a red victory band on its forehead, a red scarf as an accessory, and a hoodie covering its head.

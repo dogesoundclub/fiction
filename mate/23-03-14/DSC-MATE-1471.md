@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1471
+Description: Item #1471 is a male robot that takes the appearance of a news anchor. Its mouth is constantly in a state of fear and insecurity, while its eyes are covered with normal glasses. The head of Item #1471 is covered with a hoodie, and it wears a medical mask at all times. It is often seen wearing a silver chain as an accessory.

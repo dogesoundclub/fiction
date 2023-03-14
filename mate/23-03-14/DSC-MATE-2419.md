@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2419
+Description: DSC-MATE-2419 is a male monkey of the Macaca mulatta species, standing at approximately 50 centimeters in height and weighing around 10 kilograms. Its eyes are often obscured by nerd glasses, and its head is adorned with a blue bandana. It also has a jade earring in one ear. Despite its small stature, DSC-MATE-2419 exerts a commanding presence and is known to operate as a Mafia Boss within the criminal underworld.

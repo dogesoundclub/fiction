@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9502
+Description: DSC-MATE-9502 is a male monkey delivery driver, standing approximately 1 meter tall. Their face is marked with a frightened mouth while their eyes are blue clown eyes. DSC-MATE-9502 prefers to keep their head covered with a hoodie and wears an LED gas mask, which obscures their facial features.

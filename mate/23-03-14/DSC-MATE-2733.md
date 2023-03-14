@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2733
+Description: DSC-MATE-2733 is a human male identified as a doctor prior to containment. DSC-MATE-2733 is approximately 5'10" in height and wears a bucket hat on its head. Its mouth is often seen in a frightened expression, and its eyes are a unique display of VR Rainbow LED technology. DSC-MATE-2733 can be seen wearing a red scarf and often smoking a cigarette.

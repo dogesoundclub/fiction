@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4183
+Description: DSC-MATE-4183 is a human female with an unusual appearance. DSC-MATE-4183 has orange stripes on their face and purple lip which combined all facial features with unusual colors may signify an anomalous condition. DSC-MATE-4183 also has red clown eyes which can potentially influence individuals they are interacting with. DSC-MATE-4183 wears a medical mask over their mouth, a hoodie over their head, and a 2 color band on their forehead.

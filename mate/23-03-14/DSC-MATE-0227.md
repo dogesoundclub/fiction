@@ -1,0 +1,2 @@
+ID # : DSC-MATE-227
+Description: Subject 227, identified publicly as a male tiger, is a newscaster for a prominent news network. The subject stands at 6 feet tall and weighs approximately 500 pounds. One distinguishing facial feature is the expression of constant fear on the subject's mouth. The subject also wears normal glasses over their eyes and a gold earring in each ear. Two accessories accompany the subject, a red scarf tightly wrapped around the neck and an LED gas mask.

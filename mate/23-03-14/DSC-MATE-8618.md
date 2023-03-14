@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8618
+Description: DSC-MATE-8618 is a male human identified as a veterinarian by profession. The entity stands approximately 1.8 meters tall and has a normal build for a human male. DSC-MATE-8618's most notable features are a dark spot on the lower right side of its mouth and a constant smile on its face. The entity's eyes resemble ski goggles with LED lights around the rims.

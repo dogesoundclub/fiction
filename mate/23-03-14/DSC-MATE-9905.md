@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9905
+Description: Subject is a human male of average height and weight, wearing a bucket hat adorned with orange stripes. Their face features the same orange stripes and a permanent smile, with eyes obscured by thick nerd glasses.

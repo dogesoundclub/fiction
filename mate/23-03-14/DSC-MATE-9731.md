@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9731
+Description: DSC-MATE-9731 is a humanoid robot approximately 2 meters in height, sporting a green afro hairstyle concealed beneath a purple cap. Its eyes resemble ski goggles, which serve as its primary sensory organs. DSC-MATE-9731's frame is marked with several dings and dents due to its role in traffic enforcement.

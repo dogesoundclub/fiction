@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8214
+Description: DSC-MATE-8214 is a male humanoid identified as a doctor. The subject appears to be of average height and weight, and although he lacks any visible anomalies, DSC-MATE-8214 is unique in appearance. The subject has a distinctive Mouth Spot and wears a Doge Hat on his head. His eyesight is impaired, and he wears Normal Glasses. On his forehead, DSC-MATE-8214 has a Red Victory Band. One of his ears bears a Green Cross Earring. He also wears a Silver Chain and carries a Candy Stick as a personal accessory.

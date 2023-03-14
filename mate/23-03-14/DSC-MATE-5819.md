@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5819
+Description: Item 5819 is a male member of the Monkey species. Despite its animalistic origins, Item 5819 possesses near-human levels of intelligence and the ability to speak. Its overall appearance is unremarkable, with standard black hair and jade earrings. Most notable is the dark sunglasses frequently worn by Item 5819, which it prefers to keep on when interacting with others.

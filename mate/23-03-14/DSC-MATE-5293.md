@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5293
+Description: DSC-MATE-5293 is a human male whose face is characterized by several large spots, a clown mouth, and red clown eyes. The subject's head is that of a normal blonde male with a medical mask covering his mouth. DSC-MATE-5293's ears are adorned with a single green cross earring.

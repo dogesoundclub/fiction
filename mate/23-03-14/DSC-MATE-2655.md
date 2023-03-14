@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2655
+Description: Item 2655 appears to be a female human in her mid-30s with orange stripes on her face and orange side hair. Item 2655's eyes are believed to be VR Jade LED and a goggle is present on the forehead with a medical mask covering the mouth. Item 2655 is often seen wearing a gold earring and a silver chain.

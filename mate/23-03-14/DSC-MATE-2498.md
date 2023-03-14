@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2498
+Description: DSC-MATE-2498 is a human female with an outgoing and social personality. They possess a striking appearance, with a bright smile and a tiara on their head. DSC-MATE-2498 is usually seen wearing jade earrings and a choker. They also carry a normal gas mask as part of their firefighting equipment.

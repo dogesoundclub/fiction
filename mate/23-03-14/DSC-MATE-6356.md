@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6356
+Description: DSC-MATE-6356 appears to be a male Bengal tiger standing at approximately 6 feet in height when bipedal. DSC-MATE-6356's most notable feature is its frightened mouth, causing it to appear constantly anxious. DSC-MATE-6356's eyes are currently unknown, as they are constantly covered by its blue bandana. DSC-MATE-6356 is often found wearing a jade earring in its left ear, as well as a red scarf around its neck and smoking a cigarette.

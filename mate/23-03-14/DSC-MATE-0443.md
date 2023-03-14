@@ -1,0 +1,2 @@
+ID # : DSC-MATE-443
+Description: Subject 443 is a female human of average height and weight. They have distinctive spots on their face and a perpetual smile. Their eyes are a bright orange with a unique eyebrow shape. They often wear a retro cap and a gold chain for decoration. Subject is also known to wear a LED gas mask as a statement piece.

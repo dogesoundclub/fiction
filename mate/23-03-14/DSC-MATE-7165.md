@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7165
+Description: 7165 is a male Siberian tiger with bright blue clown eyes, wearing a bucket hat, a silver chain and a whistle hanging from his neck. 7165 has shown to possess a strong sense of duty and responsibility with an uncanny ability to recognize dangers and uncover secrets. His keen sense of smell, excellent hearing and sharp mind make him an invaluable asset to any investigative team. However, his playful and humorous nature often contrasts with his duties as a reporter, leading to unforeseen situations.

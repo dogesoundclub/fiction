@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8764
+Description: DSC-MATE-8764 is a human male, approximately 30 years old, and works as a reporter for a local news agency. The subject's most notable physical feature is a dark, circular spot located on the right side of their mouth. DSC-MATE-8764's eyes are unnaturally bright red and resemble those of a clown. The subject has green hair styled in a purple cap and wears a jade earring on their left ear. DSC-MATE-8764 is often seen carrying a candy stick.

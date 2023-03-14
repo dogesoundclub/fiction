@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1602
+Description: Subject 1602 is a human female, 5'6" in height, with striking orange stripes running down the sides of her head. She has a large, red clown-inspired smile painted onto her face and sports metal blue hair. Her eyes are an ominous red, and her ears have large jade earrings. She is typically seen wearing a gold chain around her neck, and an ordinary gas mask to hide her appearance.

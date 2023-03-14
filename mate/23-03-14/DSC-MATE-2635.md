@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2635
+Description: DSC-MATE-2635 appears as a Caucasian female with distinctive spotted facial features. She has blonde hair and wears a gold chain as an accessory. Notably, she also has a single wing protruding from her head, although its functionality has yet to be determined. Her eyes appear to be normal, although she often wears glasses in a professional context.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1699
+Description: DSC-MATE-1699 is a female human with distinct facial features, including orange stripes and a purple lip. She possesses red clown eyes, a tiara on her head, and a jade earring in her left ear. DSC-MATE-1699's most notable characteristic is a strong sense of intuition, which can occasionally be mistaken for psychic abilities. She has the ability to predict events before they happen, and can sense when someone is upset or anxious.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4345
+Description: DSC-MATE-4345 is a male, anthropomorphic rabbit assumed to be approximately 27 years old. DSC-MATE-4345 stands 1.3 meters tall and weighs approximately 35 kilograms. DSC-MATE-4345's eyes are currently unknown, as they are always covered by their LED Gas Mask. DSC-MATE-4345's most distinct physical feature is the red beanie it wears on its head, along with a gold earring in each ear. DSC-MATE-4345 also wears a silver chain around its neck.

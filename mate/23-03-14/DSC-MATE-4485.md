@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4485
+Description: 4485 appears to be a human female of average height and build. Their face is characterized by prominent orange stripes across their cheeks and a bright red lip, accentuating a distinct and bold personality. Their eyes are equipped with VR Rainbow LED technology, which can display a variety of colors and patterns.

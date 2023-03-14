@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6137
+Description: DSC-MATE-6137 is a female human with green eyes that wear normal glasses. DSC-MATE-6137 is noted to be of average height and weight and possesses a retro cap on her head, a goggle on her forehead, and a green cross earring on each ear. DSC-MATE-6137 is a licensed veterinarian and appears to have a strong sense of duty and responsibility.

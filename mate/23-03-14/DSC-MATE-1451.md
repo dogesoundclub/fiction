@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1451
+Description: DSC-MATE-1451 appears to be a human male in his mid-thirties, with spotted skin and a distinctive mohawk hairstyle. DSC-MATE-1451's most notable trait is its perpetually smiling expression, even in situations that would elicit strong negative emotions in most individuals. Despite their jovial demeanor, DSC-MATE-1451 is described by colleagues as responsible and dutiful, taking on more work than their fair share.

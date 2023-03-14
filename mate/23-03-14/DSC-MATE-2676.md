@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2676
+Description: Item 2676 appears to be a male tiger with a red beanie on its head and a red cross earring on its left ear. Its glasses seem to be nerd glasses, and it often carries a candy stick in its mouth. Item 2676 exhibits a frightened mouth expression and can appear timid and shy at times.

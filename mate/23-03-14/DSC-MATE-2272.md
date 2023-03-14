@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2272
+Description: DSC-MATE-2272 is a female human with spotted facial features and a distinctive purple lip. DSC-MATE-2272's head is an unusual metal blue, which DSC-MATE-2272 claims is the result of a surgical enhancement to improve her cognitive abilities, allowing her to better manage the theater she oversees.

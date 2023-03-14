@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5404
+Description: Subject 5404 is a male human of average height and build. Their distinguishing feature is a VR Rainbow LED display in place of traditional eyes. The subject's head is adorned with green hair, frequently covered by a purple cap. A single jade earring can be seen in their left ear. 5404's accessory of choice is a normal gas mask, which they use as a fashion statement rather than for practical reasons.

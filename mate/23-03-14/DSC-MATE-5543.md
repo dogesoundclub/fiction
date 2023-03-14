@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5543
+Description: Subject 5543 appears to be a human male in his mid-30s with distinctive physical characteristics. He has a peak spike of black hair atop his head, with a red scarf wrapped around his neck. A medical mask conceals his mouth, and a goggle is strangely affixed to his forehead. His ears pierce with gold earrings, and his face presents with a perpetually frightened expression.

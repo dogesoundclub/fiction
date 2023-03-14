@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2125
+Description: Subject 2125 is a human male of average height and build. The most remarkable feature of its face is the presence of numerous spots, which appear to be permanent. Its eyes are unremarkable except for the fact that it wears glasses. Its head is usually covered with a hooded sweatshirt, which obscures its hair and ears. Though it has a mouth, it prefers to wear a medical mask which obscures its lower face. The only accessory it wears is a gold chain around its neck.

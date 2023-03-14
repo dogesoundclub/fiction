@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9719
+Description: DSC-MATE-9719 is a male European rabbit, standing approximately 40cm in height. It wears a traditional firefighter uniform with a bucket hat, red victory band on its forehead, and gold earrings and chain as accessories. Its eyes are large and blue, resembling those of a clown. The most noticeable feature is DSC-MATE-9719's frightened mouth, causing it to appear startled or apprehensive. It speaks in a soft, gentle voice.

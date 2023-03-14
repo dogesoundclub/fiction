@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7017
+Description: Subject 7017 appears to be a human male with normal biological features; however, their facial features are notably unusual. They have numerous spots on their face, which are characteristic of a skin condition that the Foundation has yet to identify. Their mouth appears to be in a constant state of fear, and their eyes are a bright blue color that borders on the abnormal. In addition, Subject 7017 has a gold earring and a silver chain that they wear at all times.

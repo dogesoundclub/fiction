@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5439
+Description: DSC-MATE-5439 is a male monkey of unidentified species, standing 1.2 meters tall with a distinctive green mohawk and a silver chain around its neck. DSC-MATE-5439's eyes are covered by normal glasses, and it is often seen chewing on a candy stick. DSC-MATE-5439 appears to be able to travel freely between different banks, financial institutions, and business centers around the world.

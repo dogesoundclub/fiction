@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4042
+Description: Subject 4042 is an anomalous monkey and former firefighter. The subject stands at approximately 2 feet 8 inches in height and weighs approximately 65 pounds. The subject wears a pair of horn-rimmed glasses and a gold earring on its right ear, as well as a gold chain and candy stick around its neck. 

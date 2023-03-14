@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1574
+Description: DSC-MATE-1574 is a male tiger, approximately 2.5 meters in length and weighing 320 kg. DSC-MATE-1574 wears a purple cap with a headset, a jade earring, a medical mask, and a gold chain. DSC-MATE-1574 is a reporter by trade, and his journalism often focuses on the supernatural and paranormal.

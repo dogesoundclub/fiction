@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2570
+Description: DSC-MATE-2570 appears as a male tiger with a frightened mouth and red clown eyes. DSC-MATE-2570 accessorizes with a purple cap with a headset, gold earring, and a silver chain. DSC-MATE-2570 also possesses a strong sense of independence that makes it difficult for him to ask for help, even when necessary.

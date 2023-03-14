@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5082
+Description: DSC-MATE-5082 appears to be a male monkey of the species Cercopithecus aethiops, standing at approximately 1.2 meters tall. It wears a pair of nerd glasses and has normal black hair. Its left ear has a jade earring, and it wears a silver chain around its neck.

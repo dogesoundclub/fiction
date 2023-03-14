@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5132
+Description: DSC-MATE-5132 appears to be a male robot with normal glasses and a short peak cap. It is noted to wear a goggle on its forehead and a red cross earring. DSC-MATE-5132 also accessorizes with a gold chain and an LED gas mask.

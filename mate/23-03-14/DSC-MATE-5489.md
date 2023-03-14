@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5489
+Description: DSC-MATE-5489 is a male rabbit, approximately 1.2 meters tall when standing on its hind legs. DSC-MATE-5489 has a frightened expression on its face at all times, with a prominent open mouth. The eyes are normal and are covered with standard glasses. DSC-MATE-5489 wears a bucket hat on its head, with a two-color band across its forehead. It also has a gold earring in its left ear. DSC-MATE-5489 is typically seen sporting a normal gas mask accessory.

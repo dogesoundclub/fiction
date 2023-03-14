@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5658
+Description: Subject 5658 is a female human with distinctive features. Her face is adorned with orange stripes and a red lip, while her eyes exhibit an unnerving red clown-like trait. Her head is green and adorned with edge curls reminiscent of a leaf. She always wears a medical mask over her mouth, purportedly to protect her from airborne contaminants.

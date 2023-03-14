@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5921
+Description: DSC-MATE-5921 is a human female of unknown age and origin, assumed to be of Terran origin. The subject presents several unusual physical traits, including orange stripes on her cheekbones, blue clown eyes, and red lips. DSC-MATE-5921's head is covered by an ushanka hat, concealing her hair color and texture. The subject tends to wear distinctive jade earrings and a silver chain around her neck.

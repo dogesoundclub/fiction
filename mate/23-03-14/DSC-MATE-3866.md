@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3866
+Description: Item 3866 appears to be a middle-aged male human measuring 1.8 meters tall with a mouth spot as its distinctive feature. The subject's eyes resemble ski goggles, and the hair is not arranged green. The subject typically wears a gold chain and carries a candy stick in its pocket.

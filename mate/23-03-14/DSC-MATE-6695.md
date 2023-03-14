@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6695
+Description: DSC-MATE-6695 is a male rabbit with a frightened mouth and horned rim glasses. Its head is covered by a blue bandana, and it wears a gold chain around its neck. DSC-MATE-6695 is also equipped with a normal gas mask, which it wears at all times.

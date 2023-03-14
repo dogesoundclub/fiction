@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6471
+Description: DSC-MATE-6471 is a human female with red lips and green hair, usually concealed under a purple cap. DSC-MATE-6471 has a distinctive two-color band on their forehead, with goggles resting above it. Jade earrings adorn their ears, and they regularly carry a lit cigarette.

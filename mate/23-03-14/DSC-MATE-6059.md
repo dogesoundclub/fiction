@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6059
+Description: DSC-MATE-6059 is a male human who previously worked as a banker. DSC-MATE-6059 exhibits a distinct fear response, often characterized by a trembling and wide-open mouth. DSC-MATE-6059's eyes manifest as red clown eyes, on occasion, exhibiting circus-style flashing lights. DSC-MATE-6059's head is outfitted with a headset with a built-in LED light. A two-color band commonly adorned on DSC-MATE-6059's forehead. DSC-MATE-6059 can be seen with a cigarette in his mouth. 

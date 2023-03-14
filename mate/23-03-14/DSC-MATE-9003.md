@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9003
+Description: DSC-MATE-9003 is an advanced humanoid robotic unit manufactured by a now-defunct technological corporation. The unit measures 170 cm in height and weighs 68 kg. The face of the unit is adorned with frightened mouth and ski goggle eyes. The unit's head is designed following the style of a hoodie, while the mouth is covered with a medical mask. An accessory, in the form of a gold chain, is attached around the unit's neck.

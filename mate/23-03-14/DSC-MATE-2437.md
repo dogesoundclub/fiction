@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2437
+Description: DSC-MATE-2437 appears to be a human male of average height and build, with distinct orange stripes on his facial features. His most notable feature is his infectious smile, which can often be seen even when he's not in the best of moods. DSC-MATE-2437 wears normal glasses and his head is typically covered by a hoodie. A 2-color band is visible on his forehead, and he is often seen wearing a gold chain and carrying a candy stick.

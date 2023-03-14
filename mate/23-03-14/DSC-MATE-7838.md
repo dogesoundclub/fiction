@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7838
+Description: Item #7838 is a fashion designer whose physical features are unique. Many of their features seem to be manufactured, and it is unclear whether they were born with them or they chose to modify their appearance. They have on many occasions displayed the ability to manipulate fabric and create designs to suit almost any occasion.

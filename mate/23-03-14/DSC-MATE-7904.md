@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7904
+Description: DSC-MATE-7904 is a male humanoid identified as a fashion designer. They are physically unremarkable except for the presence of several spots on their face, which are believed to be the result of a skin condition. Their head is adorned with a purple cap with a headset, and they wear normal glasses.

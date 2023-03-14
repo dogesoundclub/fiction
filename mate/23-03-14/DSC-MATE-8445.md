@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8445
+Description: DSC-MATE-8445 appears to be a Caucasian male in his mid-50s, standing at 1.8 meters tall and weighing approximately 80 kilograms. DSC-MATE-8445's most prominent anomalous features are the orange stripes on his face, blue clown eyes and a police cap on his head. DSC-MATE-8445 has a small red victory band on his forehead and is always seen holding a cigarette. 

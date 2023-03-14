@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6967
+Description: DSC-MATE-6967 appears to be a human female in her mid-30s, with blue clown eyes and a headset with LED attached to her head. DSC-MATE-6967 commonly wears a choker and a normal gas mask. DSC-MATE-6967's personality is typically dry and curt, with a penchant for delivering deadpan jokes. DSC-MATE-6967 often catches people off guard with her sense of humor, which has been known to be surprisingly funny.

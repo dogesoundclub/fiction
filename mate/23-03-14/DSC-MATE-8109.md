@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8109
+Description: DSC-MATE-8109 is a robot of unknown manufacture, resembling a humanoid figure. DSC-MATE-8109 stands approximately 5’8” tall and weighs approximately 180 lbs. It is easily identifiable by its bright green cyclops eye, skier’s goggles, doge hat, jade earring, and cigarette accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5221
+Description: DSC-MATE-5221 is a male human of indeterminate age, with a distinctive appearance. The subject has red clown eyes, which are believed to be a result of anomalous alterations to the subject's genetic makeup. DSC-MATE-5221's head is made of a metal alloy of unknown composition, and is colored purple. The subject also has green cross earrings, a red scarf, and carries a candy stick as a form of personal adornment.

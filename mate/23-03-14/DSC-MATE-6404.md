@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6404
+Description: DSC-MATE-6404 is a male rabbit of the species Oryctolagus cuniculus. Despite its small stature, DSC-MATE-6404 has demonstrated an uncanny ability to make deliveries throughout the city without being detected by surveillance systems or human observers. DSC-MATE-6404's eyes are modified with VR Rainbow LED implants, allowing it to see in the dark and track its surroundings with exceptional accuracy.

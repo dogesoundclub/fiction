@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2563
+Description: DSC-MATE-2563 is a humanoid robot identified as a car salesman operating in an undisclosed location prior to containment. DSC-MATE-2563 stands at 1.7 meters tall and has a green Cyclops eye located in the center of its head, with VR rainbow LED eyes and a frightened mouth. Its head is adorned with a red alarm and its ears have a gold earring. DSC-MATE-2563 wears a gold chain as an accessory.

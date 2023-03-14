@@ -1,0 +1,2 @@
+ID # : DSC-MATE-344
+Description: DSC-MATE-344 is a human female believed to be in her late 20s to early 30s, standing at 171 cm tall and weighing approximately 54 kg. DSC-MATE-344's most notable facial features are the spots on her cheeks and the purple color of her lips. DSC-MATE-344 has blonde hair often seen wearing an ushanka, with a green cross earring on her left ear.

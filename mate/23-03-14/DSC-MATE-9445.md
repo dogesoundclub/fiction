@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9445
+Description: DSC-MATE-9445 is a male human of average build and height. It has a number of distinguishable features, including spots on its face and VR Rainbow LED eyes. DSC-MATE-9445 also wears a blue bandana on its head and a jade earring in one ear. It is often seen wearing a red scarf and smoking a cigarette. DSC-MATE-9445 works as a real estate agent outside of Foundation containment.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5657
+Description: DSC-MATE-5657 is a human male, approximately 45 years of age, with distinctive orange stripes on his face. DSC-MATE-5657 is identified as a train driver, and often wears a bucket hat and a red victory band on his forehead as part of his uniform. He also carries candy sticks as his usual accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3685
+Description: DSC-MATE-3685 appears as a male Bengal tiger with a blue bandana covering its head, a gold earring in its left ear, and horned rim glasses resting on its nose. DSC-MATE-3685 wears a medical mask over its mouth at all times. An anomalous gold chain is also present on DSC-MATE-3685's person, which cannot be removed without causing severe agitation and distress.

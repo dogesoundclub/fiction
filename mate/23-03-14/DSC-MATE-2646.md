@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2646
+Description: DSC-MATE-2646 is a male tiger with red clown eyes and a green, disorganized head of fur. DSC-MATE-2646 typically wears a red scarf and a gold earring in its right ear.

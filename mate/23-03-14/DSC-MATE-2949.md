@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2949
+Description: Subject 2949 appears to be a human female of average height and weight. She possesses striking facial features, including orange stripes and red lips. The subject also has orange eyebrows and a short, witch-like hairstyle. A distinctive feature of 2949 is her use of a cigarette, which she is often seen smoking.

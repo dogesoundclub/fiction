@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3490
+Description: DSC-MATE-3490 is a human female of average height and build with orange stripes on their face and red lips. They possess orange eyebrows, 00s school girl hairstyle, and wear a silver chain around their neck. On their forehead, DSC-MATE-3490 wears a goggle, and they wear a single jade earring on their right ear.

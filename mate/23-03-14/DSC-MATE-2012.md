@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2012
+Description: Item 2012 appears to be a middle-aged human male, standing at 6 feet 2 inches tall with an athletic build. The item has a unique feature on the lower right side of its mouth, often referred to as "Mouth Spot". The item is frequently observed wearing a medical mask over its mouth, along with a Doge hat on its head. Its eyes are a bright blue color, and have been observed to have the appearance of clown eyes. Item 2012 has a jovial personality and often greets personnel with a smile.

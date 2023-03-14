@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9001
+Description: DSC-MATE-9001 is a male rabbit of average height, weighing approximately 1.5 kilograms. Its remarkable feature is a set of blue clown eyes that can rotate in different directions independently. DSC-MATE-9001 wears a purple cap with a headset attached. Its accessories include a gold earring, a red scarf, and a candy stick that is always in its mouth.

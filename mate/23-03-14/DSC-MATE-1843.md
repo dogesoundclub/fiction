@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1843
+Description: 1843 is a humanoid robot identified as a male police officer. It stands at 6’2” and weighs approximately 220 pounds. 1843’s most notable feature is its single green cyclops eye, which glows brightly in low light conditions. Its mouth is in a permanent expression of fear, giving a comical appearance. 1843 can often be seen wearing nerd glasses and goggles on its forehead. It also has a gold earring on its left ear.

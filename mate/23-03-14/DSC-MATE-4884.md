@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4884
+Description: DSC-MATE-4884 is a human female licensed beautician. Of particular note is DSC-MATE-4884’s unusual appearance, as she wears a pink rabbit head and a medical mask that entirely covers her mouth. DSC-MATE-4884 also has orange eyebrows and spots on her face, and her ears are adorned with jade earrings.  She often wears a gold chain around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4997
+Description: Item 4997 is a male tiger, standing approximately 6 feet tall on its hind legs. The creature wears a pair of nerd glasses, with a distinctive two-color band across its forehead. Its mouth is covered by a medical mask, which appears to be surgically attached to the creature's face. Item 4997 is often seen wearing a red scarf around its neck.

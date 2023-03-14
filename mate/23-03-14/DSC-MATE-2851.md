@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2851
+Description: DSC-MATE-2851 is a female human, with notable facial features. Orange stripes are visible on the sides of her face, and she consistently wears red lipstick. Her eyes are cybernetic and display a VR rainbow LED. DSC-MATE-2851's head is of an 00s schoolgirl style.

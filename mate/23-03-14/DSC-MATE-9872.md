@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9872
+Description: DSC-MATE-9872 is a male monkey of an unknown species, dressed in a Traffic Officer uniform. DSC-MATE-9872 has a frightened mouth and unknown eyes – due to its hat and additional accessories – and wears a silver chain and jade earring. Its hat is adorned with two color bands, while it carries a candy stick in its hand.

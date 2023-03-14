@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1556
+Description: Item #1556 is a male monkey of unknown species, measuring 2 feet tall when standing. Its face features a frightened mouth, while its eyes resemble ski goggles and its ears bear a jade earring.

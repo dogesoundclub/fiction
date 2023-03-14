@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8354
+Description: DSC-MATE-8354 is a sentient tiger that appears to be a humanoid wearing horned rim glasses, a blue bandana on its head, and a goggle on its forehead. It is often found wearing a silver chain and smoking a cigarette. It is capable of communicating in English, Spanish, and French.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3376
+Description: Subject 3376 is a human male with a normal blonde hair cut. Subject 3376 exhibits two unique features on his face: a mouth spot and frightened mouth. His forehead displays a two-color band in a distinctive pattern.

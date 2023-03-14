@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3702
+Description: Subject 3702, colloquially known as The Harebrained Courier, is a male rabbit of average height and build. The subject wears a hoodie and normal glasses, with a distinctive 2 color band on its forehead. Despite its occupation as a delivery driver, subject 3702 has displayed a consistent lack of focus and difficulty with attention to detail. These attributes have led to a history of missed or delayed deliveries, as well as frequent episodes of disorientation and forgetfulness.

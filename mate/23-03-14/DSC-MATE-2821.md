@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2821
+Description: DSC-MATE-2821 is a male Siberian tiger who presents himself as a news anchor. He wears a red beanie on his head, horn-rimmed glasses, and has a jade earring on his right ear. DSC-MATE-2821 is often seen with a cigarette in his mouth.

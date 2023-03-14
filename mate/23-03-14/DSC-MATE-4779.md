@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4779
+Description: Subject 4779, also known as "The Banker", is a human female of average height and build. The most noticeable features of subject's appearance are the spots on her face and red lipstick. Subject's eyes are a striking orange color and she wears gold earrings in her ears. The subject's hair is styled in distinctive pig tails. A goggle is commonly worn on subject's forehead when brainstorming. 

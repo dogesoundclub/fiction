@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9787
+Description: DSC-MATE-9787 appears to be a male human of average height and weight, with orange stripes running across its face and green layers covering its head. The most notable feature of DSC-MATE-9787 are its blue clown eyes and green cross earring. DSC-MATE-9787 is often seen wearing a red scarf and a normal gas mask.

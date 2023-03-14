@@ -1,0 +1,2 @@
+ID # : DSC-MATE-124
+Description: Dr. Stripes is a human female with striking orange stripes on her face, accompanied by purple lips and a pair of unnerving blue clown eyes. Her head is adorned with 90s-style brown hair and a jade earring in each ear, while she is often seen wearing a silver chain around her neck.

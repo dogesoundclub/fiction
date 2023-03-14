@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1631
+Description: Subject 1631 is a male tiger, approximately 2.5 meters in length and weighing approximately 250 kilograms. The subject's eyes are replaced with a pair of ski goggles, its ears adorned with a jade earring, and its mouth regularly covered with a medical mask. Subject 1631 also wears a red scarf as an accessory.

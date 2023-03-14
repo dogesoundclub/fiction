@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1610
+Description: DSC-MATE-1610 is a male tiger with the physical appearance of a human, including the ability to speak and make use of opposable thumbs. Its head is adorned with a "Doge" hat, and it wears a gold earring in one ear. DSC-MATE-1610 is often seen wearing a red scarf as an accessory.

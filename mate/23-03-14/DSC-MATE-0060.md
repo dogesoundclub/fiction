@@ -1,0 +1,2 @@
+ID # : DSC-MATE-60
+Description: DSC-MATE-60 is a male rabbit with the ability to speak English. DSC-MATE-60 is easily identifiable by its retro cap and red victory band on its forehead. DSC-MATE-60 also wears a gold chain and carries a whistle with it at all times. DSC-MATE-60's eyes are currently unknown as it refuses to remove its cap, however, it has shown no abnormal behavior pertaining to its vision.

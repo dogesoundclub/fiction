@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1057
+Description: DSC-MATE-1057 is a male robot designed in the likeness of a fashion designer. Their eyes are VR Rainbow LED, their head is covered by a bucket hat, and they wear a red cross earring on one ear. DSC-MATE-1057's mouth is obscured by a medical mask, and they communicate through vocal synthesizers.

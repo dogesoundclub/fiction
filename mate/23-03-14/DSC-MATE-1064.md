@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1064
+Description: DSC-MATE-1064 is a female human of average height and weight, with distinct spot patterns on her face. DSC-MATE-1064 is known to wear a purple cap with a headset and green cross earring attached to her ears. The most prominent feature of DSC-MATE-1064 are her eyes, which are VR Rainbow LED.

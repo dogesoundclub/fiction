@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6881
+Description: DSC-MATE-6881 is a human male, approximately 60 years of age, with green layers on their head, blue clown eyes and a mouth spot. They possess a clown's mouth, which has been surgically attached to their face. DSC-MATE-6881's ears are adorned with a green cross earring and wear a silver chain as an accessory.

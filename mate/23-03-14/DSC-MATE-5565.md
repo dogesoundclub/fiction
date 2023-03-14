@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5565
+Description: Subject 5565 appears to be a seemingly ordinary human male, standing at approximately six feet tall. However, his physical appearance is enhanced by cybernetic implants, including glowing VR Jade LED eyes and a monk's bald head with a goggle on his forehead. His jade earring and silver chain further adorn his attire, along with a normal gas mask.

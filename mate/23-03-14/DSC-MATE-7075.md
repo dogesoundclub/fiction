@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7075
+Description: DSC-MATE-7075 is a male human approximating 35 years of age. He has spots on his face and wears normal glasses. DSC-MATE-7075's head is made of a metallic, purple material, with a goggle attached to his forehead. He wears a jade earring, a medical mask covering his mouth, and a gold chain as an accessory.

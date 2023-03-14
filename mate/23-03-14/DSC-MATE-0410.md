@@ -1,0 +1,2 @@
+ID # : DSC-MATE-410
+Description: DSC-MATE-410 appears as a Bengal tiger, measuring 2.5 meters in length and 2 meters in height. It wears a blue bandana around its head and is adorned with a gold chain and candy stick. DSC-MATE-410 is the only known instance of an anomalous tiger species that possesses the cognitive abilities and personality of a human.

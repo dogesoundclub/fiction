@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2075
+Description: Subject 2075 is a female mechanic with a smile and spotted face. The subject's blonde hair features a wing, with a goggle propped up on the forehead. The subject wears a medical mask over their mouth and a silver chain as an accessory. Their distinctive feature is the Red Cross Earring present on both ears. The eyes of 2075 feature VR Rainbow LED installed, which is operating correctly and without signs of malfunction.

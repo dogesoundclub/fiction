@@ -1,0 +1,2 @@
+ID # : DSC-MATE-454
+Description: DSC-MATE-454 is a male tiger with distinctive horned rim glasses. Its facial expression is frequently overwhelmed, with a frightened mouth that suggests anxiety or panic. DSC-MATE-454's head is not arranged green, resulting in a patchy and inconsistent fur pattern. It wears a silver chain necklace and carries a whistle with it at all times, which it occasionally uses to attract attention.

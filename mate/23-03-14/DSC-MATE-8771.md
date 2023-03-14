@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8771
+Description: DSC-MATE-8771 is a male rabbit identified as a delivery driver. DSC-MATE-8771 possesses blue clown eyes, which seem to be a natural part of its anatomy. Its head is adorned with a headset connected to an LED system, which seems to be a critical component in its ability to communicate with others. Two unique features are present on its forehead: a red victory band and a goggle.

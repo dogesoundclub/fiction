@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3000
+Description: Subject 3000 is a male monkey that stands at 90 cm and weighs approximately 12 kg. The creature possesses human-like intelligence, with an ability to speak in multiple languages. The monkey's eyes are visible through normal glasses, and the forehead exhibits a characteristic two-color band with goggles resting above the band. A jade earring is attached to the subject's left ear.

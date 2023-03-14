@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5837
+Description: Item 5837 appears to be a common rabbit, given the designation "Car Salesman" due to its anomalous abilities. The rabbit stands upright and is roughly 2 feet tall when fully stretched out. The rabbit has Jade LED eyes and a frightened mouth, which appears to be a result of constant terror that it may forget something.

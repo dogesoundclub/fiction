@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3583
+Description: DSC-MATE-3583 is a human female with distinctive spotted facial markings and blue clown eyes. The subject's hair is disheveled and dyed green. DSC-MATE-3583 possesses a natural charm and charisma that is highly appealing to individuals they encounter.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6154
+Description: DSC-MATE-6154 is a human male with facial features that include spots and a constant smile. DSC-MATE-6154's eyes appear to be those of a clown and are a bright blue color. DSC-MATE-6154's blonde hair is styled in a typical men's cut, and he wears a gold earring in his left ear. At all times, DSC-MATE-6154 wears a red scarf around his neck.

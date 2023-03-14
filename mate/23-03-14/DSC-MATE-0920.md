@@ -1,0 +1,2 @@
+ID # : DSC-MATE-920
+Description: Subject 920 is a female human with a distinctive appearance. They are often seen wearing a hooded sweatshirt, which obscures their facial features, and a medical mask covers their mouth. They also wear a gold chain around their neck.

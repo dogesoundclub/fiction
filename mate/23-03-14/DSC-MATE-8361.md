@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8361
+Description: DSC-MATE-8361 is a human female in their early thirties. They are a news anchor for a local news station and maintain a prominent position within the community. DSC-MATE-8361 is easily identifiable by their unique facial features, including purple lips, normal glasses, and a purple cap with a headset. DSC-MATE-8361 also wears a green cross earring and a choker. They are often found smoking a cigarette during their off-air time. 

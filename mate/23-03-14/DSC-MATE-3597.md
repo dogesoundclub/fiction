@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3597
+Description: DSC-MATE-3597 is a female human with spots on their face and a constant smile. Their eyes are obscured by normal glasses, and they wear a red cross earring. DSC-MATE-3597 is often seen wearing a gas mask, the reason for which is currently unknown.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3209
+Description: 3209 is a human male in his late twenties, with a cheery disposition and a permanent smile that belies his tough exterior. He is commonly found wearing a vintage cap with a silver chain hanging from it. His eyes are fitted with what the locals refer to as 'nerd glasses', further adding to his affable appearance. His accessory of choice is an old fashioned candy stick, often seen stuck to the corner of his mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4497
+Description: DSC-MATE-4497 is a human male with distinctive orange stripes on its face. It wears an LED gas mask that obscures its facial features. However, it is noted that DSC-MATE-4497 has blue clown eyes that remain visible even with the gas mask on. Despite its villainous nature, DSC-MATE-4497’s face perpetually bears a smiling expression.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8295
+Description: Object 8295 is a male robot with a frightened mouth feature. It wears horned rim glasses over its mechanical eyes, and a bucket hat atop its head. Its mouth is covered by a medical mask, and it is often seen sporting a gold chain as an accessory.

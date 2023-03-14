@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3470
+Description: Subject 3470 is a human male with distinctive spot markings on their face. They keep their head covered with a bucket hat, adorned with a red victory band on their forehead. Subject 3470 also wears a jade earring and a gold chain.

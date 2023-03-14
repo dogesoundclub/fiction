@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8274
+Description: Subject 8274 is a human male of average height and build, with distinctive spots on his face. The subject's most notable feature is his ever-present smile, which is believed to be a cover for his true nature. Subject 8274 is always seen wearing nerd glasses, giving him a distinct look of intelligence.

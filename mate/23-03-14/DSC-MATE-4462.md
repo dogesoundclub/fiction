@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4462
+Description: DSC-MATE-4462 is a rabbit species humanoid, measuring approximately 1.6 meters in height. Its eyes are a bright blue color and appear similar to clown makeup. DSC-MATE-4462's head is adorned with a purple cap with a headset, and its forehead features a two-color band. It wears a jade earring and a gold chain.

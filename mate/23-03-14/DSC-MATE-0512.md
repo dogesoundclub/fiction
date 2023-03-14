@@ -1,0 +1,2 @@
+ID # : DSC-MATE-512
+Description: DSC-MATE-512 is a humanoid robot measuring approximately 1.8 meters in height. It possesses one large, green cyclops eye on its face and a frightened mouth. Its head is covered by a purple cap with a headset attached. DSC-MATE-512 also wears a silver chain and an LED gas mask as accessories.

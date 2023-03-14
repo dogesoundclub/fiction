@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7506
+Description: DSC-MATE-7506 appears as a human female, with distinctive facial features such as spots and a purple lip. The subject's eyes are notable for their orange eyebrows, while she wears a purple cap with a headset, and gold earrings. Beneath the subject's appearance, a dangerous personality prevails. They can be careless and impulsive, causing them to act before thinking their actions through properly. This tendency can lead to humorous situations, such as minor accidents or other blunders, while attempting to impress others.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8911
+Description: DSC-MATE-8911 appears to be a male human in his mid-30s with blue clown eyes and a frightened mouth. He is often seen wearing a short peak cap with a 2 color band on his forehead, a medical mask covering his mouth, and a jade earring in his left ear. He also wears a gold chain around his neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1806
+Description: DSC-MATE-1806 is a male robot, measuring 1.80 meters in height. Its head is a different shade of green, indicating that it was originally intended as a customizable feature by the creators. The robot wears a red cross earring on its left ear and a medical mask on its mouth, indicating a sense of style and a concern for hygiene. DSC-MATE-1806 also wears a silver chain, which is not known to have any anomalous properties. 

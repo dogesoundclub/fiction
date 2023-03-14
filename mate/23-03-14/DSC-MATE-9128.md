@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9128
+Description: DSC-MATE-9128, also known as "Bugs", is a male rabbit standing at 4 feet tall. He is often seen wearing a purple cap with a headset, a gold earring, and a red scarf. His most notable features are his frightened mouth and red clown eyes, which glow in low light conditions. DSC-MATE-9128's personality is vibrant and enthusiastic, which can lead to humorous situations with his colleagues.

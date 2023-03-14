@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9378
+Description: DSC-MATE-9378 is a male adult rabbit with average physical characteristics. DSC-MATE-9378's most prominent features are his frightened mouth and VR Jade LED eyes, which emit a faint glow in the dark. DSC-MATE-9378's head is adorned with a police cap, and his ears have a jade earring attached to it. DSC-MATE-9378 also wears a gold chain around his neck and an LED gas mask as a precautionary measure.

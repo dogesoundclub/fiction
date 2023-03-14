@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2629
+Description: Subject 2629 is a female of the Homo sapiens species, displaying unique physical traits. The subject has numerous spots on their face, believed to be a genetic anomaly. They wear a tiara on their head and have green cross earrings on their ears. Subject 2629 wears normal glasses that appear to have no anomalous properties. Their most distinct feature is their red lips, which often stand out in contrast with their otherwise-muted appearance. They carry a silver chain and are frequently observed holding a cigarette.

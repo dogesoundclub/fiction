@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8326
+Description: Subject 8326 is a human female who stands at 5’6” inches tall. She has short flowing hair, resembling that of a witch. Her eyes are red and possess an unusual clown-like appearance. She can often be seen wearing a silver chain and a prominent jade earring. She is rarely seen without a cigarette in hand.

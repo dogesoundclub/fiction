@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2583
+Description: DSC-MATE-2583 is a male monkey, standing at approximately 65 cm in height. The subject appears to have green hair and wears a purple cap, a pair of nerd glasses, and a Jade Earring. On DSC-MATE-2583's forehead is a pair of goggles, and the subject often carries a lit cigarette.

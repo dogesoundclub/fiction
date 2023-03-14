@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9179
+Description: DSC-MATE-9179 is a human female of average height and weight. DSC-MATE-9179's most notable feature is a series of spots on their face, complemented by a purple lip. DSC-MATE-9179's eyes are a bright shade of blue, reminiscent of clown makeup. DSC-MATE-9179's green hair is usually found tied up in a purple cap, and they can often be seen wearing a medical mask on duty. DSC-MATE-9179 possesses a gold chain as a personal accessory. 

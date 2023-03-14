@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9065
+Description: DSC-MATE-9065 is a male monkey measuring approximately 1.2 meters in height when standing upright. He possesses blue clown eyes and wears a purple cap with a headset. DSC-MATE-9065's forehead features a goggle, and he is often seen wearing a jade earring and a red scarf as well. 

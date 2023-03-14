@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3442
+Description: DSC-MATE-3442 is a human female with prominent spots and red lips on her 00s schoolgirl appearance. Her eyes are light orange, and she wears a gold earring accessory. DSC-MATE-3442 also wears a medical mask for unknown reasons, and has a gold chain that she often fidgets with.

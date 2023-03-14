@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5616
+Description: DSC-MATE-5616 is a human male with a unique appearance. They have a noticeable Mouth Spot on the left-hand side of their mouth and Blue Clown Eyes. DSC-MATE-5616's head is adorned with green hair and a Purple Cap, with a Jade Earring on their left ear. They often wear a Medical Mask and a Silver Chain as an accessory.

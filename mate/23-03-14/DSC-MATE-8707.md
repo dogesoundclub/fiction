@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8707
+Description: DSC-MATE-8707 is a human female of indeterminate age, and the current leader of an organized crime syndicate operating in [REDACTED] city. DSC-MATE-8707 displays a variety of unusual physical features, including orange stripes on her face, purple lips, and rainbow-coloured hair styled in the fashion of a festival attendee. Her forehead is adorned with a two-colour band and a pair of goggles, while she wears standard glasses over her eyes. Earlobes are pierced, and she wears a single large jade earring in each, and a choker around her neck.

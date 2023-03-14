@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9918
+Description: Subject 9918 is a male human, working in a traditional beautician profession. The subject presents with a blue bandana on its head and green cross earrings on each ear. The subject's eyes are fitted with an unusual pair of nerd glasses. The individual presents a unique mouth spot and accessorizes their attire with a silver chain and candy stick.

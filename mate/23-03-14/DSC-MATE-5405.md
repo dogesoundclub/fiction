@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5405
+Description: Subject 5405 is a female human of average height and build. Their most notable physical feature is their purple lip, which stands out against their otherwise unremarkable appearance. They wear normal glasses over their eyes, which does not appear to impair their vision. Their head is covered in a reflective metal blue surface, giving the impression that it has been replaced with some kind of cybernetic enhancement. The forehead features a two-color band, which seems to be a decorative accessory.

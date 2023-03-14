@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6863
+Description: DSC-MATE-6863 is a male tiger, standing at approximately 8 feet tall and weighing around 400 pounds. Its face features a perpetually frightened mouth and a medical mask, which covers the bottom half of its face at all times. DSC-MATE-6863's unusual appearance is further enhanced by the presence of a Red Cross Earring on its left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6499
+Description: DSC-MATE-6499 is a human male of average height and build, with orange stripes on his face and a frightened mouth expression. DSC-MATE-6499's head is adorned with a police cap, and he wears a green cross earring on his left ear. DSC-MATE-6499 often wears a gold chain around his neck, and can be seen carrying a candy stick as a form of stress relief.

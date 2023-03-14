@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8196
+Description: DSC-MATE-8196 is an anomalous anthropomorphic rabbit standing approximately 1.2 meters tall. Its fur is not arranged green and it has a pair of ski goggles for eyes, and an earring made of jade in each ear. It also sports a thick gold chain around its neck, as well as a whistle that it frequently uses to communicate.

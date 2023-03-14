@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6164
+Description: DSC 6164 appears to be a member of the Capuchin Monkey species. However, it carries a red scarf around its neck and produces blue clown-like eyes whenever it interacts with humans. The purpose is not yet clear but it is suggested that it uses these traits to gain attention and/or sympathy from humans. It also has a whistle which it uses for communication, but not in a manner  similar to the primate language. The whistle sound bears no correlation to any known primate calls. 

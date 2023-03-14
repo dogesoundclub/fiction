@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1465
+Description: DSC-MATE-1465 is a human male of East Asian descent, approximately 28 years of age. The subject's face is characterized by a constantly frightened expression, with wide open mouth, and thick nerd glasses covering his small, dark eyes. The subject's entire head is covered by a semi-organic material of a metallic purple hue, which appears to be bonded with his skin. The source of this head covering is currently unknown.

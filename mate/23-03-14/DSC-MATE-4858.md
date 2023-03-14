@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4858
+Description: Subject (referred to as "The Boss") is a human male with distinctive orange stripes on his face. His eyes are a bright red, reminiscent of clown makeup. The Boss' head appears to be unarranged and is a disturbing shade of green, almost mold-like in appearance. A two-color band is present on his forehead, and he wears a medical mask over his mouth.

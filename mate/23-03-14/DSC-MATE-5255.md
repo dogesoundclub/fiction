@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5255
+Description: DSC-MATE-5255 is a male monkey of an unspecified species, possessing black hair and normal glasses. They typically sport a goggle on their forehead and a gold earring on their left ear. DSC-MATE-5255 is also seen wearing an LED gas mask, which serves to conceal its face from other individuals who may find its appearance unsettling.

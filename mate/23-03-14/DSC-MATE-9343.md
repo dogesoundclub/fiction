@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9343
+Description: Subject 9343 is a human male with distinctive clown-like features. His most notable feature is the twisted, red-painted clown mouth that stretches across his face. His blue clown eyes are unnaturally bright and seem to glow in the dark. He is often seen wearing a police cap and a jade earring in his left ear. He is also frequently seen carrying a candy stick as an accessory.

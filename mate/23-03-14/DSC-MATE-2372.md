@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2372
+Description: Subject 2372 appears to be a female human in her late 20s with distinctive features including purple lips, green cross earrings adorning both ears, and a choker. She is characterized by her signature pigtail hairstyle and LED gas mask, which she wears at all times. Subject displays a strong sense of duty and responsibility in both her job as a mechanic and her personal life.

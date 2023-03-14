@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5140
+Description: Subject 5140 is a human female, approximately 30 years of age, with short, witch-like hair and a distinctive two-color band in the forehead. The subject wears normal glasses, a jade earring on each ear, and a silver chain as an accessory. The most noticeable feature of the subject is her smile, which remains on her face most of the time.

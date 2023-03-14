@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1133
+Description: DSC-MATE-1133 is a robotic entity, resembling a human male police officer, standing at 1.78 meters tall with a weight of approximately 90 kilograms. DSC-MATE-1133's notable features include a green cyclops eye, horned rim glasses, short peak cap on its head, and a silver chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5744
+Description: DSC-MATE-5744 appears to be a female human of Asian descent with jade earrings and a choker. DSC-MATE-5744's most notable feature is her constant smile, which adds a deceptive ease to her appearance. Her normal glasses obscure minimally pigmented eyes behind which appear to be devoid of any noteworthy anomaly.

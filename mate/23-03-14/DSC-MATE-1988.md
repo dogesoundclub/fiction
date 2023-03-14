@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1988
+Description: Subject 1988 is a female human of indeterminate age and ethnicity, standing at approximately 5'6" tall with a slim frame. The subject's most notable feature is their constant smile, which is both engaging and somewhat unnerving. Subject 1988's cybereyes are of the VR Jade LED model, allowing them to access and process large amounts of visual data at remarkable speeds.

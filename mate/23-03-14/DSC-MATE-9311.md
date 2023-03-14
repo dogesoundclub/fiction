@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9311
+Description: DSC-MATE-9311 (also known as "Spots") is a female human with distinctive spots on her face and a purple lipstick. She has brown hair styled in a 90s fashion, and commonly wears a gold chain around her neck along with a gas mask for respiratory protection. DSC-MATE-9311 currently works as a fast food worker at [DATA EXPUNGED] , and has exhibited no abnormal behaviors in her workplace.

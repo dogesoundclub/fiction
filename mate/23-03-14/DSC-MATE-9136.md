@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9136
+Description: Dr. 9136 is a human female with unique physical attributes. She has spots on her face and red clown eyes that give her a distinct appearance. Her short, witch-like hair and red cross earring add to her mysterious aura. Dr. 9136 is often seen wearing a gold chain, adding a touch of elegance to her appearance. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2036
+Description: Subject 2036 is a male rabbit, roughly 2 feet in height, with stark red clown eyes that emit a strange luminescence. The subject's head is primarily covered by a hoodie, with a two-color band on their forehead. They are often seen wearing a silver chain and a whistle around their neck.

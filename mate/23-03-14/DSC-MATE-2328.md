@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2328
+Description: DSC-MATE-2328 is a female human of average height and weight. The subject's face features two distinctive characteristics: orange stripes on her cheeks and a constant smile. DSC-MATE-2328's head resembles that of a 00s school girl, and the subject was observed to wear a silver chain as well as a normal gas mask. DSC-MATE-2328's ears are pierced and adorned with green cross earrings.

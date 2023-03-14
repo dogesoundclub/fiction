@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9578
+Description: 9578 is a humanoid robot created and programmed to work as a banker. Its body is composed of an unknown metallic material with durable plastic parts. The robot stands at 6 feet tall and weighs approximately 200 pounds.

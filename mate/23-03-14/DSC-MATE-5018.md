@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5018
+Description: Subject 5018 is a male human of average height and build, with blue clown eyes that possess an unsettling quality. He often wears a retro cap with a gold earring and a silver chain as accessories. One of the most notable features of the subject is his smile, which is often described as being unnervingly wide.

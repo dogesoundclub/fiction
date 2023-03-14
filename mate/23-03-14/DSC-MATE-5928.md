@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5928
+Description: Subject 5928 is a male human of approximately 35 years of age. Its face features include spots scattered across its skin and a frightened mouth, while its eyes resemble ski goggles. The subject has a distinctive mohawk that appears to be dyed in bright neon colors. Additionally, it possesses a jade earring in one of its ears.

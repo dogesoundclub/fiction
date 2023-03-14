@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2795
+Description: DSC-MATE-2795, a human male and a talented fashion designer who has gained a reputation for his unique creations. The subject's most distinctive facial feature is a pattern of spots, which cover his face and neck. They are most visible when the subject is smiling, which he does frequently. He wears round, normal glasses and a purple cap with a headset. The subject has a gold chain and an LED gas mask as additional accessories.

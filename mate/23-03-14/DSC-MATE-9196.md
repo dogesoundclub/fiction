@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9196
+Description: Subject 9196 is a monkey with a unique appearance. They are often seen wearing a Doge hat on their head, with a 2-color band on their forehead. Additionally, subject is often seen wearing a red scarf and a gas mask, which may indicate some form of environmental sensitivity or an attempt at mimicking human norms.

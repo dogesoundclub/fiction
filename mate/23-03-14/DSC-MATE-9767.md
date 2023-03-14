@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9767
+Description: Subject 9767 appears to be a male rabbit species. However, unlike regular rabbits, this particular specimen is capable of rational thought and speech. The subject is typically observed wearing a red beanie hat over its head, with a gold earring adorned on each ear. Subject 9767 is also seen wearing a silver chain as an accessory. The physical appearance of the rabbit is unremarkable, with no distinguishing features apart from the aforementioned items.

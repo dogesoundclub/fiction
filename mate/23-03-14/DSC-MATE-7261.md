@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7261
+Description: DSC-MATE-7261 is a human female identified as a beautician. The subject is 165 cm tall and weighs approximately 60 kg. DSC-MATE-7261's facial features include spots and red lipstick. The subject's head is of a witch short style, and she wears a goggle on her forehead. The subject's ears have green cross earrings, and she can be found wearing a gold chain around her neck.

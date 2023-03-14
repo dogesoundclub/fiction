@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5374
+Description: DSC-MATE-5374 is a male rabbit humanoid identified as a real estate agent. DSC-MATE-5374 has a vertically stretched Hoodie which obscures its face. However, its Horned Rim Glasses remain visible frames its eyes. DSC-MATE-5374 has an unusual accessory, a gold chain, and a whistle.

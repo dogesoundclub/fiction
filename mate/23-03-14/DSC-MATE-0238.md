@@ -1,0 +1,2 @@
+ID # : DSC-MATE-238
+Description: DSC-MATE-238 is a humanoid robot with a single, green cyclops eye as its primary means of visual perception. Its eyes, however, are outfitted with VR Rainbow LED screens. DSC-MATE-238 has a red alarm head and carries a whistle as an accessory. Its primary function is theater management.

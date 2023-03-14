@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4758
+Description: DSC-MATE-4758 is a human female displaying multiple anomalous features. Most notably, DSC-MATE-4758 possesses orange stripes on their face and purple lips, with blue clown-like eyes. DSC-MATE-4758's head is adorned with green hair in a purple cap, with a two-colored band on their forehead. They also possess a jade earring, a silver chain, and an LED gas mask-like accessory.

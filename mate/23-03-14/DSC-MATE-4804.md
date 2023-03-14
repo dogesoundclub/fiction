@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4804
+Description: DSC-MATE-4804 is a male humanoid of the Homo sapiens species. The subject stands at approximately 6 feet 2 inches and weighs approximately 165 lbs. DSC-MATE-4804 is identifiable by its unique mouth spot and wears nerd glasses over its eyes. It also has a blue bandana tied around its head and a red scarf as its preferred accessory.

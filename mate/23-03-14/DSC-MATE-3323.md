@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3323
+Description: Item #3323 is a male tiger of the Panthera tigris species. What is particularly noteworthy, however, is that Item #3323 is wearing a police cap and a set of nerd glasses over his large, frightened mouth. Upon closer inspection, it can also be seen that there is a set of goggles strapped to his forehead and a medical mask covering his nose and mouth.

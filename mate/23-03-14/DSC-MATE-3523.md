@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3523
+Description: 3523 is a male Human with unique physical features. These include orange stripes on the face, green cross earrings, nerd glasses, a purple cap with a headset, and a gold chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-520
+Description: DSC-MATE-520 appears to be a male tiger with a unique set of features. He wears a purple cap with a headset and has a goggle on his forehead. He also wears a gold chain around his neck and carries a candy stick as an accessory. DSC-MATE-520 often has a frightened expression on his mouth.

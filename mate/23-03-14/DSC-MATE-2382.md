@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2382
+Description: DSC-MATE-2382 appears to be a young female human, approximately 19 years old. Her face is characterized by orange stripes across the cheeks and a bright red lip. DSC-MATE-2382 has green hair secured in a purple cap and dons a jade earring in each ear. DSC-MATE-2382 wears a medical mask and a gold chain as an accessory. 

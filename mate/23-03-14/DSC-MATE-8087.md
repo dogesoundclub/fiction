@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8087
+Description: DSC-MATE-8087 is a male rabbit with distinctive red clown eyes. Despite their unusual appearance, DSC-MATE-8087 has been observed wearing a hoodie and gold chain, which it considers to be a symbol of their position within the Mafia. DSC-MATE-8087 has demonstrated a laid-back and easy-going demeanor, often cracking jokes and making cheeky comments. However, it's been observed that DSC-MATE-8087 can become fiercely protective of their loved ones.

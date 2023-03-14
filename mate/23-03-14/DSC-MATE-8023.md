@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8023
+Description: DSC-MATE-8023 is a female human of average height and weight. DSC-MATE-8023 is distinguishable by her purple lip and choker, which have been shown to emit low-level DSC-███ influence. DSC-MATE-8023's personality is highly introspective and she often becomes lost in thought or daydreams, which has led to numerous accidents in the past.

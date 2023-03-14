@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2209
+Description: Subject 2209 is a human male, aged 34 years old. They work as a beautician and are commonly known for their colorful and avant-garde hairstyles. Subject 2209's most notable feature is the presence of spots on their skin. The spots are evenly distributed across their body and are similar in appearance to leopard or cheetah spots. 

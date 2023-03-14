@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2059
+Description: DSC-MATE-2059 is a human male of average height and build with a unique appearance. Notable features include a mouth spot, ski goggle eyes, and green hair in a purple cap. DSC-MATE-2059 also wears a jade earring on their right ear and a normal gas mask as an accessory.

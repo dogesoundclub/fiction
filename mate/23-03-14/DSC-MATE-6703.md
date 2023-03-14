@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6703
+Description: DSC-MATE-6703 is a human male with a peculiar appearance. It has a "mouth spot," a green layer on the head, and green cross earrings. DSC-MATE-6703's most prominent feature is its "frightened mouth," which gives the impression of being perpetually agitated. DSC-MATE-6703 insists on wearing a LED gas mask, claiming it helps it focus better.

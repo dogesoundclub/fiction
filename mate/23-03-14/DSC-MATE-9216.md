@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9216
+Description: Subject 9216 takes the form of a male Bengal Tiger, approximately 3 meters in length and weighing around 400 pounds. He possesses a unique appearance with a multi-colored bucket hat atop his head, a two color band marking on his forehead, a gold chain around his neck, and a candy stick in his mouth at all times. Despite his intimidating physical form, Subject 9216 exudes a gentle and nurturing personality.

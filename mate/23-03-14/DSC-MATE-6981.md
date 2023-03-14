@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6981
+Description: DSC-MATE-6981 is a Human male of average height and build, with orange stripes located on various portions of his face. DSC-MATE-6981's eyes are protected by a pair of ski goggles, while his head is covered by a short peak cap. DSC-MATE-6981 wears a green cross earring on his left ear, and a medical mask to cover his mouth. DSC-MATE-6981 is also known to wear a red scarf as an accessory.

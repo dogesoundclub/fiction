@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8806
+Description: 8806 is a humanoid robot designed for the sole purpose of providing security. It stands at approximately 1.8 meters tall and weighs around 150 kilograms. Its body is made out of a steel alloy frame, with synthetic skin and fiber-optic veins covering it, giving it the appearance of a muscular man. 

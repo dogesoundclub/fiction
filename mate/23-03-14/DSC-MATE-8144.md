@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8144
+Description: DSC-MATE-8144 is a humanoid figure of the female gender, measuring approximately 5'7" in height. They possess orange stripes on their face, with red clown eyes that seem to change color as they move. DSC-MATE-8144's 90s brown hair hangs down to their shoulders, partially obscuring their face. Their most distinct feature is a jade earring on their left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3870
+Description: Object 3870 is a fashion designer robot, possessing a single green cyclops eye and a red cross earring in its right ear. The object's mouth is concealed by a medical mask, making it difficult to ascertain any vocalizations from the object.

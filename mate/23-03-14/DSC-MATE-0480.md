@@ -1,0 +1,2 @@
+ID # : DSC-MATE-480
+Description: Subject 480 is a male monkey with an anomalous affinity for mechanics and repair work. They possess a unique ability to fix objects and machinery using unconventional methods and materials, leading to some rather impressive feats of engineering. Subject 480 is typically seen wearing a Doge hat and a silver chain, with a jaunty jade earring adorning one ear. Their eyes, while unknown, are presumed to be typical of their species.

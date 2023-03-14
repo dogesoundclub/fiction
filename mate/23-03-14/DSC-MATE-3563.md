@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3563
+Description: DSC-MATE-3563 is a robot police officer, resembling a humanoid male with a green Cyclops eye and a frightened mouth. DSC-MATE-3563 wears nerd glasses and a red cross earring on the left earlobe, along with a silver chain around its neck.

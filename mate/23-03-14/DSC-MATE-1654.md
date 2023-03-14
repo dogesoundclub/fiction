@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1654
+Description: DSC-MATE-1654 is a female human of unknown age and origin, currently occupying the position of Mafia Boss within the criminal underworld. DSC-MATE-1654's face is characterized by orange stripes on either cheek, a purple lip, and red clown eyes. Its head is not arranged in a typical manner, appearing as loose green strands.

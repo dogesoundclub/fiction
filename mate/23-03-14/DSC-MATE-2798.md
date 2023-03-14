@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2798
+Description: Item 2798 is a male tiger, standing approximately 7 feet tall from paw to head. The creature's most distinctive feature is its bright red scarf, which it is known to wear at all times. Other notable accessories include a pair of nerd glasses and a lit cigarette. Item 2798 is also frequently seen wearing a Doge hat and a Red Cross earring.

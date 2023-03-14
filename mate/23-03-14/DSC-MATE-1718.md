@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1718
+Description: DSC-MATE-1718 is a male monkey, identified as a "banker" based on the information provided. It appears to possess advanced cognitive abilities, allowing it to effectively communicate in human languages and perform complex banking tasks. DSC-MATE-1718 has a laid-back demeanor, but can become fiercely protective of loved ones, leading to situations of heightened aggression towards perceived threats.

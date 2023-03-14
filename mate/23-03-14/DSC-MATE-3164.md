@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3164
+Description: DSC-MATE-3164 is a robotic humanoid standing at 1.83m in height, with a single green cyclops eye and horned rim glasses as their main visual receptors. DSC-MATE-3164's head is adorned with a "Doge" hat, and a red cross earring occupies their right auditory organ.

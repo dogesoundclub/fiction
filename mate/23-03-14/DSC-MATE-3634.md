@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3634
+Description: DSC-MATE-3634 is a security guard robot designed by the Foundation for use in high-risk areas. Its body is composed of a combination of metal and plastic materials, with its head being in the shape of a red alarm. DSC-MATE-3634's eyes are ski goggle-like in appearance, and it has a set of jade earrings as ears. DSC-MATE-3634's mouth is covered with a medical mask, and it is adorned with a gold chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9275
+Description: DSC-MATE-9275 is a humanoid entity, biologically identified as human. DSC-MATE-9275 is a female, adorned with an orange-striped face and red lips. Their eyes are abnormal, resembling those of a clown, and are consistently blue. DSC-MATE-9275 displays a retro cap on their head accompanied by golden earrings on their ears. They also wear a choker and have a goggle on their forehead.

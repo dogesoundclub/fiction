@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6193
+Description: 6193 is a human female with a distinctive green hair and edge curl. The subject wears normal glasses and frequently sports a medical mask. The subject is often seen wearing a gold chain as an accessory. On their forehead, there is a two-color band, which is believed to be exposed tissue due to prolonged exposure to an unidentified source.

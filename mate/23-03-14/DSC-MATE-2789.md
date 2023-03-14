@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2789
+Description: 2789 is a car salesman robot of unknown origin. It stands at approximately 6 feet tall and is built with a strong, sturdy frame. The robot's head is equipped with a police cap, its face featuring a green cyclops eye and normal glasses. It has a gold earring and a red scarf draped around its neck.

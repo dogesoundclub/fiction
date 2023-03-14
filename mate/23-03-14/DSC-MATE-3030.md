@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3030
+Description: DSC-MATE-3030 is a male monkey, approximately 1 meter in height when standing upright. It typically wears a retro cap with a 2 color band across its forehead and a jade earring in each ear. DSC-MATE-3030 is notably fearful, and its mouth is almost always open in a frightened expression. It is known to be fluent in many languages and has shown an aptitude for cosmetology, particularly hairstyling and makeup.

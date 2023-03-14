@@ -1,0 +1,2 @@
+ID # : DSC-MATE-378
+Description: DSC-MATE-378 is a male anthropomorphic rabbit standing at 1.20  meters in height with a green hair in purple cap over the head. DSC-MATE-378 displays a frightened mouth and is known to be quite skittish when approached. The subject wears a red victory band across its forehead, a gold earring on its right ear, a silver chain around its neck, and carries a candy stick at all times. The rabbit is a graduate with a degree in veterinary science and has worked as a veterinarian before being located by the Foundation. 

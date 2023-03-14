@@ -1,0 +1,2 @@
+ID # : DSC-MATE-778
+Description: Subject 778 is a human female with distinctive spots on her face and a perpetually wide grin. They possess bright orange eyes with an unusual eyebrow shape and an orange side of the head. On their forehead, there are two color bands and a set of goggles that remain unused. The subject wears a distinctive green cross earring in each ear.

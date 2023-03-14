@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8530
+Description: DSC-MATE-8530 is a human female, measuring around 5'7" in height and has several unique physical characteristics. Her face is marked with irregular orange stripes, while her head is completely metallic blue. The subject's glasses are similar to those worn by individuals with poor eyesight. DSC-MATE-8530's forehead features a 2 Color Band, and she wears a Jade Earring on each ear. She is often observed wearing a medical mask, and a Silver Chain is wrapped around her neck.

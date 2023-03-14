@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2483
+Description: 2483 is a human female with orange eyebrows and green hair, often found wearing a purple cap. Upon their forehead is a two-color band, and they often sport a green cross earring. The subject also wears a choker around their neck and can frequently be found smoking cigarettes when on breaks.

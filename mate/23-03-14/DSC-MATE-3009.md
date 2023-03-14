@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3009
+Description: DSC-MATE-3009 is a human female in her mid-30s. She has purple lips, blue clown eyes, and a green, curly-edged head of hair. DSC-MATE-3009 also wears a single gold earring in her left ear. They are a firefighter by profession.

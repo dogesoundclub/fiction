@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3342
+Description: DSC-MATE-3342 appears to be a normal rabbit wearing a red beanie on its head, a gold earring on its left ear, and a silver chain around its neck. Its eyes are VR jade LED, which can change colors based on the rabbit's mood or state of anger. DSC-MATE-3342 displays a highly analytical and logical personality, but also exhibits wit and humor, often making dry quips and observations.

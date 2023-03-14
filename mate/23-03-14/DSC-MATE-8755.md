@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8755
+Description: Subject 8755 is a female human with normal glasses and distinctive accessories including a purple cap with a headset, green cross earrings, and a silver chain. Her most notable feature, however, is her ability to charm and connect with others in a way that is not typical of most humans.

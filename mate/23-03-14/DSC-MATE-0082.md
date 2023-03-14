@@ -1,0 +1,2 @@
+ID # : DSC-MATE-82
+Description: Subject #82 is a human male, formerly employed as an electrician prior to containment. The subject's eyes have been replaced with VR Rainbow LED implants, which emit a varying range of colors and patterns depending upon the subject's emotions and mental state. The subject is often observed wearing a medical mask, and a gold earring is visible in one ear. A gold chain is also worn as an accessory around the subject's neck.

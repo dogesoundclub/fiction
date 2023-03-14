@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9610
+Description: DSC-MATE-9610 is a male tiger with red clown eyes and a frightened mouth. DSC-MATE-9610's head is adorned with a police cap with a red victory band, and his ears have a red cross earring. DSC-MATE-9610 constantly wears a medical mask over his mouth. DSC-MATE-9610 has gained notoriety among Foundation personnel due to his uncanny ability to anthropomorphize everyday objects, such as his car or household appliances.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-358
+Description: DSC-MATE-358 is a male tiger of indeterminate age. DSC-MATE-358 stands at approximately 2 meters tall when standing on its hind legs. Its eyes contain nerd glasses, and it wears a bucket hat upon its head. A two-color band and a goggle are located on DSC-MATE-358's forehead, and it also wears a jade earring on each ear. DSC-MATE-358's most notable accessory is a whistle.

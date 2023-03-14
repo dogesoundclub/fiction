@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3080
+Description: DSC-MATE-3080 is a human male standing at approximately 6 feet tall with a scruffy beard and a mouth spot. DSC-MATE-3080 typically wears a bucket hat and has a pair of goggles on his forehead. DSC-MATE-3080 also has a green cross earring and wears a silver chain around his neck. DSC-MATE-3080 is known to smoke cigarettes regularly.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9451
+Description: 9451 appears to be a human male, with unusual features of orange stripes on his face and LED rainbow eyes. Additionally, 9451 has a peak spike on the top of his head and is commonly seen wearing a gold chain. 

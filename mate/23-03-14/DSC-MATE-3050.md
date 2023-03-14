@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3050
+Description: Subject 3050 is a human male with a unique appearance. They have several spots on their face and a charming smile that can put anyone at ease. 3050 also wears nerd glasses that cover their curious green eyes. Their head is adorned with green hair peeking out from a purple cap, and their ears decorated with a cross-shaped green earring. Subject 3050 frequently wears a medical mask over their mouth to protect themselves and others from respiratory diseases. They can often be seen wearing a silver chain around their neck as an accessory.

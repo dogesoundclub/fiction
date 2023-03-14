@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2611
+Description: DSC-MATE-2611 is a human male, approximately 32 years old, with a retro cap on his head and a red victory band on his forehead. He also wears a jade earring in each ear and is often seen carrying a candy stick. DSC-MATE-2611 has a natural talent for leadership, and he often finds himself taking charge of situations, whether it's at work, in a social group, or even in his personal life.

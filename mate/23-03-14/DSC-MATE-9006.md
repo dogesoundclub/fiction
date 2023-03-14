@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9006
+Description: Item 9006 is a female human with notable orange stripes on her face and a perpetually friendly smile. She is often seen wearing a blonde ushanka and goggles on her forehead. Additionally, Item 9006 is known to accessorize with a silver chain and LED gas mask.

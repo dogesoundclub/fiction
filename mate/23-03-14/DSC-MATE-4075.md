@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4075
+Description: DSC-MATE-4075 is a robot of unknown origin that appears to resemble a humanoid figure. DSC-MATE-4075 displays a constant expression of fear through its mouth, which is permanently locked in a state of shock. The robot's eyes are ski goggles that emit a red light, which increases in intensity whenever it feels threatened or endangered. DSC-MATE-4075's head is covered by a black hoodie, which conceals the internal mechanisms of the robot.

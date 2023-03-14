@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8866
+Description: DSC-MATE-8866 is a human male with blue clown eyes and a retro cap. DSC-MATE-8866 is often seen wearing a medical mask and gold earring, with a gold chain being his accessory of choice. DSC-MATE-8866's most notable feature is his infectious smile, which is often accompanied by a bright and positive demeanor.

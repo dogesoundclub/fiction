@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9969
+Description: DSC-MATE-9969 is a male monkey that stands approximately 1 meter tall. It has a distinctive frightened expression on its face at all times. The creature often wears a bucket hat on its head and normal glasses to improve its vision. It has a two-color band on its forehead and a gold earring in one ear.

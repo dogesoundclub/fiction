@@ -1,0 +1,2 @@
+ID # : DSC-MATE-466
+Description: DSC-MATE-466 manifests as a male rabbit, standing approximately 1.5 meters in height. It wears a pair of nerd glasses and a single jade earring on its right ear, in addition to several pieces of clothing, including a silver chain and a cigarette. Despite its unconventional appearance, DSC-MATE-466 is fully capable of functioning in human society, and has even maintained employment as a farmer.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5137
+Description: DSC-MATE-5137 appears to be a female human in her mid-30s with distinct spots on her face and a smile that never fades. DSC-MATE-5137's normal glasses cover her typical human eyes, but her witch short haircut and jade earrings give her a distinct appearance. Also, the subject has two color bands running across her forehead and a gold chain around her neck.

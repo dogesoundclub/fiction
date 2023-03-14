@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9151
+Description: Subject 9151 is a human female of average height and build, with notable features including spots on their skin, red clown eyes, and a goggle worn on their forehead. Their head is an unnatural blue color, leading researchers to believe that they may have been exposed to an anomalous substance or event. They often accessorize with a gold chain, which can sometimes be used as a focus for their empathy. 

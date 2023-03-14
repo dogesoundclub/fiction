@@ -1,0 +1,2 @@
+ID # : DSC-MATE-294
+Description: Subject 294 appears to be a human male in his late 30s with a unique appearance. His face is covered in spots, and his mouth appears to be permanently frozen into a frightened expression. His eyes are blue clown eyes, which are always dilated and appear to be fixed on an imaginary object. His head is often covered with a hoodie, and he wears a red victory band on his forehead.

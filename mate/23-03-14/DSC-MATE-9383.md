@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9383
+Description: DSC-MATE-9383 is a male human with blonde hair and striking orange stripes on his face. He has rainbow LED eyes and a gold earring on his left ear. DSC-MATE-9383 wears a silver chain around his neck and LED gas mask to filter out hazardous particulates.

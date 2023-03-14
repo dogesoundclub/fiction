@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5978
+Description: DSC-MATE-5978 is a human female in her mid-twenties who works as a delivery driver for a local restaurant. DSC-MATE-5978's distinguishing features include her red lipstick, red clown eyes, and blonde hair worn in an ushanka. She also wears a medical mask over her mouth to conceal further anomalies. DSC-MATE-5978's forehead is marked with a two-color band, and she wears a green cross earring on each ear.

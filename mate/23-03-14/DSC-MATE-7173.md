@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7173
+Description: DSC-MATE-7173 is a male electrician of rabbit descent, with a frightened mouth feature. The being is approximately 30 cm in height and weighs 1.5 kg. DSC-MATE-7173 has jade earrings on both ears and is most often seen wearing a gold chain around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4968
+Description: DSC-MATE-4968 is a humanoid entity, standing at 147 cm tall and weighing 34 kg. DSC-MATE-4968’s species resembles that of an Oryctolagus cuniculus, with a grey and white fur coat. Two ski goggles serve as DSC-MATE-4968’s eyes, and it wears a black hoodie on its head. DSC-MATE-4968 is often seen with a silver chain around its neck.

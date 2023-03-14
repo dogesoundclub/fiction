@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6315
+Description: Subject 6315 is a human male who works as a news anchor. He wears a blue bandana on his head and sports a green cross earring on his left ear. His mouth is often covered by a medical mask, which he wears for unknown reasons. Additionally, he wears a silver chain as an accessory.

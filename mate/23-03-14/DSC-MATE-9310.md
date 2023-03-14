@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9310
+Description: Subject 9310 appears to be a male monkey with a unique appearance. Its blue clown eyes are an unnatural color for a primate, but they do not seem to affect the subject's vision or cognitive abilities. The subject often wears a silver chain around its neck and is frequently seen smoking a cigarette.

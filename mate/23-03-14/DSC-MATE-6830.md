@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6830
+Description: Subject 6830 is a male human known for his unique appearance. The subject has spots on his face, characteristic of a rare skin condition. Additionally, the subject has a distinctive two-color band on his forehead, making him easily distinguishable.

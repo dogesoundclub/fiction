@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9306
+Description: DSC-MATE-9306 is a female human of European descent, with distinctive facial features. She is often seen wearing an orange-striped medical mask, embellished with a gold chain, and blue clown eyes. Her blonde hair is worn in an ushanka adorned with a two-color band, and she wears jade earrings. She has a warm and engaging smile, which helps her to connect with others quickly and effortlessly.

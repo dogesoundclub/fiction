@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8719
+Description: DSC-MATE-8719, also known as "The Fashion Designer," appears to be a humanoid male with orange stripes on their face, a broad smile, and a purple cap with a headset covering their head. DSC-MATE-8719's ears are pierced with green cross-shaped earrings, and the entity is often seen wearing a red scarf and holding a cigarette.

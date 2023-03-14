@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7223
+Description: DSC-MATE-7223, previously identified as [REDACTED], is a male human of average height and weight. The subject's most distinctive feature is the use of nerd glasses as their ocular aid, and a bucket hat on their head. Subject's style is consistent in a casual urban fashion with a gold chain as an accessory. DSC-MATE-7223 is a beautician by trade and has demonstrated a high level of skill in hair and makeup design.

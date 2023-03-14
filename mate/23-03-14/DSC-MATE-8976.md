@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8976
+Description: DSC-MATE-8976 is a human male with blonde hair, gold earring, and spots on his face. DSC-MATE-8976's most notable feature is an LED gas mask that they wear at all times, claiming that it helps them breathe better. Although DSC-MATE-8976 appears to be a normal human, they have exhibited abilities that suggest they are not entirely human.

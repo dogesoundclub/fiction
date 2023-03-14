@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1522
+Description: Dr. 1522 appears to be a human female in her late 20s with striking features. Her blue metallic hair coupled with orange stripes and purple lips are eye-catching, but it is her orange eyebrows that truly set her apart. She wears a green cross earring and a gold-chain necklace.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1763
+Description: 1763 is a male monkey with blue clown eyes and normal black hair. The subject has an insatiable thirst for knowledge and may spend a significant amount of time reading, researching, or collecting books and documentaries on obscure subjects. 1763 has a passion for sharing his newfound knowledge with those around him and can often be seen chattering excitedly about his latest discoveries.

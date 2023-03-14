@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9800
+Description: DSC-MATE-9800 is a male Bengal tiger that stands at 2.4 meters tall, and weighs approximately 250kg. The DSC's fur is orange with black stripes, normal glasses on its eyes, and green head with a 2-color band on the forehead feature. DSC-MATE-9800's ears have a single jade earring each and wears a silver necklace as its only accessory.

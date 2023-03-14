@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8647
+Description: Item 8647, also known as the "Banker Rabbit", is a male rabbit of the Oryctolagus cuniculus species. It stands 32cm tall and weighs approximately 4.5kg. Item 8647 has prominent horn-rimmed glasses, and is often seen wearing a Doge hat and a red victory band on its forehead. It is often seen with a silver chain around its neck and a cigarette in its mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-530
+Description: DSC-MATE-530 is a male monkey of the species Macaca fascicularis, standing at approximately 0.8 meters tall and weighing around 12 kilograms. DSC-MATE-530 displays several unique features, including a retro cap on its head, jade earrings on its ears, and shade glasses over its eyes. DSC-MATE-530 also wears a two-color band on its forehead, as well as a red scarf and a whistle.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1246
+Description: DSC-MATE-1246 is a male human of undetermined age approximately 1.8 meters tall with a characteristic smile and spots on his face. DSC-MATE-1246's eyes are notably ski goggles which appear to be part of his perception organ. DSC-MATE-1246 is often seen wearing a doge hat on his head and a green cross earring on his left ear. Additionally, he wears a silver chain around his neck and is often seen with a cigarette in his mouth.

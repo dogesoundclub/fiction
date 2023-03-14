@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3062
+Description: DSC-MATE-3062 appears to be a male tiger, with red clown eyes and green hair in a purple cap. They wear a gold earring and a red scarf as a symbol of their individuality. Despite their physical appearance, DSC-MATE-3062 possesses a high level of emotional intelligence and can easily detect the emotions of others. They use this ability to comfort and uplift those around them, often in humorous ways.

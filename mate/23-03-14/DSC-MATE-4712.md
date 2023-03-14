@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4712
+Description: DSC-MATE-4712 is a humanoid entity that manifests as a human male wearing a purple cap with a headset, a red scarf, and red clown eyes. The entity exhibits several facial features that distinguish it from a natural human, including orange stripes extending from the cheeks to the temples. DSC-MATE-4712 claims to be a fashion designer by profession, and it often seeks to promote its clothing designs in various social events.

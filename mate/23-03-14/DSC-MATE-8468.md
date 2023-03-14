@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8468
+Description: DSC-MATE-8468 appears as a human female with orange stripes on their face, a red lip, and a medical mask over their mouth. DSC-MATE-8468 typically wears a bucket hat on their head and a gold chain as an accessory. DSC-MATE-8468 possesses a strong idealistic personality, with a desire to make the world a better place. DSC-MATE-8468 may engage in activities such as protesting or boycotting a company or cause that they feel goes against their values.

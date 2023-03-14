@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4952
+Description: DSC-MATE-4952 is a Caucasian male in his 30s, standing at 5’10” tall. He has a friendly disposition and a charming smile. DSC-MATE-4952's most distinguishing feature is a series of spots on his face, which he claims are birthmarks. He typically wears a retro cap and green cross earring on one ear, and his eyes are concealed behind normal glasses.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5947
+Description: DSC-MATE-5947 appears to be a male tiger humanoid, standing at approximately 1.8 meters in height. DSC-MATE-5947 exhibits a frightened expression on its face permanently and subtly twitches when exposed to loud or sudden noises. DSC-MATE-5947 has a notable preference for wearing a police cap and a red scarf around its neck, as well as a gold earring on its left ear. DSC-MATE-5947 can often be seen smoking a cigarette, which it appears to use as a method of coping with stress and anxiety.

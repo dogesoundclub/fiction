@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7043
+Description: 7043 is a male tiger of the Bengal subspecies. It measures approximately 3 meters in length, weighs 200 kg, and displays a unique set of features that deviate from its "normal" physical traits. Its eyes are equipped with a rainbow-colored LED system, which can display a wide range of colors according to its mood. Additionally, it wears a single cross earring in its left ear and a red scarf around its neck. These items appear to be of sentimental value to the subject.

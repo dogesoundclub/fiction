@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6677
+Description: DSC-MATE-6677 is a male human with a distinguishable Mouth Spot and a smile that carries a contagious energy. They possess normal glasses that do not seem to impede their vision in any way. DSC-MATE-6677 sports a mohawk hairstyle and a forehead feature that consists of a two-color band. Their ears are adorned with a jade earring, and they commonly accessorize with a signature red scarf.

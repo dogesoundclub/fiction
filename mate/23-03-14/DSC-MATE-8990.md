@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8990
+Description: DSC-MATE-8990 is a human female in her late 20s, approximately 5'8" tall with orange stripes on their face and purple lips. They have a green cross earring on each ear and a silver chain around their neck. Despite their human appearance, DSC-MATE-8990 possesses remarkable strength and endurance, which makes them a considerable threat if provoked.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7928
+Description: 7928 is a male rabbit of the lop-eared breed. The subject's fur is green in color and appears to be arranged haphazardly. Subject 7928 displays blue clown eyes that have been noted to dilate when experiencing strong emotions. 

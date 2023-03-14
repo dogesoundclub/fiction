@@ -1,0 +1,2 @@
+ID # : DSC-MATE-771
+Description: DSC-MATE-771 is a male monkey that displays a unique set of characteristics and accessories. They are commonly seen wearing a red scarf around their neck, along with a retro cap on their head and a gold earring on their left ear. They also carry a whistle with them, which they often use to direct traffic or signal for help.

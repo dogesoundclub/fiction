@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4288
+Description: DSC-MATE-4288 is a juvenile male monkey wearing a red beanie and a gold chain around his neck. Its species remains unidentified and its eyes are rarely visible due to the beanie pulled down to his head.

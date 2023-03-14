@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6594
+Description: DSC-MATE-6594 is a male monkey, standing at 3'3" (1 meter) tall, with a parted pink head and normal glasses. On his forehead, DSC-MATE-6594 wears a pair of goggles. He also has a pair of jade earrings in his ears and often wears a gold chain around his neck. DSC-MATE-6594 is known to carry a candy stick with him at all times.

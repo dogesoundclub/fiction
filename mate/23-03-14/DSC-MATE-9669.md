@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9669
+Description: DSC-MATE-9669 is a male monkey with a mohawk and jade earring. Its most notable features are the horned rim glasses and goggle on its forehead. DSC-MATE-9669 has a frightened mouth and is known to carry a whistle with it at all times.

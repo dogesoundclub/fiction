@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4645
+Description: DSC-MATE-4645 appears as a male human with numerous spots covering their face, and red clown eyes. Their hair is parted pink and they often wear a silver chain and candy stick as accessories. DSC-MATE-4645's personality is best described as having a strong sense of duty and responsibility, while also possessing an ability to create a sense of joy and levity in their environment.

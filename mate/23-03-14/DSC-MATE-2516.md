@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2516
+Description: Item #2516 is a male tiger with a frightened mouth expression and striking blue clown eyes. The subject's ears are adorned with a jade earring, and they typically wear a gold chain and carry a candy stick as additional accessories.

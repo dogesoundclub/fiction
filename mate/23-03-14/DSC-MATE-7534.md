@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7534
+Description: Subject 7534, also known as "the Veterinarian," is a female human of average height and weight. The subjet's most notable physical features include her blonde hair styled in a wing and her VR jade LED eyes. Subject 7534 also sports a green cross earring in each ear and a goggle on her forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-190
+Description: DSC-MATE-190 is a male monkey of an unknown species whose physical appearance grants it no special abilities, other than increased dexterity and agility. It is often seen wearing a red beanie on its head, horned rim glasses on its eyes, a jade earring on each ear, and a gold chain around its neck. DSC-MATE-190 is always carrying a candy stick, which it is known to suck on when under stress.

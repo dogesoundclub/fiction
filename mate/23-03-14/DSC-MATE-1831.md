@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1831
+Description: DSC-MATE-1831 is a male robotic entity resembling a human car salesman. It stands at 6 feet tall and weighs approximately 200 pounds. DSC-MATE-1831's face features a single green cyclops eye and a constantly frightened mouth.

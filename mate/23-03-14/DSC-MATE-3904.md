@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3904
+Description: Item 3904 is a male robot, measuring at 1.82 meters in height. Its head is fashioned after a police cap, exuding an air of authority. It has red cross earrings adorning its metal ears, and a red scarf tied around its neck, giving it a sense of flare. The robot is almost always seen with a cigarette in its metallic mouthpiece.

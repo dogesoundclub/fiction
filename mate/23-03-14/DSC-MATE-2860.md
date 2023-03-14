@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2860
+Description: DSC-MATE-2860 is a male humanoid robot, standing at approximately 6’2” in height. Its appearance resembles that of a middle-aged reporter, with a green cyclops eye and ski goggle eyes. DSC-MATE-2860 wears a short peak cap on its head and sports a goggle on its forehead. DSC-MATE-2860 has been observed smoking cigarettes, although it does not require it for sustenance.

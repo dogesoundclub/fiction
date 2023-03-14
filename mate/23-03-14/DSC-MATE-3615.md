@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3615
+Description: DSC-MATE-3615 is a male human identified as a security guard. They have a distinct appearance, including a noticeable spot around their mouth and a frightened expression. DSC-MATE-3615 has blue clown-like eyes and pink hair parted down the middle. They also possess a green cross earring, a red scarf, and are often seen smoking a cigarette.

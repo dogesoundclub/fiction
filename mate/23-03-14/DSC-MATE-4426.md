@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4426
+Description: DSC-MATE-4426 is a human male with distinct facial features that include a mouth spot and ski-goggle eyes. DSC-MATE-4426's head is noted to have a peak spike, and he is also in possession of jade earrings and a red scarf. DSC-MATE-4426 is known for its quick wit, intelligence, and love of debate, which can lead to some humorous situations. DSC-MATE-4426 is known to engage in playful arguments for fun with friends or family members.

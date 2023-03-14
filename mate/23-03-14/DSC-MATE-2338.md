@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2338
+Description: DSC-MATE-2338 appears as a Bengal Tiger with a distinctive purple cap and a headset. It also wears a red cross earring on its left ear, a gold chain around its neck, and is frequently seen smoking a cigarette. DSC-MATE-2338 is capable of speech in multiple languages, including English and Mandarin.

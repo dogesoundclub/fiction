@@ -1,0 +1,2 @@
+ID # : DSC-MATE-281
+Description: DSC-MATE-281 is a human female of average height and weight. They have short, witch-like hair, and distinctive orange stripes on their face. DSC-MATE-281 typically wears a LED gas mask, which covers their eyes and mouth. During containment, DSC-MATE-281 was discovered wearing a silver chain and gold earrings.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7867
+Description: DSC-MATE-7867 is a male monkey, standing at approximately 4 feet tall. DSC-MATE-7867 has vibrant green hair and wears a purple cap on its head. It also has a goggle on its forehead and a silver chain around its neck. DSC-MATE-7867 is gifted with the ability to communicate in basic English.

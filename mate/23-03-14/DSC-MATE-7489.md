@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7489
+Description: DSC-MATE-7489 is a male tiger, with uncharacteristic eye colors resembling ski goggles. Subject wears a red beanie atop his head, and a medical mask covers his mouth. A silver chain is hung around the neck of the subject. Based on behavior analysis, 7489 exhibits a high sense of autonomy, and may defy regulations, protocols, or rules they consider arbitrary or unnecessary. Personnel are advised to approach 7489 with caution, considering the high risk of provocation.

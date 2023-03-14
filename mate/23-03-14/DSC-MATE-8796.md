@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8796
+Description: DSC-MATE-8796 is a human female known for her distinct appearance and reckless behavior. She possesses several unique physical features, including spots on her face, blue clown eyes, and a blonde-haired wing on her head. Notably, DSC-MATE-8796 also bears a two-color band on her forehead and frequently wears an LED gas mask as an accessory.

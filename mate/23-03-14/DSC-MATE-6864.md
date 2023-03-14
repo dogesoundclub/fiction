@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6864
+Description: DSC-MATE-6864 is a male rabbit of the species Oryctolagus cuniculus. DSC-MATE-6864 wears a blue bandana around their head and carries a candy stick as their primary accessory. The color of their eyes is unknown.

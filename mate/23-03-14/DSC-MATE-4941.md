@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4941
+Description: Item 4941 appears to be a Siberian tiger, standing at approximately eight feet tall and weighing over 500 pounds. It can communicate with humans fluently and exhibits a wide range of intelligence.

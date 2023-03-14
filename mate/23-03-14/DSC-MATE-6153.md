@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6153
+Description: DSC-MATE-6153 is a male Rabbit humanoid, standing at approximately 1.2m in height. DSC-MATE-6153 is often seen wearing a bucket hat and normal glasses. DSC-MATE-6153 also dons a gold chain and a whistle as his accessories. DSC-MATE-6153 works as a Fast Food worker in a restaurant located in the suburbs near Site-██.

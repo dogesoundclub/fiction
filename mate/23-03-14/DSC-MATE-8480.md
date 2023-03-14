@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8480
+Description: Item #8480 is a female human of Caucasian descent. She is often seen wearing a medical mask that covers her mouth, obscuring her facial expressions. However, her eyes are visible, and it is apparent that she is often smiling. Item #8480 has blonde hair that is usually concealed under an Ushanka hat, which she wears regardless of the temperature.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4149
+Description: Subject 4149 is a male human farmer with a unique appearance. His eyes are fitted with VR Rainbow LED technology which emits a spectrum of colorful lights. He wears the attire of a monk and sports a silver chain around his neck in addition to a candy stick held firmly in his hand. Personality wise, he is highly analytical and logical, often prone to making witty observations, and enjoys teasing his friends with a dry deadpan humor.

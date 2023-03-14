@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5209
+Description: DSC-MATE-5209 is a human male identified as a veterinarian. Despite its physical appearance, DSC-MATE-5209 possesses no anomalous abilities or properties. DSC-MATE-5209's physical mutations primarily affect facial features, including a mouth spot and clown mouth, accompanied by red clown eyes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3836
+Description: DSC-MATE-3836 is a male rabbit, standing at 4'4" and weighing roughly 90 pounds. It wears a blue bandana on its head, and a jade earring on one of its ears. It is often seen sporting a red scarf as well. Its eyes are currently unknown, as it has not allowed any personnel to come close enough for identification.

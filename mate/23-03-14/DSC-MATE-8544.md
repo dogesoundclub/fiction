@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8544
+Description: Subject 8544 appears as a male human, standing at approximately 6 feet tall with a slim build. The subject has distinctive orange stripes on their face, giving them a unique appearance. They usually wear a hoodie and a medical mask that partially obscures their face, but they are always seen wearing a red scarf.

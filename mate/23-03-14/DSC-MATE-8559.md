@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8559
+Description: Subject 8559 appears to be an average human male, wearing a retro cap and accessorized with a jade earring and a gold chain. Their eyes are obscured behind normal glasses, with a goggle resting on their forehead. 8559 is typically seen wearing a medical mask to protect themselves and others, which is likely related to their personality traits.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2835
+Description: Subject 2835 appears to be a male human of average height and build. Their face displays a constant expression of fear, with slightly parted lips and wide eyes. The upper portion of their head is covered by multiple layers of green fabric, and a pair of goggles sit on their forehead. They are often seen wearing a red scarf and carrying a candy stick.

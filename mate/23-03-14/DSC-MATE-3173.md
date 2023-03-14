@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3173
+Description: DSC-MATE-3173 is a male humanoid appearing as a general practitioner in his late thirties. DSC-MATE-3173 stands at 183 cm tall and weighs approximately 90 kilograms. DSC-MATE-3173's most significant anomaly is his unwavering loyalty and protectiveness of his loved ones. Observations have shown that DSC-MATE-3173 tends to become highly emotional and aggressively defensive upon any derogatory remarks or actions towards his family and friends.

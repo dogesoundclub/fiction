@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4130
+Description: DSC-MATE-4130 appears to be a human female in her late 20s or early 30s. They stand at approximately 5'7 and weigh approximately 140 pounds. Noteworthy facial features include spotted skin and ruby-red lips. Their eyes are a unique shade of virtual-reality jade, which emit a soft glow under particular lighting conditions.

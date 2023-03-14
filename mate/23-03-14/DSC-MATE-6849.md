@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6849
+Description: DSC-MATE-6849 is a male Tiger that stands approximately 7 feet tall when on two legs. It appears to be capable of speaking in fluent English, but sometimes has difficulty with certain words due to its feline mouth structure. DSC-MATE-6849 often wears a normal gas mask, which seems to help it breathe more easily. It has a red cross earring on one of its ears and a silver chain around its neck. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4686
+Description: DSC-MATE-4686 is a female human of average height and weight. They have distinctive orange stripes on their cheeks, and their lips are colored red. Their eyes have orange eyebrows, and their head has been dyed in a shade of orange.

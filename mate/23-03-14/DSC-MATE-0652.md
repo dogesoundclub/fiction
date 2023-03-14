@@ -1,0 +1,2 @@
+ID # : DSC-MATE-652
+Description: DSC-MATE-652 appears to be a male rabbit standing approximately 1.2 meters tall. It wears a police cap on its head, which is adorned with a two-color band around the forehead, and sports a pair of goggles. DSC-MATE-652 has jade earrings on its elongated ears and wears a silver chain around its neck. It is also outfitted with an LED gas mask. The rabbit is a train driver by profession.

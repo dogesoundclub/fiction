@@ -1,0 +1,2 @@
+ID # : DSC-MATE-981
+Description: Subject 981, the mechanic, is a male humanoid with several distinct physical characteristics. Notably, the subject has multiple spots on their face and a mischievous smile that can be unsettling for some people. The subject typically wears a blue bandana around his head, and a green cross earring can be seen on his ears. Additionally, subject 981 is known to don a gold chain and smoke cigarettes.

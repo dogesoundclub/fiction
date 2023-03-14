@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8892
+Description: DSC-MATE-8892 is a male human, identified as a train driver. His physical appearance includes facial features such as orange stripes, a frightened mouth, and normal glasses. His head is blonde, and he wears a gold earring and a red scarf as accessories. DSC-MATE-8892 has displayed a natural talent for leadership, often taking charge of situations in both work and social settings.

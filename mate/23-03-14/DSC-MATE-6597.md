@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6597
+Description: DSC-MATE-6597 is a male rabbit of an unknown subspecies. It wears a blue bandana around its head and a gold chain around its neck. DSC-MATE-6597 appears to constantly smoke a cigarette, despite the fact that it is not biologically equipped to do so. Its eyes are currently unknown.

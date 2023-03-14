@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1452
+Description: Subject 1452 appears to be a male Siberian tiger with an unusual feature—a hoodie covering its head. The tiger’s forehead is marked by a distinctive two-color band, which seems to shift depending on its emotional state. Subject 1452 is commonly seen carrying a whistle and exhibiting a highly analytical and logical personality. It has been observed engaging in debates and arguments with others, even over seemingly trivial topics. 

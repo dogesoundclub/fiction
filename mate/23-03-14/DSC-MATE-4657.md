@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4657
+Description: DSC-MATE-4657 is a male tiger of unknown origin, identified under the guise of a politician within the human population. DSC-MATE-4657 stands at approximately 2m tall and possesses red clown eyes, a bucket hat upon its head, a goggle located on its forehead, red cross earrings, and a crimson scarf. DSC-MATE-4657 has developed a strong attachment and protective instinct over its immediate family or any one that it perceives as in need of care.

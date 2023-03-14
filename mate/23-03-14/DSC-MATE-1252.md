@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1252
+Description: Subject 1252 is a male human with distinctive orange stripes on his face. He wears a short peak cap and ski goggles on his eyes. A gas mask is typically worn as an accessory, and a gold earring is present on his left ear. A goggle often sits on his forehead.

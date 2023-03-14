@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5070
+Description: Subject 5070 appears as a human male with blue clown eyes and a smile on his face. The subject's face is covered in spots, and his head forms a peak spike. A goggle is attached to the subject's forehead, and he wears a gas mask as a regular accessory. The subject has gold earrings and a silver chain as additional accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8753
+Description: Subject 8753 is a female programmer who displays unique facial features, with spots on their face and purple lips. Their eyes are replaced with VR Rainbow LED lenses, and their head is usually covered with a hoodie. Subject 8753 can be identified with their choker and a cigarette. 

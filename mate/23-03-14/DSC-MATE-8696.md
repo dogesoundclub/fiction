@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8696
+Description: 8696 appears to be a male human of average build and height, with distinctive orange stripes covering his face. His eyes resemble ski goggles and his head is usually adorned with an old-school short peak cap. 8696 is easily recognizable by his green cross earring and penchant for sucking on a candy stick.

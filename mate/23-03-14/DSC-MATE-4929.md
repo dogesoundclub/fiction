@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4929
+Description: Subject 4929 is a human male of average height and weight. The subject has distinctive spots on their face and a perpetually friendly smile. Subject 4929 is often seen wearing a retro cap and a red scarf, and they always carry a candy stick in their pocket.

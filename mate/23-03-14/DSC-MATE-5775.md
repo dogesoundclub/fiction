@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5775
+Description: DSC-MATE-5775 is a female human traffic officer with spots on her face and a permanent smile. DSC-MATE-5775 has normal vision and wears standard prescription glasses. DSC-MATE-5775 has light brown hair styled in a 90s fashion, and one small gold earring in each ear. DSC-MATE-5775 is frequently seen smoking a cigarette while on duty.

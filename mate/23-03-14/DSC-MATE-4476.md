@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4476
+Description: DSC-MATE-4476 is a human female with several anomalous features. Their face displays distinctive orange stripes, and their eyes are large, blue clown eyes. DSC-MATE-4476's hair is blonde and contains a single, large wing on the left side of their head. They also possess a two-color band on their forehead and green cross earrings. DSC-MATE-4476 frequently wears a choker around their neck.

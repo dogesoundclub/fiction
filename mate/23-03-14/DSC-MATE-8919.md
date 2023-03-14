@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8919
+Description: Subject 8919 is a human male with spotted facial features, notably a frightened mouth. Their eyes are replaced with virtual reality jade LEDs, and they often wear a red beanie atop their head. A green cross earring adorns their ears, and a silver chain is worn as an accessory.

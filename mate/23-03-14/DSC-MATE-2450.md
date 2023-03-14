@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2450
+Description: Item #2450 is a male robot who appears to be wearing a doge hat covering its head. It features a single green cyclops eye and a frightened mouth. The robot's ears have a red cross earring attached to them. Item #2450 is observed to have an eerie personality trait, as it possesses a strong sense of intuition and appears to have psychic powers. It has the ability to predict events before they happen and sense individuals' emotions, particularly feelings of anxiety and distress. 

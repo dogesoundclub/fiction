@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5240
+Description: DSC-MATE-5240 is a human female identified as a car salesman. Its appearance is notable for its red clown eyes and red lipstick, along with a two-color band on its forehead and a pair of goggles atop its head. DSC-MATE-5240 also wears a green cross earring, a choker, and is often seen with a cigarette.

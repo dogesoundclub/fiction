@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4177
+Description: Item #4177 is a male rabbit with red clown eyes, dressed in a hoodie and frequently seen with a cigarette in his mouth. Despite his physical appearance, Item #4177 possesses a high level of intelligence and works as a police officer in the city of ████████.

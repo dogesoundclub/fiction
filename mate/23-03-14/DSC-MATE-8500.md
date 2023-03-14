@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8500
+Description: 8500 is a female traffic officer of average height and build. She has green hair, which she often wears in a purple cap, and a smile that can be disarming. On her forehead, she always wears a pair of goggles and has a red cross earring on each ear. Additionally, she carries a gold chain and a cigarette as her accessories.

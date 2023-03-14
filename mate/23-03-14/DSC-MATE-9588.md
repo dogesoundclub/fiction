@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9588
+Description: DSC-MATE-9588 is a middle-aged Caucasian male with a head of normal blonde hair and golden earrings. DSC-MATE-9588's most notable feature is a set of VR Rainbow LED eyes, which function as a non-intrusive form of sensory augmentation. DSC-MATE-9588 is also frequently seen wearing a silver chain necklace and carrying a candy stick as a personal accessory.

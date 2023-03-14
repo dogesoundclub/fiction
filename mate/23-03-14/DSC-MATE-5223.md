@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5223
+Description: DSC-MATE-5223 is a humanoid robot standing at approximately 6 feet tall with a green cyclops eye and a frightened mouth, wearing a red beanie and ski goggles as eyes. The robot has a goggle on its forehead and a jade earring on each ear. DSC-MATE-5223 is a fashion designer by profession and is often seen wearing a red scarf and smoking a cigarette.

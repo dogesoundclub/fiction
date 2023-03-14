@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5994
+Description: Item 5994 is a human male, standing at approximately 6 feet tall. His most notable feature is a spot on his mouth that resembles a clown nose. His eyes are a bright blue and resemble those of a clown. Item 5994 is often seen wearing a hooded sweatshirt and a medical mask.

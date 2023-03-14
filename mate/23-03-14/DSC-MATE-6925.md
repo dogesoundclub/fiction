@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6925
+Description: DSC-MATE-6925 is a humanoid robot of unknown origin resembling a lawyer. It has a male physique with a signature green cyclops eye as its main facial feature. Its eyes are composed of VR rainbow LED, giving it a distinct appearance. DSC-MATE-6925 wears a short peak cap and silver chain accessory, along with a functional LED gas mask.

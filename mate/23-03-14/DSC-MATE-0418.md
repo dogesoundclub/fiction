@@ -1,0 +1,2 @@
+ID # : DSC-MATE-418
+Description: DSC-MATE-418 appears to be a humanoid rabbit with a frightened mouth and VR Jade LED eyes. The subject wears a gold earring on its right ear, a red scarf around its neck, and carries a whistle at all times. DSC-MATE-418 identifies as male and works as a fashion designer in the human world.

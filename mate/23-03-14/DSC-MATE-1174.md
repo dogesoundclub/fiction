@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1174
+Description: DSC-MATE-1174 is a female human with orange stripes on her face and a red clown nose. Her red clown eyes and red cross earring on her ears add to her distinctive appearance. DSC-MATE-1174's head is covered by a blonde ushanka hat and she wears red lipstick.

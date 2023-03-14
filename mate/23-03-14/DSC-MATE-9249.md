@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9249
+Description: Item 9249 is a female human with orange stripes covering her body. She wears a retro cap on her head, with a two-color band across her forehead. Her red cross earrings are notable, as is the choker she wears around her neck. Item 9249 often carries a cigarette in hand, which adds to her reckless demeanor.

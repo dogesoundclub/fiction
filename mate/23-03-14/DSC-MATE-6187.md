@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6187
+Description: Item #6187 is a male tiger with a timid personality. It stands at an imposing seven feet in height and weighs approximately 500 pounds. Its mouth always appears to be in a frightened state, which leads to a distinct facial expression that is easily recognizable. Its eyes are dulled by what appears to be the typical shades found in a standard pair of glasses, and its head is adorned with a blue bandana. Item #6187's ears are distinguished by a red cross earring, and it frequently wears a gold chain necklace.

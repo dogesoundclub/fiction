@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8594
+Description: DSC-MATE-8594 is a female human of unknown age, identified as a fashion designer. Her main physical features consist of purple lips, normal glasses, and a retro cap on her head. DSC-MATE-8594 also has a two-color band on her forehead, gold earrings on her ears, and two accessories; a choker and an LED gas mask.

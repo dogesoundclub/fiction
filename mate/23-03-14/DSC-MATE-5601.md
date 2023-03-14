@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5601
+Description: 5601 is a male monkey standing at approximately 2 feet tall. Its eyes are of an unknown color, as the subject is never seen without its trademark hoodie and gas mask, which it uses to conceal its face. 5601 is always seen wearing a silver chain around its neck, which is believed to have some sentimental value. The object class of 5601 was designated as Safe due to its non-aggressive nature towards its captors.

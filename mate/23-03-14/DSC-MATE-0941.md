@@ -1,0 +1,2 @@
+ID # : DSC-MATE-941
+Description: DSC-MATE-941 is a human male with various anomalous features, including a Mouth Spot and a Frightened Mouth on his face, which appears to show an overwhelming sense of fear. DSC-MATE-941's eyes are a bright shade of red with a clown-like appearance. DSC-MATE-941's head sports a Peak Spike, and it has a Goggle on its forehead with a Gold Earring in each ear. DSC-MATE-941 is often seen wearing a Red Scarf, which it describes as its "lucky charm."

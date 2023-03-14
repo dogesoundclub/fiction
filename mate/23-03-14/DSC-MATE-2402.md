@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2402
+Description: DSC-MATE-2402 appears to be a humanoid rabbit standing at approximately 4 feet in height. It is easily distinguished from non-anomalous rabbits by its ability to wear clothing and accessories, specifically a police cap and a jade earring in its left ear. DSC-MATE-2402 also wears a normal gas mask as part of its standard issue equipment.

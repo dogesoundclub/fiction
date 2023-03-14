@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8234
+Description: DSC-MATE-8234 is a female human delivery driver. They possess uncommon facial features with orange stripes, blue clown eyes, and a metal blue head. DSC-MATE-8234 also has jade earrings and is always seen wearing a silver chain and smoking a cigarette.

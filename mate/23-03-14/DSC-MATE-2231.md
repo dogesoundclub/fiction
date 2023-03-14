@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2231
+Description: DSC-MATE-2231 is a male human electrician with a distinctive mouth spot located on the left corner of his mouth which he has stated is a birthmark. DSC-MATE-2231 is known to have a frightened mouth when under duress or emotional stress. DSC-MATE-2231 has a mohawk hairstyle along with goggles resting atop his forehead, which he uses while working on electrical projects. DSC-MATE-2231 is often seen smoking a cigarette.

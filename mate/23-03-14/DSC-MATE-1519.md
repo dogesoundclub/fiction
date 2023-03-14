@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1519
+Description: DSC-MATE-1519 is a human male, with significant facial spots and a mohawk hairstyle. A cross-shaped green earring is visible in their left ear. DSC-MATE-1519 has a tendency to wear a gold chain and an LED gas mask on their person. DSC-MATE-1519 can be impulsive at times and tends to act on their emotions, leading to unexpected and amusing situations.

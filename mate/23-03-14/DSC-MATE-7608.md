@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7608
+Description: DSC-MATE-7608 appears to be a male rabbit with a frightened mouth and neon VR LED eyes. The subject wears a hoodie and a silver chain around its neck, and is often seen smoking a cigarette. Despite its seemingly harmless appearance, DSC-MATE-7608 possesses a natural talent for leadership and a commanding presence that often draws others to follow its lead.

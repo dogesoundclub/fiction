@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1981
+Description: Item #1981 is a 35-year-old human male. He stands at approximately 6 feet tall and has distinctive orange stripes on his face, a smile that never fades, and ski goggle eyes. Item #1981 sports a unique mohawk hairstyle and is often seen with a green cross earring, a gold chain necklace, and a candy stick.

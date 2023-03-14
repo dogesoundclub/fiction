@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9750
+Description: DSC-MATE-9750 is a male monkey measuring approximately 60 cm in height and weighing approximately 10 kg. DSC-MATE-9750 exhibits traits consistent with the Java macaque species, including a short tail and a gray-brown fur covering most of its body.

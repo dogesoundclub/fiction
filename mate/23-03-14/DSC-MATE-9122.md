@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9122
+Description: Subject 9122 appears to be a large male tiger, standing at a height of 6'2" and weighing approximately 280lbs. The subject's most notable feature is its unsettling red clown eyes, which are always aglow with a fiery intensity. It also wears a red cross earring in its left ear and a silver chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-984
+Description: DSC-MATE-984 is a human male with noticeable facial features including a dark birthmark near the left corner of his mouth and a distinctive smile. DSC-MATE-984 wears a bucket hat, gold earring on the left ear, and a red scarf. Of note are DSC-MATE-984's VR Jade LED eyes, which glow brightly when DSC-MATE-984 experiences strong emotions.

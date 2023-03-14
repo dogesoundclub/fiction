@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8828
+Description: DSC-MATE-8828 is a sentient robot, measuring approximately 1.8 meters in height. It possesses a single cyclops eye which is colored green, while its mouth is always in a perpetually frightened expression. DSC-MATE-8828 wears a black hoodie with a red scarf, as well as a pair of ordinary glasses and a gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4821
+Description: DSC-MATE-4821 is a male rabbit dressed in a retro cap, silver chain, jade earring, and an LED gas mask. Despite their relatively small size and harmless appearance, DSC-MATE-4821 can display a range of unpredictable behaviors, including aggression and extreme fear.

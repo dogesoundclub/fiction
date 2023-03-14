@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7427
+Description: DSC-MATE-7427 is a human female with striking features. They have orange stripes on their face, a purple lip, and their eyes emit a VR rainbow LED effect at all times. DSC-MATE-7427 always wears a hoodie and a silver chain accessory. 

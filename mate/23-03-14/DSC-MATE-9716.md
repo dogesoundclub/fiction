@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9716
+Description: Subject 9716 is a male human with prominent orange stripes adorning his facial features. He is commonly seen displaying a pair of nerd glasses and a 2 color band on his forehead. His ears are adorned with a gold earring, and he is often seen wearing a red scarf around his neck.

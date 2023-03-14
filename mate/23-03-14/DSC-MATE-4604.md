@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4604
+Description: DSC-MATE-4604 is a robot identified as a male beautician. It stands at approximately 5’8” tall and has a retro cap on its head. DSC-MATE-4604’s eyes are covered by Horned Rim Glasses and it has one gold earring on its left ear. DSC-MATE-4604 is often seen wearing a silver chain and smoking a cigarette.

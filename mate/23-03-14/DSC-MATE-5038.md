@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5038
+Description: DSC-MATE-5038 is a female human, approximately 28 years old, standing at 5'8" tall. DSC-MATE-5038's face is marked with orange stripes, which extend from cheek to cheek. DSC-MATE-5038's eyes are replaced by VR Rainbow LEDs, which can display a variety of colors and patterns. DSC-MATE-5038's head resembles that of a pink rabbit, with long ears that curl upward and end with a green cross earring.

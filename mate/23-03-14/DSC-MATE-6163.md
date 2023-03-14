@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6163
+Description: DSC-MATE-6163 is a male veterinarian and a member of the Oryctolagus cuniculus species, commonly known as a rabbit. DSC-MATE-6163 stands approximately 1 meter tall when fully upright and weighs approximately 25 kilograms. DSC-MATE-6163's face is distinguished by a permanently frightened expression which it often tries to conceal through the use of a normal gas mask. DSC-MATE-6163 also wears horn-rimmed glasses and a police cap, along with a gold earring in its right ear.

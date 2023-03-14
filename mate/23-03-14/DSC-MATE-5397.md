@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5397
+Description: Subject 5397 is a male human of average height and build. Their most unusual feature is a dark spot located in the center of the upper lip, resembling a birthmark or mole. In addition, the subject's eyes emit a rainbow-colored light, similar to a virtual reality lens, and they often wear a gold earring, believed to have some cultural significance.

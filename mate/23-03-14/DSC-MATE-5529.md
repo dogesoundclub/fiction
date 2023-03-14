@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5529
+Description: DSC-MATE-5529 is a male tiger, sporting a red scarf around his neck. His face features a frightened mouth, with ski goggles for eyes and an unkept green head. DSC-MATE-5529 is also a law enforcement officer with the local police department, with documents and records confirming his employment dating back to his initial containment.

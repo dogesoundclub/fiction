@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3241
+Description: DSC-MATE-3241 is a male rabbit standing at 43 cm in height and weighing 1.6 kg. The subject wears a police cap and a pair of horned rim glasses, and sports a gold earring on his left ear. DSC-MATE-3241's most noticeable facial feature is its frightened mouth which is always open, revealing its two front teeth. DSC-MATE-3241 has a goggle on its forehead and is often seen wearing a silver chain around its neck. DSC-MATE-3241 is also known to carry a whistle at all times.

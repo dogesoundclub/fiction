@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5824
+Description: DSC-MATE-5824 is a male Bengal tiger with a green coat that is not arranged. It has a distinctive two-color band on its forehead, and it wears a pair of nerd glasses on its eyes. DSC-MATE-5824 is an expert beautician and is proficient in a variety of grooming techniques.

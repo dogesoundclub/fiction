@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8043
+Description: DSC-MATE-8043 is a robotic entity measuring 1.8 meters in height and weighing approximately 45 kilograms. It exhibits a humanoid form with a retro cap and a jade earring on its ears. The most prominent feature on its face is a single green cyclops eye, which may emit a beam of energy capable of disrupting electronic devices. The entity also wears a pair of nerd glasses and a goggle on its forehead. DSC-MATE-8043 often carries an LED gas mask, which obscures its face and may provide additional sensory input.

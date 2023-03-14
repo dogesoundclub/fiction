@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1998
+Description: Subject 1998 is a human male with a unique physical appearance. He sports a prominent mouth spot on his left side, which extends from the corner of his lips to his chin. Despite his intimidating appearance, he seems unperturbed by his facial markings; instead, he often grins, flashing his teeth and revealing the unique gap in his teeth. 

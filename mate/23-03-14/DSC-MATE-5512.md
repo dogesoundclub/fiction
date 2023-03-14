@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5512
+Description: Subject 5512 is a male rabbit, measuring approximately 30 centimeters in height. The subject wears a blue bandana on his head, and sports a pair of goggles over his forehead. The subject is also frequently seen wearing a gold chain and carrying a candy stick.

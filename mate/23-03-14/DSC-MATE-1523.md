@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1523
+Description: DSC-MATE-1523 appears to be a human female in her late thirties, measuring 1.65 meters in height and weighing approximately 67 kilograms. DSC-MATE-1523's most notable physical features are her purple lips, a purple cap with a headset, and a choker. Her forehead features a two-color band and goggles that are worn on her forehead. DSC-MATE-1523's ears are pierced and adorned with gold earrings. She is often seen smoking a cigarette.

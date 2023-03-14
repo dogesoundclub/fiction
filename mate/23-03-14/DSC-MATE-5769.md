@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5769
+Description: DSC-MATE-5769 is a male tiger standing approximately 3 meters in height and weighing over 200kg. Despite his large size, DSC-MATE-5769 is relatively agile and possesses impressive reflexes which have made him a formidable force in combat situations. DSC-MATE-5769's eyes are a unique shade of blue, which stand out in contrast to his striking coat of orange and black striped fur. The tiger's forehead features two distinct color bands, with a pair of red cross earrings adorning his ears.

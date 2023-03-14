@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4055
+Description: Subject 4055 is a male human of average height, with distinct spots covering much of their face. Subject's head is shaved, except for a raised mohawk in the center. A green cross earring adorns each ear, and a silver chain is often observed around the neck. The subject is often wearing an LED gas mask when presenting news broadcasts, though its purpose is unknown. 

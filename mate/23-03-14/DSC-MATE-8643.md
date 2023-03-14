@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8643
+Description: DSC-MATE-8643 is a human male of average build and height, appearing to be in his early 30s. DSC-MATE-8643's most notable physical features are his nerd glasses, blue bandana, and gold earring.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4093
+Description: Item #4093 appears to be a human female of average build and height, with distinctive spots visible on her pale complexion. Her hair is styled in a 00s School Girl fashion, complete with a gold chain. Her most notable features are her orange eyebrows and purple lips, which are often seen in bright lipstick.

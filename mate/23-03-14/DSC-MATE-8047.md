@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8047
+Description: DSC-MATE-8047 is a male monkey of the species Macaca fuscata, measuring 1.2 meters in height and 30 kilograms in weight. The subject displays an unusual interest in fashion design, often seen creating intricate outfits from a variety of fabrics and accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3188
+Description: DSC-MATE-3188 is a male Sumatran tiger of average height and weight for their species. They possess normal glasses with a 2 color band feature on their forehead and is occasionally seen wearing a red cross earring. DSC-MATE-3188 is known to wear a medical mask and red scarf as facial accessories.

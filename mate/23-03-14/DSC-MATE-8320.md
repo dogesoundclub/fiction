@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8320
+Description: DSC-MATE-8320 is a human female with orange stripes on her face, giving her a tiger-like appearance. Her head is tilted to one side in a constant position, and she wears a red cross earring attached to her left ear. DSC-MATE-8320 often wears a choker around her neck, and an LED gas mask that illuminates a ghostly blue light, making her recognizable from a distance.

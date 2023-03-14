@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9221
+Description: DSC-MATE-9221 is a Caucasian male, measuring approximately 1.8 meters in height and weighing 74 kg. Its most noticeable features are a constant smile on its face, a pair of nerd glasses that it wears at all times, and a two-color band on its forehead. DSC-MATE-9221 also has a gold earring on its right ear and a red scarf around its neck, which it frequently adjusts throughout the day.

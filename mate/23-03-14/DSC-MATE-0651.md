@@ -1,0 +1,2 @@
+ID # : DSC-MATE-651
+Description: DSC-MATE-651 is a female human veterinarian with blue clown eyes, spots on her face, red lips, and blonde hair with a wing. DSC-MATE-651 also has jade earrings, a medical mask covering her mouth, and a gold chain around her neck. DSC-MATE-651 is known for her introspective nature, which causes her to often become lost in thought. This has led to many comical incidents, such as walking into a pole or tripping over objects while daydreaming.

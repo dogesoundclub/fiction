@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2334
+Description: DSC-MATE-2334 is a middle-aged human male standing at approximately 180cm tall and weighing 86 kg. DSC-MATE-2334 displays a distinctive mouth spot birthmark on the left side of his lower lip, with thick black-rimmed nerd glasses adorning his dark brown eyes.

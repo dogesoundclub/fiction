@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7044
+Description: DSC-MATE-7044 is a humanoid robot standing at 6'5" with a masculine appearance. DSC-MATE-7044's eyes are covered with horned rim glasses, and its head is adorned with a short peak cap. DSC-MATE-7044 also wears a gold earring in its left ear, a red scarf, and a normal gas mask. DSC-MATE-7044's weaponry consists of two machine guns attached to its arms, and it shows high proficiency in their usage.

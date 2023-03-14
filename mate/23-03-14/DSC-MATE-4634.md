@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4634
+Description: DSC-MATE-4634 is a human male with blonde hair and spotted skin. Its eyes are obscured by prescription glasses. DSC-MATE-4634 wears a medical mask to cover its mouth and has a jade earring on its right ear. Its forehead features a distinct two-color band.

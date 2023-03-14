@@ -1,0 +1,2 @@
+ID # : DSC-MATE-214
+Description: DSC-MATE-214 is a fast food worker of the robot species, identified by its green cyclops eye and nerd glasses. It is male in appearance and wears a red beanie on its head with a medical mask over its mouth. It also wears a red scarf as an accessory.

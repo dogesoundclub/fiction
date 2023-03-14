@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6892
+Description: DSC-MATE-6892 appears to be a human female in her mid-twenties with blue clown eyes and an 00s schoolgirl styled haircut. She is often seen wearing gold earrings, a choker, and a cigarette. DSC-MATE-6892 is a former firefighter turned anomalous entity after an event involving an unknown substance.

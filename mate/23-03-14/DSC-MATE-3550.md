@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3550
+Description: DSC-MATE-3550 is a human male, appearing to be in his late twenties, with short, styled hair and donning a green cross earring in his left earlobe. DSC-MATE-3550's eyes are typically obscured by a pair of thick-rimmed nerd glasses and his mouth is often covered by a medical mask. The subject commonly accessorizes with a silver chain necklace and a short peak cap.

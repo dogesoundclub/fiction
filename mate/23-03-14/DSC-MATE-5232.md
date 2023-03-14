@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5232
+Description: DSC-MATE-5232 is a human male identified as a car salesman prior to containment. He displays various distinctive facial features, including spots, a frightened mouth, and blue clown eyes. His head is adorned with a peak spike, while he wears a jade earring and medical mask. DSC-MATE-5232 often wears a gold chain accessory.

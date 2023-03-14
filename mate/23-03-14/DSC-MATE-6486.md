@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6486
+Description: DSC-MATE-6486 is a 32-year-old female of human origin, standing at 5'6" with an athletic build. DSC-MATE-6486's head, with metal blue skin tone, is marked by several orange stripes while both eyebrow and ear features an orange coloring. DSC-MATE-6486 wears a gold chain necklace and frequently uses a cigarette for comfort.

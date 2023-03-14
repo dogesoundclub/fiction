@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1142
+Description: 1142 is a humanoid robot, initially designed for real estate dealings, with a green cyclops eye as its primary visual input. In place of conventional eyes, 1142 has a ski goggle device, and its head is clad in a headset with an LED. A goggle is seen on its forehead, and it wears a silver chain and a cigarette.

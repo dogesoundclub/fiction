@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6846
+Description: DSC-MATE-6846 is a female human, identified as a doctor. DSC-MATE-6846's face is covered with spots, and she has a noticeable smile. DSC-MATE-6846's eyes emit a jade green glow, and she wears a hoodie over her head at all times. DSC-MATE-6846's mouth is covered with a medical mask, and her voice is muffled when speaking.

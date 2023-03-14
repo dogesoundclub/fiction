@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4728
+Description: DSC-MATE-4728 appears to be a normal human male in his early 30s, standing at 1.8m tall and weighing approximately 77kg. DSC-MATE-4728 wears normal glasses and a short peak cap on its head. DSC-MATE-4728 also wears a red victory band on its forehead and a green cross earring on its left ear, along with a gold chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1533
+Description: DSC-MATE-1533 is a male tiger, standing approximately 2.5 meters tall when standing on its hind legs. DSC-MATE-1533 displays a remarkable amount of intelligence and has shown to be capable of comprehending and responding to human speech. DSC-MATE-1533 is prone to wearing a purple cap with green hair, a red cross earring, a silver chain, and always carries a cigarette.

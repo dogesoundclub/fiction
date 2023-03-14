@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1525
+Description: DSC-MATE-1525 appears to be a human female of indeterminate age, with a distinctive appearance. The subject has spotted skin and a perpetual smile on her face. DSC-MATE-1525's eyes are replaced by a pair of visually impressive VR Rainbow LED displays. The subject is often seen wearing a bucket hat and gold earrings. DSC-MATE-1525 also habitually wears a choker and can be seen smoking cigarettes in stressful situations.

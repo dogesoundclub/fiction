@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4573
+Description: DSC-MATE-4573 is a female human with spots dotting her face and purple lips. DSC-MATE-4573's hair is cut short in a style associated with witchcraft. DSC-MATE-4573 has a unique two-color band on her forehead and often wears a silver chain and a regular gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7926
+Description: 7926 is a human mechanic with notable facial features including orange stripes, ski goggle eyes, a mohawk, and a jade earring on each ear. He often wears a gold chain, adding to his unique appearance. 

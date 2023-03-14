@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2262
+Description: DSC-MATE-2262 is a male tiger, estimated to be between 25-30 years of age. DSC-MATE-2262's appearance differs from other tigers due to the horned rim glasses they wear and the green hair in a purple cap they have on their head. They also have a gold chain around their neck and a whistle on them at all times.

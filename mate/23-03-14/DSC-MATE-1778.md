@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1778
+Description: DSC-MATE-1778 is a large adult male Siberian tiger, approximately 3 meters in length and weighing around 450 kg. DSC-MATE-1778 is easily identified by its purple cap, which is always accompanied by a headset. Additionally, DSC-MATE-1778 wears jade earrings and a medical mask over its mouth.

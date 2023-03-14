@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8678
+Description: DSC-MATE-8678 is a female human of average build and height. They are easily recognized by their silver chain, which is a comfort object used to help them remember important details. DSC-MATE-8678's most prominent facial feature is their smile, which is warm and inviting, despite the subject's tendency to be scatterbrained. 

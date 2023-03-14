@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5490
+Description: DSC-MATE-5490 is a human female of average height and weight, with orange stripes running from the side of its head down to the corner of its jaw. Its face features an orange eyebrow, a smile, and a goggle on its forehead. Its ears are adorned with a jade earring, and it wears a gold chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7892
+Description: DSC-MATE-7892 is a human male with a unique appearance. DSC-MATE-7892 bears a scarlet scarf wrapped around the neck, a blue bandana around the head, and has a medical mask covering the mouth. DSC-MATE-7892 wears thick-rimmed glasses and goggles on the forehead and has a spot near the mouth.

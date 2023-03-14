@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4152
+Description: Subject 4152 is the theater manager at [REDACTED]. He is a human male with blue clown eyes and a bucket hat. On his forehead, he wears a red victory band. Subject 4152's outstanding feature is his gold chain that he always carries around. He is often seen with a candy stick in his mouth, which makes it challenging to communicate with him.

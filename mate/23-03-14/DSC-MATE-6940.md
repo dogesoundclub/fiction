@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6940
+Description: DSC-MATE-6940 appears to be a human female of average height and weight, with an unusual appearance. She sports purple lips and spots on her face, and her eyes resemble those of a clown, being bright blue in color. Her head is covered in blue metal that can not be removed. DSC-MATE-6940 always wears gold earrings, a silver chain, and a goggle on her forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-889
+Description: DSC-MATE-889 is a male robotic entity resembling that of a middle-aged adult male with nerd glasses and a gold earring on its left ear. The entity stands at approximately 6 feet tall and wears a silver chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3175
+Description: DSC-MATE-3175 is a human male of average height and build. They are a firefighter by profession and are often called to scenes of anomalous activity due to their unique abilities. DSC-MATE-3175's most notable physical features are the orange stripes on their face and their ski goggle eyes. Their head appears to be not arranged green, and they wear a jade earring in one ear. In addition, DSC-MATE-3175 is often seen wearing a red scarf and a gas mask, choosing not to wear the standard Foundation-issued protective gear.

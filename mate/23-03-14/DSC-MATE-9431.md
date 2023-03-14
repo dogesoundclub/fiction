@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9431
+Description: Subject is a human male with a profession as a veterinarian. They possess unique physical features consisting of red clown eyes, a frightened mouth, and a medical mask. The subject often wears a red beanie and a cross-shaped earring on the left ear. A goggle is frequently spotted on his forehead along with a red scarf adorning his neck.

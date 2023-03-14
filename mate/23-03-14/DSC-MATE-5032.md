@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5032
+Description: DSC-MATE-5032 is a human male of average height and build, with orange stripes on his face and a visibly frightened mouth. The subject's eyes are obsidian black and resemble ski goggles, and wearing a doge hat over his head. DSC-MATE-5032 also has gold earrings on his ears and is commonly seen wearing a gold chain and holding a candy stick.

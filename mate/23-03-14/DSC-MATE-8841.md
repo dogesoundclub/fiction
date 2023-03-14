@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8841
+Description: Item 8841 is a fashion designer robot with a distinct green Cyclops eye as its primary face feature. Its hardware is designed to appear as a male humanoid, donning a nerd glass over its remaining eye, and a short peak cap for its head. The robot has a recognizable gold chain as its accessory, seen draped along its neck and shoulder.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2987
+Description: 2987 is a human male in his mid-40s, standing at approximately 5’10” tall. He is distinguished by the Mouth Spot, a circular birthmark on the right side of his mouth, in conjunction with the Clown Mouth, suggesting the mark extends around the entirety of the mouth itself. 2987's blue eyes are round and befitting of clown makeup. In formal settings, 2987 disguises his head with a blue bandana and his ears with a green cross earring. He also wears a red scarf around his neck, though its origin is uncertain.

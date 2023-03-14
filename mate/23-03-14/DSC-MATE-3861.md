@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3861
+Description: DSC-MATE-3861 is a tiger humanoid entity that takes on the physical appearance of a human male in his mid-30s. DSC-MATE-3861 stands at 6 feet 3 inches tall and weighs approximately 220 pounds. He possesses the facial structure and features of a tiger, including a pair of jade earrings located on his pointed ears. DSC-MATE-3861's eyes are covered with a pair of nerd glasses, and he has not arranged green hair.

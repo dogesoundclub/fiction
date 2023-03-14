@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9720
+Description: Subject 9720 is a male Monkey of unknown origin, with green fur that has yet to be arranged or styled. The subject's forehead features a distinctive two-color band, which seems to coincide with its ability to connect with others on a deep level. The subject often wears a gold earring in its left ear, which is a distinguishing feature of its personality. Subject 9720 can often be seen chewing on a candy stick, which it claims helps it connect with others in a deeper way.

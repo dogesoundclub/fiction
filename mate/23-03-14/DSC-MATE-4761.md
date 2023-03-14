@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4761
+Description: DSC-MATE-4761 is a human male of average height and build, with orange stripes on his face. He wears normal glasses and a Doge hat, with a two-color band on his forehead and a green cross earring on each ear. DSC-MATE-4761 also wears a gold chain and carries a candy stick as accessories.

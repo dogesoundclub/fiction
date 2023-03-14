@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3267
+Description: DSC-MATE-3267 is a male rabbit, standing at approximately 1 meter in height. Its face exhibits a permanently frightened expression, with a wide open mouth. Its eyes are bright red and appear circular, much like clown or anime eyes, which provides it with excellent vision in low-light conditions. DSC-MATE-3267 wears a Doge hat on its head and a single jade earring in its right ear. It also wears a gold chain around its neck and carries a candy stick at all times.

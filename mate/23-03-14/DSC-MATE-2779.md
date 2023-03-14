@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2779
+Description: DSC-MATE-2779 is a male rabbit and a former electrician. Despite their small and delicate appearance, DSC-MATE-2779 possesses an incredible attention to detail and a meticulous personality, which can manifest in unexpected ways. Their accessory of choice is a silver chain, which they tend to fidget with whenever they are anxious.

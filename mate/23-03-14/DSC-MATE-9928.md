@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9928
+Description: DSC-MATE-9928 is a human female that presents with an orange side-parted hairstyle, along with red cross earrings in the ears. DSC-MATE-9928's most noticeable feature is the red clown eyes that display a friendly and warm expression. The forehead of DSC-MATE-9928 carries an intricate goggle design that aids in their legal work. DSC-MATE-9928 also wears a black choker, along with a cigarette in their mouth.

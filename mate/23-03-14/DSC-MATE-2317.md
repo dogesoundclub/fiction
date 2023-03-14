@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2317
+Description: DSC-MATE-2317 appears to be a human male, approximately in his mid-twenties. He stands at 1.8 meters tall and has a thin build. DSC-MATE-2317 has been observed to wear a retro cap on his head, and a pair of nerd glasses on his eyes. Additionally, DSC-MATE-2317 is often seen wearing a silver chain and smoking a cigarette.

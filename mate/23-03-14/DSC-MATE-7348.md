@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7348
+Description: 7348 is a highly advanced traffic officer robot created by an unknown entity. It stands at 6 feet tall and is designed to resemble a human police officer. 7348 has a green cyclops eye and a mouth that constantly appears to be in a state of alarm or fear. Its glasses cover two functional optic sensors that serve as its primary source of vision. 7348's head is adorned with a police cap, and its ears are equipped with a red cross earring. It carries a whistle as an accessory.

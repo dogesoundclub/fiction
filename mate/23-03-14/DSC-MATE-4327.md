@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4327
+Description: DSC-MATE-4327 is a human female who works as a delivery driver for a local courier service. DSC-MATE-4327 is identifiable by her distinctive physical characteristics, which include purple spots on her face, a purple lip, and orange eyebrows. DSC-MATE-4327 is known to wear a green hair in a purple cap and a two-color band on her forehead, as well as carrying a cigarette at all times.

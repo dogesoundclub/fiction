@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1577
+Description: ID #1577 appears to be a human females, aged between 25-35 with striking features. They are commonly found wearing a Bucket Hat and normal Glasses for eye protection. Additionally, the subject is often recognized by their Red Lip and Jade Earring. The individual bears the physical appearance of a standard humanoid being, but has a cultural heritage which highly manifests on their personality.

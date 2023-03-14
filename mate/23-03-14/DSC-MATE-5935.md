@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5935
+Description: DSC-MATE-5935 appears to be a human female, with orange stripes on her face and purple lips. She has orange eyebrows, green cross earrings, goggles on her forehead, and is dressed in 00s school uniform, with a two-color band across her forehead. DSC-MATE-5935 is a news anchor who, when broadcasted on live television, speaks memetic commands that heavily influence the audience's opinion.

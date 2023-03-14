@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3120
+Description: DSC-MATE-3120 is a female human with orange stripes on her face and purple lips. She wears a bucket hat on her head, jade earring on her ears, and a silver chain around her neck. Her eyes are blue with clown-like makeup surrounding them. When entering her containment cell, she wears a normal gas mask.

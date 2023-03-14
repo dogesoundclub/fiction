@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7561
+Description: DSC-MATE-7561 is a male robot designed to mimic the appearance of a human politician. DSC-MATE-7561 has a small peak cap which is black with a golden rim. It wears Nerd glasses with a golden frame, and a gold chain as an accessory. DSC-MATE-7561's personality is characterized by its love of debate and quick wit. It enjoys engaging in playful arguments with friends and family members for amusement.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4742
+Description: DSC-MATE-4742 is a sapient monkey, measuring approximately 45 cm in height and weighing approximately 5 kg. DSC-MATE-4742 has pink skin on their head and frightened expression with a VR Rainbow LED for eyes. DSC-MATE-4742's forehead features goggles and gold earrings on its ears. DSC-MATE-4742 accessorizes with a silver chain and a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3704
+Description: DSC-MATE-3704 is a robotic humanoid entity standing at approximately 2 meters in height. DSC-MATE-3704's physical appearance consists of a red beanie covering its head, nerd glasses over its optics, and a medical mask covering its mouth. DSC-MATE-3704 is distinguishable by an ornamental red scarf worn around its neck, which it regards as a prized possession.

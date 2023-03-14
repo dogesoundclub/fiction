@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5864
+Description: DSC-MATE-5864 is a female human identified as a programmer. DSC-MATE-5864 has distinct facial features, including purple lips and red clown eyes, giving the subject a visually unsettling appearance. The subject's head resembles that of an early 2000s schoolgirl with a goggle on the forehead. DSC-MATE-5864 wears a jade earring and a silver chain, with a gas mask she wears as a standard accessory.

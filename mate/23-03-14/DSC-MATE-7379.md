@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7379
+Description: DSC-MATE-7379 is a humanoid creature, ostensibly resembling a monkey, standing at five feet, ten inches tall. DSC-MATE-7379's species is currently unknown. However, DSC-MATE-7379 is biologically similar to a primate, possessing digitate hands with opposable thumbs, which have fine motor control, allowing DSC-MATE-7379 to create intricate designs.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2814
+Description: DSC-MATE-2814 is a human male, identified as a lawyer by profession. He appears to be in his late twenties to early thirties, and is known to possess a vivid imagination and creative tendencies, often delving into unusual hobbies and interests. Notably, DSC-MATE-2814 sports orange stripes on his face and displays a frightened mouth.

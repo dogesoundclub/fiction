@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8779
+Description: Subject 8779 is a male human of unknown age and origin. The subject's most notable physical features are the spots on their skin and their unnerving red clown eyes. They have been observed wearing a LED headset and a gas mask, both of which seem to be integral parts of their daily attire. In addition, subject 8779 is commonly seen wearing a gold chain around their neck. 

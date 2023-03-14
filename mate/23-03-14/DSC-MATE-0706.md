@@ -1,0 +1,2 @@
+ID # : DSC-MATE-706
+Description: DSC-MATE-706 is a male human of average height and weight. The subject's most notable feature is the presence of bright orange stripes on its face, which appear in the pattern of a smile. The subject has normal blonde hair and often wears a medical mask over its mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3305
+Description: DSC-MATE-3305 appears to be a male adult of the species Panthera tigris. The subject stands at an average height of 1.8 meters and weighs approximately 272 kilograms. DSC-MATE-3305 possesses blue clown eyes which tend to glow in dark conditions. The subject is frequently seen sporting a purple cap with a headset and a medical mask which appears to be for protection against airborne diseases. DSC-MATE-3305 seems to prefer wearing a gold earring in their right ear and a red scarf as their accessory of choice.

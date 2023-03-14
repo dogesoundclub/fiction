@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6348
+Description: DSC-MATE-6348 is a female doctor of human origin, with orange hair, and red cross earrings on both ears. What distinguishes DSC-MATE-6348 from other humans is her anomalous appearance, manifested by her red clown eyes, which have the ability to hypnotize those who look into them. DSC-MATE-6348 has a reckless personality trait, which makes it difficult for her to think through situations, causing minor accidents and mishaps.

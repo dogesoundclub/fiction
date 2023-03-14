@@ -1,0 +1,2 @@
+ID # : DSC-MATE-730
+Description: DSC-MATE-730 is a male human of average height and medium build, appearing to be in their late 20s to early 30s. They exhibit a unique physical characteristic of orange stripes on their cheeks which appear to be cosmetic in nature. DSC-MATE-730 identifies as a beautician and is knowledgeable in various beauty treatments and procedures. 

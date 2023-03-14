@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4456
+Description: 4456 was a male human identified as a reporter. Their physical appearance included unique features such as spots on their face and a frightened mouth. Their eyes were cybernetic implants that emitted a rainbow LED display. The entity was often seen sporting a mohawk hairstyle and wearing a red scarf, with a medical mask covering their mouth for unknown reasons.

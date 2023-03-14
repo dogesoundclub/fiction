@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3863
+Description: DSC 3863 is a male human with distinct features that make him easily identifiable. The subject possesses a Mouth Spot on his right cheek, eyes that resemble Ski Goggles, and wears a Doge Hat on his head. The subject also wears a single Jade Earring and is often seen smoking a cigarette. 

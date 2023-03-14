@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2940
+Description: 2940 is a rare instance of an anomalous species of humanoid tiger, possessing the physical traits of a Siberian Tiger. The subject's most distinct attribute is the pair of blood-red clown eyes, which stare out from beneath a bucket hat. The tiger's frightened mouth adds to the unnerving appearance of the subject.

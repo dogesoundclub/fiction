@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2366
+Description: DSC-MATE-2366 is a human male identified as an electrician. The subject stands at 183 cm tall and weighs 70 kg. DSC-MATE-2366 bears a distinctive mouth spot on the left corner of his mouth, which appears to be a birthmark. DSC-MATE-2366 is also distinguishable by his jade LED-embedded virtual reality eyes, his doge hat on top of his head, and his jade earring. DSC-MATE-2366 is commonly seen sporting a gold chain and a normal gas mask.

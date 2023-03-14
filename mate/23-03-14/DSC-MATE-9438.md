@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9438
+Description: DSC-MATE-9438 appears to be a young human male in his mid-20s who works as a beautician. They are approximately 183cm tall and weigh approximately 81kg. DSC-MATE-9438's most noticeable facial features are the "Mouth Spot" on their right cheek and their permanent smile. DSC-MATE-9438's eyes resemble ski goggles, and they often sport a short peak cap on their head. DSC-MATE-9438 can usually be seen with goggles resting on their forehead, and they wear a green cross earring in their left ear. 

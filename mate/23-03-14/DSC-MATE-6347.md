@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6347
+Description: DSC-MATE-6347 is a female human of average height and weight. Their identity and personal history are unknown. DSC-MATE-6347 possesses unique facial features, including orange stripes on their cheeks and a purple lip, and red clown eyes that appear to be permanent. They also wear a gold chain and LED gas mask at all times.

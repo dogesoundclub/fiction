@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4225
+Description: Item #4225 is a male tiger in a humanoid form. He stands at approximately 6 feet tall and weighs approximately 240 pounds. His facial features include a permanently frightened mouth, and the color and shape of his eyes remain unknown. A red Victory Band is present on his forehead, and he often wears a silver chain as an accessory. 

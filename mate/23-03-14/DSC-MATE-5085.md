@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5085
+Description: DSC-MATE-5085 is a male tiger anthropomorph, standing at approximately 1.8 meters tall. It wears a "Doge" hat on its head and has a 2 color band on its forehead with a Red Cross earring adorning each ear. DSC-MATE-5085 is often seen wearing a gold chain and smoking a cigarette in its humanoid configuration.

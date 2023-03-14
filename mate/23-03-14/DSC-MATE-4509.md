@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4509
+Description: DSC-MATE-4509 is a human male of Italian descent, standing at 5'11" and weighing approximately 185 lbs. Its most notable physical feature is a dark spot on its mouth, which appears to be permanent. DSC-MATE-4509 also displays a frightened expression on its mouth, giving the appearance of a permanent grimace or frown. Additionally, its head has green layers, which are believed to be a tattoo or decorative body modification.

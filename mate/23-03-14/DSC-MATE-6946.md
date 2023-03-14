@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6946
+Description: DSC-MATE-6946 is a humanoid entity identified as a female human of approximately 33 years of age. Their most notable distinguishing features include several spotted areas on their face and a purple-colored lip. Their eyes are LED screens that display a rainbow virtual reality effect. DSC-MATE-6946 wears a tiara atop their head and red cross earrings on their ears. They wear a medical mask over their mouth and a gold chain as an accessory.

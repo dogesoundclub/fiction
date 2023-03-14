@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3103
+Description: DSC-MATE-3103 appears to be a middle-aged human female with spotted skin and red lips. They wear normal prescription glasses and have a head of unarranged green hair. A pair of goggles rests on their forehead, and they wear jade earrings in their ears.

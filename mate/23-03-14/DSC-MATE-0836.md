@@ -1,0 +1,2 @@
+ID # : DSC-MATE-836
+Description: DSC-MATE-836 appears to be a human female with distinctive physical features, including orange stripes on their face and purple lip. Their rainbow festival hairstyle and red cross earring give them a unique appearance. DSC-MATE-836 is often seen wearing a silver chain and an LED gas mask.

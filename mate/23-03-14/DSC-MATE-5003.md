@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5003
+Description: DSC-MATE-5003 is bipedal rabbit-like humanoid, standing at approximately 1.6 meters tall. The subject is identifiable by his green hair, purple cap, and jade earring in his left ear, along with normal glasses and a red scarf.

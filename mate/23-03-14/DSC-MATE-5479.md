@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5479
+Description: Subject 5479 is a male tiger with red clown eyes and a doge hat on its head. It also sports a gold earring on its left ear and a red scarf around its neck. The anomaly is known to exhibit human-like intelligence and is capable of verbal communication in multiple languages. Its personality is characterized by idealism and a strong desire to make the world a better place.

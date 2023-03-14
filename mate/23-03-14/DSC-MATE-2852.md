@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2852
+Description: DSC-MATE-2852 appears to be a female human of average build and height, with an unusual combination of physical features. Its head is covered in curly green hair with orange stripes, and it has a distinctive two-color band on its forehead. DSC-MATE-2852 wears a green cross earring and a medical mask to cover its mouth. It is often seen wearing a silver chain around its neck.

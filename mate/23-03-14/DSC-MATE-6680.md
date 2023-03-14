@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6680
+Description: 6680 is an anomalous humanoid creature identified as a monkey. It is approximately 3 feet tall and weighs roughly 100 pounds. 6680 has distinctive red clown eyes and a unique mohawk on its head. It also wears a gold chain around its neck as an accessory.

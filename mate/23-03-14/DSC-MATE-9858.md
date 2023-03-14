@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9858
+Description: DSC-MATE-9858 is a human female, superficially resembling an "00s school girl" with orange stripes on their face, purple lip, and red clown eyes, and a two-color band on their forehead. DSC-MATE-9858 is often seen wearing a medical mask, and a gold chain.

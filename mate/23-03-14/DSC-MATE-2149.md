@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2149
+Description: Item 2149 resembles a humanoid robot of male gender, standing at approximately 6'5'' in height. Its body language and facial expressions are consistent with a human-like appearance. Item 2149's facial features include a frightened mouth and ski goggle eyes, while its mouth is covered with a medical mask.

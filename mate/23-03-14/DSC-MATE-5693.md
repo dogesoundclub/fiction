@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5693
+Description: DSC-MATE-5693 is a male monkey of unknown origin, standing at approximately 3 feet tall with a mohawk hairstyle. It wears a pair of normal glasses over its eyes, and a goggle on its forehead. It has a gold earring on each ear, which appear to be purely decorative.

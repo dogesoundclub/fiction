@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2318
+Description: Subject 2318 appears as a brown rabbit with normal glasses and a hoodie with a 2 Colo Band on its forehead. It also wears a silver chain and carries a candy stick as an accessory. Its rebellious nature has been observed to show itself in their resistance towards authority and unnecessary rules. 

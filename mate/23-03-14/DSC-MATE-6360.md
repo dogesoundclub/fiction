@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6360
+Description: DSC-MATE-6360 is a robotic entity designed to mimic a human male lawyer. The robot stands at a height of 1.8 meters and weighs approximately 80kg. Despite its artificial nature, DSC-MATE-6360 presents several lifelike features, such as Nerd Glasses, a jade earring, and a red scarf as an accessory. However, the most notable feature is the eerie expression of fear in its mouth.

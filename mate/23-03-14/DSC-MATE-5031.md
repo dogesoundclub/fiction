@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5031
+Description: DSC-MATE-5031 is a highly advanced robot designed to resemble a human mafia boss. It stands at 6'1" and weighs approximately 300 pounds. DSC-MATE-5031's frame is made of a highly durable composite material capable of withstanding high temperatures and extreme pressure. DSC-MATE-5031 is equipped with a single green cyclops eye in the center of its forehead, which can emit a highly focused laser. DSC-MATE-5031 is also known to wear a retro cap and a red scarf, and it accessorizes with an LED Gas Mask.

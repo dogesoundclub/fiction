@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1588
+Description: DSC-MATE-1588 appears to be a robot with a humanoid body, standing at approximately 1.85 meters tall. Its most noticeable feature is a single green, glowing cyclops eye in the center of its face. DSC-MATE-1588 also has a mouth that is frozen in a frightened expression, and wears normal glasses on its face.

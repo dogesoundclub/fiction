@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8315
+Description: DSC-MATE-8315 is a human male, identified only as a banker. The most notable feature of DSC-MATE-8315 is its orange-striped facial markings, and ski goggle-like eyes. It wears a purple cap with a headset and a gold earring in one ear. It carries a cigarette at all times.

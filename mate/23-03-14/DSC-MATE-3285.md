@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3285
+Description: Item 3285 is a male robot standing at approximately 5'9" with a standard humanoid build. The robot's head is designed to resemble a red flashing alarm, and it is often seen wearing red cross earrings. Item 3285 has a pair of normal glasses on its optics and is frequently seen smoking a cigarette. It wears a silver chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1146
+Description: DSC-MATE-1146 is a human male of Italian descent, standing 1.8m tall and weighing approximately 90kg. DSC-MATE-1146 frequently wears a police cap, gold earring, gold chain, and carries a candy stick on his person. DSC-MATE-1146 has unique orange-striped facial markings, resembling those of a tiger.

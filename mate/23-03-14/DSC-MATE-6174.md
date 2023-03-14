@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6174
+Description: DSC-MATE-6174 is a male monkey of the species Macaca fascicularis, measuring approximately 60 cm in height and 12 kg in weight. The subject displays physical features such as a frightened mouth, normal glasses, a red beanie, a two-color band on its forehead, and a gold earring on its right ear. DSC-MATE-6174 is frequently seen holding a candy stick, which has been shown to calm the subject when given as a form of positive reinforcement. 

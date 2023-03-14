@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6514
+Description: DSC-MATE-6514 appears to be a human male in his mid-30s, measuring approximately 180 cm in height and weighing roughly 70 kg. DSC-MATE-6514's eyes are always shielded by a pair of nerdy glasses. It is commonly seen wearing a blue bandana as a headwear and a gold earring on its right ear.

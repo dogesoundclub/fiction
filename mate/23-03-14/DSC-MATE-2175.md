@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2175
+Description: DSC-MATE-2175 is a male monkey that appears to be a hybrid of several monkey species. Its most notable feature is its VR Rainbow LED eyes, which change color and pattern depending on DSC-MATE-2175's mood. DSC-MATE-2175's head is adorned with a bucket hat and a red scarf, while it is often seen with a cigarette in its hand.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6878
+Description: DSC-MATE-6878 is a male rabbit politician, measuring approximately 1 meter in height. It wears a bucket hat on its head and a gold earring on the left ear. The rabbit's mouth often assumes a frightened expression, and it has been noted that DSC-MATE-6878 wears normal glasses. The subject is often seen carrying a whistle as an accessory.

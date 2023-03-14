@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2470
+Physical Description: Subject 2470 is a male tiger with green fur that is not arranged in any discernible pattern. They possess distinctive red cross earrings and are often seen wearing a medical mask over their mouth. Their eyes are a bright yellow and often convey a mischievous glint.

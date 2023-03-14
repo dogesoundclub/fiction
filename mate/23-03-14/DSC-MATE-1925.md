@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1925
+Description: DSC-MATE-1925 is a human male identified as a firefighter with distinctive orange stripes on his face. His eyes are replaced with ski goggles, and he wears a silver chain and jade earring as accessories. DSC-MATE-1925 also wears a normal gas mask as his personal protective equipment.

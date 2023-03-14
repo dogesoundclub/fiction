@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2973
+Description: DSC-MATE-2973 is a female human beautician with spotted face and a contagious smile. Her eyes have been replaced with an array of VR Rainbow LEDs, and she sports an 00s School Girl hairstyle, with a pair of green cross earrings. She wears a gold chain as an accessory.

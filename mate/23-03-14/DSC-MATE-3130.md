@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3130
+Description: DSC-MATE-3130 is a human female of blonde hair and possessing an artificial wing attached to their head. The wing has proven capable of limited flight and control of air currents. Their facial features include various spots scattered around their cheeks, and a prominent medical mask covering their mouth. The mask has been observed to be worn for prolonged periods, even when not necessary.

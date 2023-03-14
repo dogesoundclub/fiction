@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2472
+Description: Subject 2472 is a male human of African descent. Their face features distinct orange stripes across their cheeks, which are accentuated by their broad smile. Their eyes are large LEDs that display a jade green color, which they refer to as VR Jade. They seem to have a knack for fashion and often wear a golden earring on their left ear and a red scarf around their neck. 

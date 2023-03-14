@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9265
+Description: 9265 is a male rabbit of the species Oryctolagus cuniculus. It stands at approximately 2 feet tall and has blue clown eyes. The fur on its head is not arranged and green in color, and it can often be seen wearing goggles on its forehead. One of its ears has a gold earring.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6113
+Description: Subject 6113, a fast food worker of the human species, is easily recognizable by his notable face features; orange stripes marking his cheeks and a permanent, seemingly endless smile. He adorns a bucket hat and a green cross earring, with a standard gas mask being his preferred accessory. The gas mask serves to conceal his features while he is on the job, as exposure to crowds can trigger his anomalous properties.

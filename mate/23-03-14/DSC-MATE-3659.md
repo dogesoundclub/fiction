@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3659
+Description: DSC-MATE-3659 is a robotic entity resembling a humanoid figure with a green Cyclops eye as its main facial feature. Its head is adorned with a retro cap, accessorized with a ski goggle as an eye patch and a red cross earring on each ear. DSC-MATE-3659 has a silver chain around its neck as an additional accessory.

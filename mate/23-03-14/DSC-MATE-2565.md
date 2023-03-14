@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2565
+Description: DSC-MATE-2565 is a human male of average height and build, with distinctive orange stripes on its cheeks and forehead. Its head is usually covered by a red beanie, and it wears a pair of ski goggles over its eyes. DSC-MATE-2565's ears are adorned with a jade earring, and it often wears a silver chain around its neck.

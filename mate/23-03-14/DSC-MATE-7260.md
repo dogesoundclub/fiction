@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7260
+Description: DSC-MATE-7260 is a male monkey that stands at an average height of 1.2 meters. DSC-MATE-7260 serves as a news anchor for a local television station. DSC-MATE-7260's face features a frightened mouth and red clown eyes. Its head is not arranged green and has a goggle on its forehead. It is wearing a jade earring and a gold chain as accessories. DSC-MATE-7260 can often be seen with a cigarette in its hand. 

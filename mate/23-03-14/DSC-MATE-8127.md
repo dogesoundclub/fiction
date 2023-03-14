@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8127
+Description: DSC-MATE-8127 is a female human, identified with the job of a beautician. DSC-MATE-8127 displays unusual physical features, consisting of orange stripes on their face and a red lip, which is often visible as if DSC-MATE-8127 is smiling. DSC-MATE-8127's eyes are bright red and clown-like in appearance. DSC-MATE-8127's head resembles that of a pink rabbit, while their forehead shows a two-color band. DSC-MATE-8127's ears have green cross earrings on them, and they often wear a gold chain that hangs from their neck.

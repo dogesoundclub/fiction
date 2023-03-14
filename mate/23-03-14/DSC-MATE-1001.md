@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1001
+Description: DSC-MATE-1001 is a human male identified as a mechanic by profession. DSC-MATE-1001 has several distinct physical features, including a black spot over the mouth, red clown eyes, and a permanent smile. DSC-MATE-1001 also wears a bucket hat on their head, a red victory band on their forehead, and a jade earring on their left ear. Additionally, DSC-MATE-1001 carries a candy stick as an accessory and is known for their natural charm and charisma.

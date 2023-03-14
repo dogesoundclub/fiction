@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3223
+Description: Subject 3223 is a male human of normal build and height. Their blonde hair is kept in a simple and unremarkable style. However, they do have a green cross earring on their left ear and a gold chain around their neck. They are often seen sucking on a candy stick, which they claim helps calm their nerves.

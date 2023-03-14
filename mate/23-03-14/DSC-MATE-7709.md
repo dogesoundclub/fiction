@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7709
+Description: DSC-MATE-7709 is a male monkey of the Cebus genus, measuring approximately 30 cm in height and weighing 5 kg. DSC-MATE-7709 has a distinctive appearance, wearing a blue bandana around its head, a pair of normal glasses, and a jade earring in its left ear. DSC-MATE-7709 also wears a gold chain around its neck and often carries a candy stick.

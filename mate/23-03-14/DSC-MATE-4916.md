@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4916
+Description: DSC-MATE-4916 is a rabbit of remarkable intelligence and hair styling abilities. Despite its fringed, fluffy exterior, DSC-MATE-4916 displays undeniable leadership qualities and exceptional multitasking abilities. DSC-MATE-4916 is often seen wearing a police cap and sporting a pair of horned rim glasses, along with a jade earring, which appears to be somewhat sentient, and follows any commands given by DSC-MATE-4916.

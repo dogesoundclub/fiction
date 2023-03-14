@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1780
+Description: Subject 1780 is a human male with distinct facial features that include spots and a permanent, infectious smile. The subject's eyes are replaced with advanced VR Jade LED technology, which displays vibrant imagery and emoticons, but also allows for digital manipulation and perception alteration. Subject 1780 is typically seen wearing a short peak cap, a gold chain, and frequently a candy stick.

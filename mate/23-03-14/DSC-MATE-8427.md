@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8427
+Description: DSC-MATE-8427 is a human male believed to be in his mid-30s. It stands approximately 180cm in height and weighs around 85kg. Its most notable feature is the spots on its face, which are spread across its nose and cheeks. DSC-MATE-8427 typically wears a hoodie over its head, along with a red scarf draped around its neck. It can often be seen wearing red victory bands on its forehead and a pair of nerd glasses over its eyes. In addition, DSC-MATE-8427 frequently dons a normal gas mask.

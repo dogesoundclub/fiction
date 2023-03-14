@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6941
+Description: DSC-MATE-6941 is a male human who appears to be in their mid-30s. DSC-MATE-6941 is a firefighter by profession and is well-versed in firefighting tactics and procedures. DSC-MATE-6941 is 5'10" tall and weighs 170 pounds.

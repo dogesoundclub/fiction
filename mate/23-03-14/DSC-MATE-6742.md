@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6742
+Description: DSC-MATE-6742 is a female human police officer, identified as Officer [REDACTED], with a unique appearance. She wears a purple cap with a headset and has orange stripes on her face, along with blue clown eyes. A goggle is also present on her forehead, and she wears a silver chain as an accessory.

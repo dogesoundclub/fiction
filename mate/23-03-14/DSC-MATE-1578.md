@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1578
+Description: Subject 1578 is a male of human origin, approximately 5'11" with a slim build. The subject's most notable feature is the orange stripes on their face. Subject 1578 also has red clown eyes and wears a medical mask. They wear a bucket hat on their head and have green cross earrings on their earlobes. The subject has a two-color band on their forehead.

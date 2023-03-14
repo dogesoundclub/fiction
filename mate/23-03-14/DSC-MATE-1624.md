@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1624
+Description: DSC-MATE-1624 is a human male with distinct facial features: spots on his face, a frightened mouth, and red clown eyes. It has green hair, usually covered by a purple cap, and a green cross earring positioned on its left ear. DSC-MATE-1624 is often seen wearing a red scarf and holding a cigarette.

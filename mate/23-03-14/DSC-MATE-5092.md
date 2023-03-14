@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5092
+Description: DSC-MATE-5092 is a male, humanoid robot with a frightened mouth and ski goggle eyes. DSC-MATE-5092 is outfitted with a hoodie, a gold chain, and a whistle. DSC-MATE-5092 is primarily a car salesman by profession and is known to be exceptionally skilled at convincing individuals to purchase automobiles.

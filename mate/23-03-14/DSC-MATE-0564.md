@@ -1,0 +1,2 @@
+ID # : DSC-MATE-564
+Description: DSC-MATE-564 is a human female in her late 50s. She stands at 1.7 meters tall and weighs approximately 70 kg. DSC-MATE-564 has distinctive features including bright red lipstick, blue clown eyes, and 90s-style brown hair held back by a pair of goggles on her forehead. She also sports a green cross earring and a choker around her neck.

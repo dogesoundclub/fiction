@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9801
+Description: DSC-MATE-9801 is a human male with distinctive orange stripes on its face. It has VR Rainbow LED eyes and wears a blue bandana on its head, with a goggle resting on its forehead. DSC-MATE-9801 also has a jade earring, gold chain, and an LED gas mask as accessories.

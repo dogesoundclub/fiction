@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7613
+Description: DSC-MATE-7613 is a human male identified as a lawyer. DSC-MATE-7613 displays several anomalous physical features, including a mouth spot, blue clown eyes, a police cap, a 2 color band on their forehead, and a green cross earring on both ears. DSC-MATE-7613 also possesses an LED gas mask, which allows him to breathe normally while providing limited night vision.

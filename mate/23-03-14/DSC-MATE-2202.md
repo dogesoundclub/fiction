@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2202
+Description: Subject 2202 is a human male with distinctive spots on their face. Their eyes resemble ski goggles and their head is adorned with a monk's haircut. They are often seen wearing a gold chain and smoking a cigarette. Subject 2202 is a practical and hands-on individual who is adept at fixing problems in unconventional ways. They often utilize duct tape, paper clips, or other common objects to solve issues that others may find too complicated.

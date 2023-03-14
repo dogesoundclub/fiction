@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9660
+Description: DSC-MATE-9660 appears to be a non-anomalous monkey of the species Rhesus Macaque. However, upon closer examination, it has been found that DSC-MATE-9660 displays human-like emotional characteristics such as empathy, compassion, and sensitivity. The individual stands at an approximate height of 50 cm and weighs 6.8 kg. DSC-MATE-9660 appears to prefer wearing a bucket hat, a gold chain, and a normal gas mask, and has displayed a preference for sentimental movies and music that evoke strong emotions.

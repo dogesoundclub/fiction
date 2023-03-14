@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7196
+Description: DSC-MATE-7196 appears to be a male Bengal tiger standing at 1.8 meters tall. DSC-MATE-7196 is typically seen wearing a purple cap with a headset and a silver chain. DSC-MATE-7196's notable features include a jade earring and a two-color band on their forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1075
+Description: DSC-MATE-1075 is a male monkey, measuring approximately 1.2 meters in height and weighing 25 kilograms. It shows unusual intelligence, able to communicate using sign language and exhibits human-like characteristics such as problem-solving and tool-making abilities. DSC-MATE-1075 also has green hair and is often seen wearing a purple cap and horned rim glasses. Despite its cutesy appearance, DSC-MATE-1075 is a challenging subject to handle as it has demonstrated high levels of agility and unpredictable behavior.

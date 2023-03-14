@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6367
+Description: Subject 6367 is a human male traffic officer with significant adornments on his person. The subject's blue clown eyes are a result of CPD-C, a known genetic mutation caused by exposure to magical energies. The subject's bucket hat has been identified as a standard issue traffic hat with no abnormal properties. However, the red victory band displayed across the subject's forehead has been confirmed to possess minor electrical properties, which aid in the subject's ability to control traffic flow.

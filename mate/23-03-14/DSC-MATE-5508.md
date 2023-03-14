@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5508
+Description: DSC-MATE-5508 is a female human with green hair in a purple cap, jade earring, and an LED gas mask. Their eyes have been replaced with jade-colored LED screens, which appear to be either an advanced prosthetic or some form of cybernetic enhancement. The subject speaks in a soft, almost whispering voice and is known to be highly persuasive.

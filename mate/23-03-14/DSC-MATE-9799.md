@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9799
+Description: Object 9799 appears in the form of a male tiger, with unidentifiable eyes and green fur on its head that is not arranged. The ears have a red cross earring, and it wears a gold chain and a normal gas mask as accessories. Object 9799 is currently employed as a theater manager.

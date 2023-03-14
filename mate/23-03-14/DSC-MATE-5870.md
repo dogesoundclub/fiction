@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5870
+Description: Subject 5870 is a male rabbit of the Oryctolagus cuniculus species. The rabbit stands approximately 20cm tall and weighs around 2kg. Its eyes are a normal brown color and it wears a pair of glasses that appear to be prescription. The subject also has a distinctive doge hat on its head, featuring a two-color band around its forehead. Subject 5870 wears a red scarf and carries a whistle as accessories.

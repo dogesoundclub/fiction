@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4200
+Description: DSC-MATE-4200 is a human female with distinctive spots on her face and a red-colored pair of lips. DSC-MATE-4200's eyes are cybernetic and emit a rainbow LED glow. DSC-MATE-4200 usually wears a green cross earring on her left ear and a silver chain necklace. DSC-MATE-4200 is also known for frequently smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4992
+Description: DSC-MATE-4992 is a highly advanced robot developed by an unknown organization. Dubbed the "Mafia Boss", DSC-MATE-4992 stands 1.8 meters tall and weighs approximately 111 kg. DSC-MATE-4992's appearance is highly unusual, sporting only one green cyclops eye and a permanent expression of fear-resembling appearance on its face. DSC-MATE-4992 wears horned-rimmed glasses and a bucket hat as well as a gold chain and a red cross earring on its left ear. It also carries a whistle as its primary accessory.

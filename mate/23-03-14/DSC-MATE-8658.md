@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8658
+Description: DSC-MATE-8658 is a male human with orange stripes on their face and a clown mouth. Their eyes are red clown eyes, and they wear a retro cap on their head, with a red scarf as an accessory. DSC-MATE-8658's appearance is known to cause feelings of unease and discomfort in those who interact with them, leading them to create social connections and providing a sense of harmony with others.

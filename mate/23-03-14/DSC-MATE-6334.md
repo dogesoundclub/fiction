@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6334
+Description: 6334 is a female human of approximately 30 years of age, with blonde hair and a set of wings on her head. They have a unique feature on their forehead, in the form of goggles, and sport jade earrings on their ears. 6334 also has spots on their face.

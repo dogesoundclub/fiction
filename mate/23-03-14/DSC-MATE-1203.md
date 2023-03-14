@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1203
+Description: DSC-MATE-1203 is a robotic Traffic Officer assigned to a specific district of the city. Its exterior is made of a matte black metal, with a bright purple cap and a headset that allows it to communicate with its headquarters. The robot has Jade LED eyes, which glow when active, and a Jade earring on each side of its vaguely humanoid head. DSC-MATE-1203 is often seen wearing a bright red scarf and carries a whistle, which it uses for directing traffic and calling for assistance.

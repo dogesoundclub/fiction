@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5097
+Description: Item 5097 is a human male identified as a Beautician. He is commonly seen wearing a headset with LED lights and a medical mask. Additionally, he sports goggles on his forehead and a silver chain around his neck. The subject enjoys planning ahead but has a spontaneous side which can lead to unexpected events such as unplanned celebrations and expeditions.

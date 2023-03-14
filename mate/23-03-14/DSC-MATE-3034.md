@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3034
+Description: Item 3034 is a male robot modeled to resemble a human in its physical and facial features. Its face exhibits a frightened mouth expression and wears nerd glasses covering its circular eyes. It has a red cross earring and a bucket hat that meets with its favored fashion style. A red scarf accessory is worn around its neck.

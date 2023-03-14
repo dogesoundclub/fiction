@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2517
+Description: Subject 2517 appears to be a female human with striking facial features, including bright red lips and orange eyebrows. Their blonde hair sports a peculiar wing-like extension on the left side of their head, while their jade earrings and gold chain give off an air of sophistication. Despite their distinctive appearance, they tend to blend in well with crowds due to their innate ability to socialize and mingle with others.

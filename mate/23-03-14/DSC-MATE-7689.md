@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7689
+Description: DSC-MATE-7689 is a human male with distinct facial features. His face bears several spots, and his mouth is shaped like that of a clown. DSC-MATE-7689's eyes are a bright red color, reminiscent of clown makeup. DSC-MATE-7689 wears a blue bandana on his head and a green cross earring on his left ear. He also sports a silver chain around his neck and is often seen smoking a cigarette.

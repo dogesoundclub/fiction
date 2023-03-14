@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4483
+Description: DSC-MATE-4483 is a humanoid of unknown age and origin, posing as a villain in urban society. DSC-MATE-4483 has distinctive features that include orange stripes on the face and a two-color band on the forehead. The eyes are orange and the eyebrows are also orange. DSC-MATE-4483 wears a medical mask over the mouth, which adds an even more ominous aspect to the character.

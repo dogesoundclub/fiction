@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4938
+Description: Subject 4938 is a humanoid entity identified as a human female. She stands at a height of 5’6” and weighs approximately 145 pounds. Her most notable features include her purple lips and red clown eyes. Subject 4938’s head is of a green colour, with edge curls that create an almost reptilian appearance. She frequently wears a gold chain and is often seen smoking a cigarette.

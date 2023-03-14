@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6643
+Description: DSC-MATE-6643 is a male rabbit of unknown descent. DSC-MATE-6643 possess a frightened mouth face feature, which makes it appear constantly frightened. DSC-MATE-6643 is often seen wearing a blue bandana around its head, a red scarf, and smoking a cigarette. The eyes of the DSC-MATE-6643 remain unknown as no subject has ever been able to make direct eye contact with the DSC.

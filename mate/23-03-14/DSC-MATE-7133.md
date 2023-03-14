@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7133
+Description: Subject 7133 is a male humanoid of the species Homo sapiens, who presents with distinctive orange stripes on the face, as well as a smile that is virtually ever-present. The subject also appears to take particular pride in his wardrobe, typically wearing a short peak cap, nerd glasses, and a red scarf, which complements his two-color band forehead feature and gold earring.

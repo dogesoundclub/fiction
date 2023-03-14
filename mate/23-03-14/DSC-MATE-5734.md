@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5734
+Description: DSC-MATE-5734 is a male humanoid designated as DSC-MATE-5734-1 who appears to be in his mid-40s. DSC-MATE-5734-1 has orange stripes on his face and a mohawk on his head, as well as red clown eyes. Additionally, DSC-MATE-5734-1 is often seen wearing a gold chain and an LED gas mask.

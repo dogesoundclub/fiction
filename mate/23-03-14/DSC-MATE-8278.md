@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8278
+Description: DSC-MATE-8278 is a humanoid entity of the female sex, appearing to be in her mid-30s. Its face displays orange stripes and purple lips, and the eyes appear as red clown eyes. DSC-MATE-8278's head is green in color, and shows an unusual edge curl that extends from the top of its head. DSC-MATE-8278 is often seen wearing a silver chain around its neck, and may be observed smoking a cigarette at times.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5811
+Description: Subject 5811 is a human male, approximately 35 years of age. It is noted that the subject has a distinct appearance, characterized by orange stripes and red clown eyes. Additionally, he wears a police cap, a gold earring, and a red scarf, along with carrying a candy stick. Despite these features, he remains mostly unremarkable in his appearance.

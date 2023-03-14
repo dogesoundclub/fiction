@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1539
+Description: DSC-MATE-1539 is a male rabbit, standing approximately 55 centimeters tall. It is distinguishable by its frightened-looking mouth and red clown-like eyes. DSC-MATE-1539's head is covered by a bucket hat and wears a red victory band on its forehead as a form of fashion. It has gold earrings on each of its ears and a silver chain around its neck. Despite its outward appearance, DSC-MATE-1539 is highly intelligent and, like other DSC officers, has a strong sense of duty and responsibility.

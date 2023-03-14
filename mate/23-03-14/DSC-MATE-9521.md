@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9521
+Description: DSC-MATE-9521 is a male rabbit with a blue bandana on its head and a gold earring in its left ear. Its eyes are replaced with VR jade LED lenses to enhance its vision. DSC-MATE-9521 has a normal gas mask as its primary accessory.

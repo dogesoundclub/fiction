@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4450
+Description: Item 4450 is an average-looking human male. However, upon closer inspection, orange stripes can be seen on their face, and their mouth is almost always open in a frightened expression, concealed by a medical mask. The subject wears normal glasses and has a peak spike on their head, topped off with a silver chain. 

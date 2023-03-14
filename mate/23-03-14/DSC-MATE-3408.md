@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3408
+Description: DSC-MATE-3408 is a tiger of unknown origin that has taken on human-like characteristics. The creature has green hair and is often seen wearing a purple cap and red scarf along with ski goggles over its eyes. DSC-MATE-3408 also carries a whistle which is consistently used by the creature in its occupation as a train driver. 

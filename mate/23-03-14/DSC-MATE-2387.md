@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2387
+Description: 2387 stands at a height of 5'11" and has short black hair. The most striking feature of 2387's face is the orange stripes that run across his cheeks, giving the illusion of a tiger's face. 2387 usually wears a hoodie pulled up over his head, and a medical mask on his face, which obscures his mouth. He can often be seen wearing normal glasses and a red scarf around his neck.

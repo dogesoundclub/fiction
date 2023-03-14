@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6178
+Description: Subject 6178 appears to be a male monkey with an unspecified eye color. The subject possesses a green, unarranged head and wears a jade earring, a gold chain, and a standard gas mask. Despite being a monkey, the subject has displayed a great deal of intelligence and aptitude for tasks that require problem-solving skills. Subject 6178 presents no signs of anomalous behavior or reality-bending powers.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1795
+Description: Item 1795 appears to be a mechanical humanoid with a distinctive LED gas mask and jade earring. It claims to be a firefighter, but its true origins are unknown. Its eyes are obscured by a pair of normal glasses that it wears, but its other senses appear to be highly advanced.

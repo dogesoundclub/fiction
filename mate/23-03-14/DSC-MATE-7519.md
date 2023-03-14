@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7519
+Description: DSC-MATE-7519 is a humanoid robotic entity of male gender, believed to be manufactured by ███████ Corporation. DSC-MATE-7519 stands at 5'11" and weighs approximately 156 lbs. DSC-MATE-7519's face features a single green cyclops eye located in the center of its head, and wears a pair of glasses consistent with those worn by "nerds." DSC-MATE-7519's head is covered by a hoodie, and it wears a gold chain around its neck.

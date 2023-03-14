@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3970
+Description: DSC-MATE-3970 is a male humanoid identified as a car salesman named Todd Johnson. Its appearance is distinguished by the presence of several spots on its skin and a constantly frightened expression on its mouth. Its most notable feature is its eyes which have been replaced by a pair of jade-colored LED screens. These screens display a wide range of information relevant to its sales position.

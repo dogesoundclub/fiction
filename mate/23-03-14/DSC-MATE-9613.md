@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9613
+Description: DSC-MATE-9613 appears to be a human male of average height and weight. Its face features two orange stripes and a frightened mouth. Its eyes are like blue clown eyes, and it always wears a police cap. DSC-MATE-9613 has two accessories: a silver chain and a cigarette. DSC-MATE-9613 is known for its quick wit and love of debate. This personality trait has caused DSC-MATE-9613 to engage in playful arguments with friends and family members just for fun.

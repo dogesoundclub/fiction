@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4098
+Description: DSC-MATE-4098 is a male tiger with emerald green eyes and a playful demeanor. DSC-MATE-4098 possesses an acute sense of hearing, which is mainly attributed to the jade earring worn in its left ear. The silver chain around its neck is ornamental, but readily identifies DSC-MATE-4098.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6489
+Description: Subject 6489 is a human male with spots on his face and a perpetual smile. His standout feature, however, is his VR Jade LED eyes, which emit a distinct glow. Subject 6489 is often seen wearing a police cap and smoking a cigarette.

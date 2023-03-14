@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6186
+Description: DSC-MATE-6186 appears to be a male human of average height and weight. The subject's skin is covered in spots of various sizes and colors, resembling the patterns of a leopard's fur. DSC-MATE-6186's head is surrounded by several layers of green material, with a pair of goggles sitting atop its forehead. The subject also wears a medical mask over its mouth, which is believed to serve as a precaution against potential airborne anomalies.

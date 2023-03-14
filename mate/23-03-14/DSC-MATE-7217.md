@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7217
+Description: DSC-MATE-7217 is a male human with spots on his face and a frightened mouth. He wears nerd glasses and a green cross earring on each ear. He sports a parted pink head with a red victory band on his forehead and a gold chain around his neck.

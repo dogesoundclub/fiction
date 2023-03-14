@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1372
+Description: Subject 1372 is a human female, aged 28 with an affinity for art, music, and emotional stimuli. Her most striking features are her purple lips, which contrast with her pale complexion, and her jade earrings in the shape of teardrops. She is often seen wearing a retro cap, which conceals her bright red hair, and goggles on her forehead. She also wears a black choker and tends to smoke cigarettes during moments of stress.

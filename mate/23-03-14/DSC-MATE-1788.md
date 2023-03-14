@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1788
+Description: DSC-MATE-1788 appears to be a small, baby-faced monkey with a thick pale coat of fur, stand approximately 3 feet tall on it hind limbs. DSC-MATE-1788 displays unusually long and nimble fingers useful both for climbing and hand-made tools. Its eyes are covered with ski goggles, and its head is adorned with a bucket hat; with an additional gold earring adorns its left earlobes. DSC-MATE-1788 is often seen wearing a gold chain and a whistle as adornments. 

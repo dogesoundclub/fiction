@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7035
+Description: 7035 is a male human with characteristic features such as a mohawk, a gold earring in his ear, and a pair of nerd glasses, which are often seen perched on the tip of his nose. One of his distinctive features is a constant smile that seems to be glued on to his face. He is often seen with a cigarette in hand, and has been known to break rules and bend them just for fun. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1743
+Description: DSC-MATE-1743 is a humanoid female of the species known as Homo sapiens, with a unique appearance characterized by orange stripes on her face and green hair with edge curls. DSC-MATE-1743's most prominent features are her VR jade LED eyes and jade earring, which appear to be permanently attached to her body.

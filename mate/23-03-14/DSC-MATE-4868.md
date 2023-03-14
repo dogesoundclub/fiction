@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4868
+Description: DSC-MATE-4868 is a humanoid entity of the human species, identified as a female. DSC-MATE-4868 stands at approximately 5’6” and has short witch-like hair, with a red lip that is prominent in most scenes. DSC-MATE-4868 has orange eyebrows and wears a goggle on her forehead. DSC-MATE-4868's mouth is obscured by a medical mask most of the time. DSC-MATE-4868 also wears a gold chain as an accessory.

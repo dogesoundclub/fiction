@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7254
+Description: DSC-MATE-7254 is a male human of unknown origin, with a distinctive mark on its mouth resembling a spot. Its eyes are VR Jade LED, and it wears a short peak cap on its head, a gold earring in its ears, and a medical mask over its mouth. DSC-MATE-7254 also wears a gold chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8988
+Description: DSC-MATE-8988 is a humanoid entity standing at 1.82 meters tall and weighing approximately 90 kilograms. DSC-MATE-8988 resembles a middle-aged male with orange stripes on his face, emphasized by his giant smile. DSC-MATE-8988 has a normal set of eyesight, but is often seen wearing glasses.

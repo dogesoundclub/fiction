@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5049
+Description: DSC-MATE-5049 is a middle-aged male of the human species with a distinct Mouth Spot on his upper lip. It carries a retro cap and green cross earring on its ears alongside VR jade LED eyes that emit a pale green light. The subject frequently adds a gold chain and smokes a cigarette as a finishing touch to its appearance.

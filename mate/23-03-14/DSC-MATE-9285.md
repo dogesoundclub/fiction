@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9285
+Description: Officer 9285 appears to be a human male with orange stripes on their face and a perpetual smile. They often wear nerd glasses and a red beanie, with a two-color band across their forehead. Officer 9285 has demonstrated a creative and imaginative personality, often expressing themselves through various hobbies and interests such as writing poetry, crafting intricate cosplay costumes, and collecting odd curiosities.

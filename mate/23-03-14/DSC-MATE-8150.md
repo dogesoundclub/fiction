@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8150
+Description: Item #8150 appears to be a human male in his mid-thirties. He stands at five feet and nine inches, and has a lanky build. Item #8150's hair is a dark brown color, and is always covered by a "retro" baseball cap. He is typically seen wearing "nerd" glasses, a two-color striped band on his forehead, and a silver chain around his neck. Item #8150 has also been noted to have a great sense of humor and enjoys making others laugh with funny stories and silly impersonations.

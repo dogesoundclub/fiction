@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1043
+Description: Item 1043 appears to be a human female of average height and build. She has distinctive orange stripes on her cheeks and a warm smile that puts those around her at ease. Her eyes are fitted with VR rainbow LED technology, giving her a unique appearance. Her head is adorned with a variety of rainbow festival items, while her ears feature a single jade earring.

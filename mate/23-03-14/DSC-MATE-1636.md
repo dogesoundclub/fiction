@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1636
+Description: DSC-MATE-1636 is a humanoid rabbit standing approximately 4 feet tall. DSC-MATE-1636 speaks fluent English and is known to be the leader of a criminal organization operating out of [REDACTED]. DSC-MATE-1636 is often seen wearing a hoodie and horned rim glasses, and accessorizes with a gold chain around its neck.

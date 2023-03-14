@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2904
+Description: Subject 2904 is a human female with striking features that set her apart from the rest of humanity. Her brown hair, styled in the manner of the 90s, contrasts with her piercing red clown eyes that seem to glow with an inner fire. To hide these eyes from the public, she is often seen wearing a medical mask to conceal her identity. The subject has a penchant for gold, which is evident in the gold earring on her left ear and gold chain around her neck, adding to her intimidating aura.

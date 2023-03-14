@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8206
+Description: DSC-MATE-8206 is a human male, with orange stripes on his face and a retro cap on his head. He wears normal glasses and a goggle on his forehead. DSC-MATE-8206 is always seen wearing a red scarf and a gas mask.

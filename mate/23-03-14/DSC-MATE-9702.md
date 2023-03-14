@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9702
+Description: DSC-MATE-9702 is a male monkey, standing at approximately 1.2 meters tall. It displays exceptional intelligence, with the ability to communicate fluently in English and possess knowledge beyond that of a typical primate. Its species is currently unknown, as no known monkey species have been recorded with the features exhibited by DSC-MATE-9702.

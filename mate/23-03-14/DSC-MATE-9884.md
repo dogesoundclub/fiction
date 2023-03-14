@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9884
+Description: Item 9884, also known as "The Adventurer," appears to be a humanoid male species with orange stripes on their face and a frightened mouth. Their red clown eyes are known to cause discomfort to those who make eye contact with them. Item 9884's head appears to be a shade of green that does not occur in natural human skin tones.

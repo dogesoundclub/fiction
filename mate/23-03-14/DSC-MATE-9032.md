@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9032
+Description: Subject 9032 is a human male with spots covering their face as their distinguishing feature. He is often seen wearing a bucket hat with a pair of goggles resting on his forehead. Additionally, he wears a jade earring, a gold chain and often carries a cigarette. While seemingly innocuous, it is important to note that the subject has an exceptional attention to detail and is a skilled programmer.

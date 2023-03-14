@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7111
+Description: DSC-MATE-7111 is a male monkey of the species Macaca fascicularis with blue clown eyes and a frightened mouth. It is approximately 1.5 meters tall when standing upright and weighs approximately 25 kg. DSC-MATE-7111 wears a purple cap with a headset, a red scarf, and a normal gas mask.

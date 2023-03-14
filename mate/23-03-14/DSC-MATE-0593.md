@@ -1,0 +1,2 @@
+ID # : DSC-MATE-593
+Description: Item 593 is a female humanoid, officially classified as a human. She has orange stripes running down her face, gold earrings on her ears and wears a choker around her neck. Her most distinct features, however, are her blue clown-like eyes and medical mask, which she refuses to remove.

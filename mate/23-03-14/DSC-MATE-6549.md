@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6549
+Description: Item 6549 is a male Siberian tiger, measuring approximately ten feet from nose to tail and weighing approximately 900 pounds. The subject's most striking feature is its unusual blue clown eyes, giving it an otherworldly appearance. Item 6549 can often be seen wearing a red beanie with a two-color band, as well as a cigarette clamped between its teeth.

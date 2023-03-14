@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3053
+Description: Item 3053 is a humanoid robot with a particular fascination for details. It stands at 6 feet tall and wears a Doge hat on its head. Its eyes are hidden behind normal glasses, and it sports a gold earring on one of the pointed ears on its head. Item 3053 always carries a whistle with it, the usage of which is unknown at this point in time. Its voice is deep and monotonic, and it speaks with precision, as if every syllable is planned and rehearsed.

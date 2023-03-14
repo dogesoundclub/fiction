@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2268
+Description: Subject 2268 is a male human with spotted skin, blue clown eyes, and green cross earrings. The subject often wears a silver chain around their neck as an accessory. Despite their unique physical features, subject 2268 appears to be a normal human and displays no anomalous properties.

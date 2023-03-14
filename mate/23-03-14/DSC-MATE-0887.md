@@ -1,0 +1,2 @@
+ID # : DSC-MATE-887
+Description: DSC-MATE-887, a middle-aged human man, stands at 1.78 meters in height and weighs approximately 74 kilograms. The subject has a distinctive Mouth Spot, a prominent blemish on the left side of their lower lip. They are often seen wearing nerd glasses and a blue bandana on their head. DSC-MATE-887 frequently smokes cigarettes, despite standard Foundation protocols against smoking indoors.

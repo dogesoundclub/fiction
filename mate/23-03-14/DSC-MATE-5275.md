@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5275
+Description: DSC-MATE-5275 is a male tiger of unknown origin, with a frightened mouth and eyes of indeterminate color. Its head is adorned with a bucket hat, with a two-color band on its forehead. DSC-MATE-5275's ears are pierced with a gold earring and it wears a gold chain around its neck at all times. Additionally, DSC-MATE-5275 often carries a candy stick in its mouth as an accessory.

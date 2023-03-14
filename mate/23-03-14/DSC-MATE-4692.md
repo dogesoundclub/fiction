@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4692
+Description: DSC-MATE-4692 is a female human of average height and build with unusual facial features that include spots on their skin and purple lips. Their most notable feature is their red clown eyes that seem to glow in certain lighting conditions. DSC-MATE-4692 also wears a green cross earring in their left ear and a medical mask over their mouth.

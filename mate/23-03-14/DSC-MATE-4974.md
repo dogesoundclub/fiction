@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4974
+Description: DSC-MATE-4974 is a human female identified as a Beautician whose physical features include having spots on their skin, a smile that appears as a permanent cosmetic addition to their face, and pigtail hair. DSC-MATE-4974's forehead has a two-color band stretching from the left eye to the right ear. DSC-MATE-4974's ears have jade earrings, and they also wear a silver chain accessory.

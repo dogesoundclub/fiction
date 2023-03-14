@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5417
+Description: DSC-MATE-5417 is a human female, who identifies herself as an electrician. DSC-MATE-5417 has distinctive orange stripes on their face, with red clown eyes, a witch short hair style, and a two-color band on the forehead. DSC-MATE-5417 has a green cross earring on the left earlobe, a silver chain worn as a necklace, and regularly smokes cigarettes.

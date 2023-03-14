@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7694
+Description: DSC-MATE-7694 is a male veterinarian robot with a single green cyclops eye and a frightened-looking mouth. Its head is covered with green hair in a purple cap and wears a jade earring. DSC-MATE-7694 also dons a red scarf and a normal gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9481
+Description: Item 9481, also identified as a lawyer, appears to be a standard human male with a few unique features. Notably, they bear striking orange stripes on their face and exhibit an ever-present smile. They don a red beanie on their head, and on their forehead is a pair of goggles. Item 9481's ears are adorned with a golden earring, and they typically wear a medical mask over their mouth. Additionally, they carry a red scarf.

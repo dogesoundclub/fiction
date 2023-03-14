@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4640
+Description: DSC-MATE-4640 is a male monkey-like humanoid, with the ability to speak fluently in several languages, including English and Mandarin. It wears a red beanie and a pair of goggles on its forehead. Its ears adorn a gold earring, and it carries a silver chain as well as a whistle.

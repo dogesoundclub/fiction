@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5073
+Description: DSC-MATE-5073 appears to be a female human security guard with several unusual physical features. DSC-MATE-5073's face is covered with several spots, and her eyes have been noted to be bright orange color, with her eyebrows being of the same color. DSC-MATE-5073's head seems to resemble that of a pink rabbit, with her ears adorned with gold earrings. DSC-MATE-5073 wears a silver chain around her neck.

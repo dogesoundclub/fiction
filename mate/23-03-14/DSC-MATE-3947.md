@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3947
+Description: DSC-MATE-3947 is a male monkey identified as a fashion designer. DSC-MATE-3947 possesses a human-like appearance, with black hair and a jade earring on his left ear. DSC-MATE-3947 is often seen with a whistle around his neck, which has yet to reveal any anomalous properties.

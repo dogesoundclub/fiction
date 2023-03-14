@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1874
+Description: Item 1874 is a male tiger in Police attire with an assortment of accessories. These include a red cross earring on the left ear, a red scarf around the neck, and a whistle in the shirt pocket. It possesses extraordinary strength, agility, and keen senses for detecting danger. It is able to communicate courteously and efficiently with fellow officers and the public.

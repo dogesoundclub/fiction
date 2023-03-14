@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4182
+Description: DSC-MATE-4182 is a male rabbit with VR Rainbow LED eyes and a Not Arranged Green head. The subject's ears are adorned with a gold earring and frequently seen with a candy stick. DSC-MATE-4182 exhibits a strong and decisive personality with clear leadership abilities, often coming off as bossy or intimidating. However, it is noted that these behaviors are merely a means to ensure the efficient and effective completion of tasks.

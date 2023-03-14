@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8360
+Description: DSC-MATE-8360 is a male monkey, standing at approximately 1.5 meters tall. The subject’s face displays a frightened expression, while its eyes remain unknown. DSC-MATE-8360 wears a doge hat on its head as well as a Jade Earring on each ear. The subject also adorns a gold chain around its neck and carries a candy stick at all times.

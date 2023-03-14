@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1119
+Description: Subject 1119 is a female human of average height and weight. They have a striking feature of a permanent smile on their face, which can be off-putting in certain situations. Their eyes are red in color resembling a clown's eyes, making them appear scary to most people. Subject 1119 is often seen wearing a choker and a normal gas mask, but they always keep a goggle on their forehead.

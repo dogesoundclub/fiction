@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9254
+Description: DSC-MATE-9254 is a female human identified as a car salesman. DSC-MATE-9254 is approximately 1.65 meters in height and weighs approximately 65 kilograms. Its face is characterized by spots and a prominent smile. DSC-MATE-9254 wears normal glasses, a green choker, and a gas mask that does not exhibit any anomalous properties. Its head is short and it wears jade earrings.

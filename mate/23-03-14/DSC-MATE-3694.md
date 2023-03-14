@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3694
+Description: Dr. [REDACTED] is a male human of unknown age, standing at approximately 6ft tall. He has dark hair, spotted skin, a noticeable smile, and wears nerd glasses. Dr. [REDACTED] is always seen wearing a green surgical mask over the lower half of his face, and a gold chain around his neck. 

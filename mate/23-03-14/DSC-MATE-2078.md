@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2078
+Description: DSC-MATE-2078 is a female human identified by her unique facial features including spots and red lips, as well as her red clown eyes. She often wears a retro cap and a two-color band on her forehead as an accessory, but most notably, she wears an LED gas mask that obscures her mouth, making communication difficult.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9781
+Description: DSC-MATE-9781 was a female human identified as a doctor with an enthusiastic personality. They were often seen wearing a gold chain and a normal gas mask as accessories. DSC-MATE-9781's most notable feature was their red clown eyes, which emitted a constant glow. DSC-MATE-9781 also had a green cross earring on one of their ears.

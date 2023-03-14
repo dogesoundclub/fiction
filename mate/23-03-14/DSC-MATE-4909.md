@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4909
+Description: DSC-MATE-4909 is a male human of average height and build, with a distinctive spot pattern on his face. Despite his unremarkable appearance, the subject possesses a pair of red clown eyes that seem to glow in low-light conditions. Subject habitually wears a hooded sweatshirt with the hood up, and a red scarf around his neck.

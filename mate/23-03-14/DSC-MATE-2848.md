@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2848
+Description: DSC-MATE-2848 is a male tiger with an appearance resembling a human male in a dark blue suit. Its facial features include a scared mouth and opaque eyes. DSC-MATE-2848 is typically seen wearing a red scarf and a fuzzy bucket hat. It also has a habit of smoking cigarettes, providing free entertainment to those who accompany it.

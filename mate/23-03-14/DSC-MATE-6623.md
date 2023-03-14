@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6623
+Description: DSC-MATE-6623 is a female human identified as the current boss of a mafia organization. DSC-MATE-6623 presents with characteristic features of an 00s school girl, including a goggle on its forehead, jade earring on its left ear and a red color lip. It chooses to wear a medical mask over its mouth, hiding its facial expression.

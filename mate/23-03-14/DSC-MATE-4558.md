@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4558
+Description: DSC-MATE-4558 is a male rabbit with a height of 150 cm and a weight of 55 kg. DSC-MATE-4558 displays physical features such as a frightened mouth, nerd glasses as eyes, and a doge hat on their head. DSC-MATE-4558 also has a red victory band on their forehead, a gold earring on each ear, a silver chain around their neck and they often hold a cigarette. DSC-MATE-4558 identifies as a male.

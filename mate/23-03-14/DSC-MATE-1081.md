@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1081
+Description: 1081 is a male human with a mouth spot that appears and disappears at various intervals. They wear normal glasses and can be identified by the two color band on their forehead. Additionally, they have a jade earring and often wear a gold chain and carry a candy stick.

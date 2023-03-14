@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5063
+Description: 5063 is a humanoid robot and performs the role of theatre manager. It stands at 6ft and appears to be modeled after a police officer, complete with a cap and red cross earrings. Its horn-rimmed glasses sit above a large, frightened mouth that often quivers with emotion. A bright red scarf adorns its neck.

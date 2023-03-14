@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4027
+Description: 4027-A is a male monkey with a height of 50cm and a weight of 9kg with grey and white fur. It is commonly found wearing a blue bandana on its head along with a pair of nerd glasses and a gold earring. 4027-A is known to wear a red scarf and an LED gas mask at all times. The mask, when turned on, emits a bright light that obscures 4027-A’s face.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4962
+Description: DSC-MATE-4962 is a male monkey with horned rim glasses and a green hair in purple cap. DSC-MATE-4962 possesses an intelligence equal or greater than humans, which has been demonstrated through its ability to drive a train and perform its duties without error. Its physical capabilities are also significantly enhanced in comparison to wild monkeys, allowing it to perform duties on the train for extended periods without fatigue. DSC-MATE-4962 is capable of independent thought and can communicate fluently in multiple languages.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5008
+Description: Item 5008 is a male monkey with a blue bandana worn on its head and a jade earring on its ear. It is regularly seen wearing a red scarf around its neck. Item 5008 possesses the ability to speak and understand human language fluently. 

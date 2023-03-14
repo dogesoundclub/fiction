@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5581
+Description: DSC-MATE-5581 is a male monkey of the Macaca species with predominantly brown fur. DSC-MATE-5581 has a terrified facial expression on his small face. Its red clown eyes and a bucket hat on its head make it stand out from other male monkeys of the same species.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7774
+Description: DSC-MATE-7774 is a humanoid robot, standing approximately 1.8 meters tall and weighing 90 kilograms. Its body is primarily composed of reinforced steel alloys and synthetic composite materials. DSC-MATE-7774 is capable of performing various tasks related to medicine and surgery, though its programming is limited to emergency procedures only.

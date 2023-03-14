@@ -1,0 +1,2 @@
+ID # : DSC-MATE-821
+Description: Subject 821 is a male tiger who has been observed to exhibit a frightened expression on its mouth. Its eyes emit a VR rainbow LED glow that changes in color depending on the subject's mood. Subject 821 possesses a gold earring on each of its ears, along with a silver chain around its neck.

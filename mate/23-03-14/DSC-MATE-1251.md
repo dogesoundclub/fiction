@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1251
+Description: DSC-MATE-1251 is a humanoid male of indeterminate age, standing at approximately 1.85 meters (6'1") tall. DSC-MATE-1251 is a mafia boss of the Lucchese crime family. When not wearing his gas mask, DSC-MATE-1251 has red clown eyes and a clown mouth. DSC-MATE-1251 always wears a short peak cap and silver chain as accessories.

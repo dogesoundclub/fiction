@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5553
+Description: DSC-MATE-5553 is a human female with orange striped facial features and a distinctive smile. It has green hair in a purple cap, with gold earrings and a silver chain as accessories. DSC-MATE-5553 is a fashion designer by trade, and is known for its exceptional taste and quick wit in the field.

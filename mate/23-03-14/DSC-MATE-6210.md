@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6210
+Description: DSC-MATE-6210 is a male rabbit standing at approximately 3 feet tall. DSC-MATE-6210 is generally humanoid in appearance, though with distinctive rabbit features such as long ears and a fluffy tail. DSC-MATE-6210 wears a blue bandana on its head and a jade earring on one ear. It is often seen with nerd glasses, a goggle on its forehead, a silver chain around its neck and carrying a candy stick.

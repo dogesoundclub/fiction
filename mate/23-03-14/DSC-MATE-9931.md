@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9931
+Description: Subject 9931 is a human male identified as a programmer. He is known to have a habit of acting recklessly without thinking of the consequences beforehand. His unconventional fashion sense is characterized by a metallic purple headpiece, gold earring, and ski-goggle eyes along with a medical mask that covers his mouth. He is often seen wearing a vibrant red scarf that spills over his shirt collar.

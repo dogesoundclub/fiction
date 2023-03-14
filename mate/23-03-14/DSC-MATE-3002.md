@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3002
+Description: DSC-MATE-3002 is a female human with a striking appearance. They are typically seen dressed in business attire and wearing a medical mask, which they claim is for their own personal health concerns. DSC-MATE-3002 has red lips and wears a gold chain as well as gold earrings. They are a real estate agent by trade, known for their exceptional organizational skills and their ability to plan ahead.

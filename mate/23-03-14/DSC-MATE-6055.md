@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6055
+Description: DSC-MATE-6055 is a humanoid robot of male designation measuring 1.7 meters in height and weighing 75 kilograms. The robot has a frightened mouth and wears a pair of normal glasses on its face. It has one gold earring on its right ear and a red scarf around its neck.

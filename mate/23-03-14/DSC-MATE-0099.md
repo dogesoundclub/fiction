@@ -1,0 +1,2 @@
+ID # : DSC-MATE-99
+Description: DSC-MATE-99 appears to be a human female in her mid-20s, standing at 168 cm tall and weighing approximately 57 kg. The subject bears orange stripes on her face that appear to be permanent, and her lips are consistently red. DSC-MATE-99 has blonde hair that features a single wing on the left side of her head, and she often wears a medical mask over her mouth.

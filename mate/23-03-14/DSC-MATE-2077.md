@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2077
+Description: DSC-MATE-2077 appears to be a human female, standing at approximately 5ft 7in. She has orange eyebrows and 90s brown hair with a distinguishable two-color band across her forehead. DSC-MATE-2077 wears a medical mask over her mouth and a jade earring in each ear. She is often seen wearing a gold chain around her neck as an accessory.

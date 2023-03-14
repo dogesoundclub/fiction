@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8710
+Description: 8710 is a human male with several unique features. The subject has spots on their face, which are believed to be a cosmetic condition caused by prolonged exposure to beauty treatments. The subject often wears normal glasses, and their head is shaven bald except for a small patch at the top, which is styled into the shape of a monk's circlet.

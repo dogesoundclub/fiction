@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3089
+Description: DSC-MATE-3089 is a Caucasian male of indeterminate age, standing at 5'11" and weighing approximately 190 lbs. DSC-MATE-3089 primarily wears a gray suit with an orange pinstripe pattern and a matching short peak cap. DSC-MATE-3089's most noteworthy feature is the orange stripes that run down the sides of its face, starting just below the eyes and terminating at the jawline. DSC-MATE-3089's eyes are of the ski goggle type, giving it greater protection against bright lights and other hazards.

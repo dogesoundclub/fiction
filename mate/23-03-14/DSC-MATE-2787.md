@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2787
+Description: DSC-MATE-2787 is a female human in her late twenties with distinct features such as red lipstick, normal glasses, and green hair with a purple cap. DSC-MATE-2787 is often seen wearing a choker and smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1565
+Description: DSC-MATE-1565 is a humanoid male of African-American descent. He stands at 6'2" and weighs approximately 220 pounds. DSC-MATE-1565 sports a red beanie on his head and a green cross earring on his left ear. His most notable feature are his VR rainbow LED eyes, which are always on and shiny. DSC-MATE-1565 is often seen wearing a gold chain around his neck and carrying a candy stick in his pocket.

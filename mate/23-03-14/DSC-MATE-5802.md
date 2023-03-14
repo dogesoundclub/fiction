@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5802
+Description: DSC-MATE-5802 is a large male tiger, standing at approximately 2 m in height and weighing around 300 kg. Its eyes are a striking blue color, resembling clown eyes, and its head is adorned with green hair in a purple cap. The forehead of DSC-MATE-5802 is marked with a 2 color band and it has a goggle on its forehead. DSC-MATE-5802 wears a medical mask over its mouth and a silver chain around its neck.

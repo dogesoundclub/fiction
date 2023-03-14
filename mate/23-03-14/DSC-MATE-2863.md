@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2863
+Description: Subject 2863 appears to be a normal human male working as a beautician. However, noticeable abnormalities include a spot on their mouth and blue clown eyes, coupled with a mohawk hairstyle. Subject 2863 also wears a pair of goggles on their forehead, a jade earring, and a medical mask over their mouth, which is believed to be self-imposed due to germaphobia. Notably, subject 2863 also sports a gold chain as an accessory.

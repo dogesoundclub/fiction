@@ -1,0 +1,2 @@
+ID # : DSC-MATE-490
+Description: DSC-MATE-490 is a male robot of unknown origin, standing at approximately 6 feet tall. It has a single green cyclops eye in the center of its head and wears a retro cap and jade earring. The face of DSC-MATE-490 is often adorned with a pair of nerd glasses and a red scarf, while a normal gas mask covers its mouth and nose.

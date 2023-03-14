@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1387
+Description: DSC-MATE-1387 is a human male with a 33-year-old physical appearance. He stands at 5'10" and weighs approximately 180 lbs. DSC-MATE-1387 has rainbow LED eyes, a peak spike hairstyle, and green cross earrings. He is commonly observed wearing a silver chain and carrying a candy stick.

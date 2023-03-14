@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8626
+Description: DSC-MATE-8626 is a male tiger standing at 2m in height and weighing approximately 200kg. Its most notable features include a pair of ski goggle-like eyes, a police cap on its head, a gold earring on each ear, and a red scarf tied around its neck. DSC-MATE-8626's mouth is usually covered with a medical mask for hygiene reasons.

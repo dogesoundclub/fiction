@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6544
+Description: DSC-MATE-6544 is a male primate, identified as a member of the Cebidae family. DSC-MATE-6544 stands at an average height of 1.5 m and weighs approximately 35 kg. DSC-MATE-6544 displays no anomalous physical traits, except for the presence of a jade earring in its right ear and a red scarf and cigarette as accessories.

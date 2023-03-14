@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5361
+Description: 5361 is a male human of average height and build. Their most notable feature is a distinct and permanent spot on their mouth. This is often complimented by a perpetual smile on their face, which may be interpreted as either genuine happiness or a potential coping mechanism for psychological trauma.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5808
+Description: 5808 is a humanoid entity that appears as a female human with blue clown eyes, wearing a retro cap with goggles on her forehead, red cross earring on her ears, and a medical mask on her mouth. They have a tendency to appear to be idealistic and have a strong desire to make the world a better place.

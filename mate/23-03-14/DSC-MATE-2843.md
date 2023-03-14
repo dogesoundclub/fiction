@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2843
+Description: DSC-MATE-2843 is a human female identified as a traffic officer of the local police department. DSC-MATE-2843 stands approximately 1.68 meters tall and weighs around 60 kilograms. DSC-MATE-2843's most notable physical features are her orange stripes on her face and purple lips. DSC-MATE-2843's head is blond, and she often wears an ushanka, which complements her jade earrings. DSC-MATE-2843 frequently wears a medical mask and a gold chain as a necklace.

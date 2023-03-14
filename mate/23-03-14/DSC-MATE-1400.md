@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1400
+Description: 1400 is a male tiger, standing at approximately 7ft in height and weighing in at 600lbs. They possess a unique blue bandana on their head, with a jade earring on each ear. Their normal glasses cover their dark, piercing eyes which display intelligence and cunning. A constant feature of their face is a frightened mouth, indicating that they are often uneasy or fearful.

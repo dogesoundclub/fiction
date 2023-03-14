@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1798
+Description: DSC-MATE-1798 is a male monkey of the species Macaca fascicularis, standing at 1.2 meters tall and weighing 25 kilograms. DSC-MATE-1798's head is adorned with green hair in a purple cap and there is a goggle on its forehead. It also wears a jade earring on its left ear and a normal gas mask that is most often seen hanging around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1170
+Description: Subject 1170 appears to be a male rabbit who stands at approximately six feet tall when upright. The subject is usually seen wearing a bucket hat, horn-rimmed glasses, a red scarf, and an LED gas mask that covers his mouth and nose. The subject does not speak but can communicate through written language. The subject has an affection for dancing and often "lets loose" at social events, surprising observers with his impressive dance moves.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3921
+Description: DSC-MATE-3921 is a human male, standing at 6'2" in height and weighing approximately 190 lbs. His most notable physical features include a face with spots and a perpetually frightened mouth, as well as eyes that are covered by nerd glasses. DSC-MATE-3921's head is composed entirely of metal and is colored purple, while he sports a jade earring in his left ear. He often wears a gold chain as an accessory, as well as an LED gas mask.

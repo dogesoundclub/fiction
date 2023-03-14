@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4970
+Description: Item 4970 appears to be a standard commercial robot, resembling a Real Estate Agent. It is equipped with Nerd Glasses and a Hoodie. Additionally, Item 4970 is equipped with a Normal Gas Mask. It has demonstrated the ability to speak and interact with humans.

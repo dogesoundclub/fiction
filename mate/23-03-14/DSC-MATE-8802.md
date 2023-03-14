@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8802
+Description: DSC-MATE-8802 is a male rabbit of the Leporidae family, measuring one meter in height when standing on its hind legs. Its face features a perpetually frightened expression, with droopy cheeks and a wide-open mouth. DSC-MATE-8802 wears horned rim glasses on its two small, beady eyes and a red beanie on its head. It also has a jade earring on its left ear and a red scarf around its neck. It carries a whistle as an accessory, which it uses to perform its job as a police officer.

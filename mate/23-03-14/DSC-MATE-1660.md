@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1660
+Description: DSC-MATE-1660 is a human female of average height and weight with blonde hair and green eyes. Facial features include purple lips and a pink nose. She wears a green cross earring, a silver chain and a gas mask with LED lights. Her eyes have been surgically altered with VR Jade LED implants that enhance her beauty-related skills.

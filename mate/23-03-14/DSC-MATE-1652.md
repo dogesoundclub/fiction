@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1652
+Description: Subject 1652 is a human female with distinctive spots on her face. Her eyes are a bright orange and her eyebrows are thick and prominent. Her head is adorned with short, wavy hair, styled in a witch-like fashion. The subject also wears a jade earring in her left ear, and a choker around her neck.

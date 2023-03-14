@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1872
+Description: DSC-MATE-1872 is a robotic entity of male gender, externally resembling a human real estate agent. DSC-MATE-1872 stands at approximately 1.8 meters in height, and weighs roughly 80 kilograms. Its body is made of advanced metal alloys and polymers, with various synthetic hair and organic skin components added for the sake of verisimilitude.

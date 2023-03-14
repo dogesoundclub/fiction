@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5190
+Description: DSC-MATE-5190 is a male human with distinct physical features. Notably, DSC-MATE-5190 possesses a peak spike hairstyle and wears gold earrings. It has been observed that DSC-MATE-5190 often carries a candy stick as a means of calming and distracting itself.

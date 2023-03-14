@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4212
+Description: DSC-MATE-4212 is a Human female identified as a Car Salesman. It features orange stripes on its face, complemented by a bright red lip. DSC-MATE-4212's eyes are composed of VR Jade LED, which continually glows at a low intensity. DSC-MATE-4212 adorns its head with a tiara, and its ears sport jade earrings. It has a silver chain as its primary accessory.

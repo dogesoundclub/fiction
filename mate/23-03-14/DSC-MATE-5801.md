@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5801
+Description: DSC-MATE-5801 is a humanoid female of average height and weight. DSC-MATE-5801's most notable features include orange stripes on their face and a set of VR Jade LED eyes. DSC-MATE-5801's personal style includes a gold chain and a green cross earring on their ears. Their face is often concealed by a medical mask for unknown reasons.

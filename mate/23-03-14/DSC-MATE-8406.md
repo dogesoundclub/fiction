@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8406
+Description: Subject 8406 is a humanoid identified as a Human theatre manager with an unusual appearance. Subject has blue clown eyes and purple lips, with a two-color band across her forehead, and the head covered by a hoodie. The Subject has been observed wearing an LED Gas Mask which is believed to have resulted from undue influence by an unknown power source. Subject's most unique trait is her tendency to anthropomorphize inanimate objects.

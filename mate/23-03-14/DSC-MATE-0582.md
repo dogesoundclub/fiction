@@ -1,0 +1,2 @@
+ID # : DSC-MATE-582
+Description: DSC-MATE-582 appears to be a human male in his late 30s or early 40s, measuring approximately 1.8 meters in height. DSC-MATE-582 has a distinctive spot on his mouth that resembles a birthmark, along with a perpetually frightened expression that is believed to be related to a history of trauma.

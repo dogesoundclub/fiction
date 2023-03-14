@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2497
+Description: DSC-MATE-2497 appears to be a male rabbit standing approximately 80cm tall. DSC-MATE-2497 is often seen wearing a purple cap with a headset and a red scarf. The color of their eyes is currently unknown.

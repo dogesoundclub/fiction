@@ -1,0 +1,2 @@
+ID # : DSC-MATE-33
+Description: DSC-MATE-33 is a male tiger standing at approximately 2.2 meters tall, with red clown eyes. DSC-MATE-33 is typically found wearing a black hoodie with a silver chain and an LED gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6775
+Description: DSC-MATE-6775 is a human male, identified as a farmer prior to containment. DSC-MATE-6775 displays an abnormal physical appearance, including orange stripes decorating his face, a clown mouth, red clown eyes, and green layers on the top of his head. DSC-MATE-6775 also wears a medical mask and goggles on his forehead.

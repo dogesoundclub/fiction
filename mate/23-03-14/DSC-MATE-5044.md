@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5044
+Description: DSC-MATE-5044, also known as "The Delivery Driver," is a human female of approximately 35 years of age. DSC-MATE-5044 has a distinctive appearance, including two orange stripes on the cheeks, purple lips, and orange eyebrows. DSC-MATE-5044 often wears a LED gas mask accessory over their face, which they claim is because they are sensitive to pollutants and airborne contaminants. Additionally, DSC-MATE-5044 wears a silver chain accessory around their neck and has pigtails on top of their head.

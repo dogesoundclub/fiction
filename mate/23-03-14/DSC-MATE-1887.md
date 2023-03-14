@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1887
+Description: Subject 1887 is a sentient Tiger with recognizable facial features, including a pair of horned rim glasses and a police cap. He is always seen wearing a silver chain around his neck and carrying a candy stick. His appearance is similar to that of a 1950s detective. Despite his form, 1887 exhibits human-like behavior and a solid understanding of laws and legal practices. As a result, he often works as a lawyer in the supernatural community.

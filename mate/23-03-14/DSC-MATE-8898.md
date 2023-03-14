@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8898
+Description: DSC-MATE-8898 appears as a human male, standing at 1.67 meters in height. The subject has dark skin with several light spots scattered across its body. The tail of a small mouse is attached to the back of the subject's peak cap, and multiple rainbow LED lights are visible within the subject's eyes. DSC-MATE-8898 often wears a medical mask and has a pair of goggles resting on its forehead. One gold earring is visible on each ear, and the subject wears a silver chain around its neck.

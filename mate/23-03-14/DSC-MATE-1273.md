@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1273
+Description: DSC-MATE-1273 appears to be a human male with spots dotting their face and a constant smile. DSC-MATE-1273's head has not been arranged, and their forehead is adorned with a red victory band and goggles. DSC-MATE-1273 is often seen with a cigarette in their mouth. Despite their anomalous appearance, DSC-MATE-1273 displays no physical abnormalities and is biologically human.

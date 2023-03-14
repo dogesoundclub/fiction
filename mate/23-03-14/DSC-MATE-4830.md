@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4830
+Description: Subject 4830 is a human male firefighter with orange stripes on his face and a clown mouth. They have blue clown eyes and green hair in a purple cap. Their forehead features a two-color band and jade earring. The subject wears a medical mask on their mouth and a red scarf as an accessory.

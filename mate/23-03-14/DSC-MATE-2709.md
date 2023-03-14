@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2709
+Description: DSC-MATE-2709 is a female human who works as a firefighter. They have orange stripes on their face and a noticeable smile. They wear normal glasses on their eyes and their head is colored in metal blue. DSC-MATE-2709 also wears a medical mask which covers their mouth, and a choker as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-971
+Description: DSC-MATE-971 is a male monkey of unknown species, standing approximately 50 cm tall. The monkey is often seen wearing a Doge hat on its head, and a silver chain around its neck. It also has a distinctive 2-color band on its forehead and a jade earring in each ear. DSC-MATE-971 has an affinity for wearing glasses with its eyes, which appear normal.

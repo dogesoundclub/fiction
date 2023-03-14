@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7050
+Description: Subject 7050 is a female human of average height and weight. Her face is covered in a series of spots, with bright red lipstick as her only distinguishing feature. Subject 7050 wears normal glasses, a bucket hat, and a single gold earring in her right ear. Her mouth is typically covered with a medical mask.

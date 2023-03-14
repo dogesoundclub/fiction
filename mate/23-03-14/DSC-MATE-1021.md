@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1021
+Description: Item 1021 is a human female of indeterminate age with an obsidian skin tone. What stands out is her appearance: purple lips, embedded with cybernetic VR Jade LED eyes, and a gray and black sheen bucket hat. She is a practicing beautician and displays a great deal of interest and skill in her craft, although her scatterbrained nature can lead to hilarious yet unfortunate cosmetic mistakes.

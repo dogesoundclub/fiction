@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7775
+Description: DSC-MATE-7775 is a male rabbit of average size, sporting green hair under a purple cap and jade earrings. DSC-MATE-7775 is easily identifiable by its horned rim glasses, red scarf, and a whistle looped around its neck. Forensic analysis shows traces of anomalous energy in DSC-MATE-7775's DNA, and it is believed to possess abilities that have not yet been fully documented.

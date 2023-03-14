@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7622
+Description: Subject 7622 is a male monkey of the genus Ateles, commonly known as a spider monkey. The subject displays a frightened mouth feature and has two distinctive colored bands on their forehead. Subject 7622 often wears a police cap and red scarf as accessories. The specifics regarding the subject's eyes have yet to be determined.

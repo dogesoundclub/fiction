@@ -1,0 +1,2 @@
+ID # : DSC-MATE-276
+Description: DSC-MATE-276 appears to be a human male in his mid-thirties. Despite his occupation as a beautician, DSC-MATE-276 displays a visibly disheveled appearance, with uncombed hair and a lack of personal hygiene. DSC-MATE-276's face is dotted with multiple spots, and his mouth appears to be in a perpetual state of fear or agitation.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1490
+Description: DSC-MATE-1490 is a humanoid robot with a green cyclops eye on its face, and horns rimmed glasses as its eyes. The robot has a police cap on its head with goggles on its forehead, and a red cross earring on its left ear. The robot accessorizes with a gold chain.

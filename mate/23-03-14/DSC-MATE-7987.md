@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7987
+Description: DSC-MATE-7987 appears to be a normal human male of mid-thirties in age, working as a banker in one of the branches of [REDACTED] Bank. It presents with several unique features that differentiate it from the average human. It has several spots on its face, which appear to be a part of its natural pigmentation. DSC-MATE-7987's eyes are blue with a distinctive clown-like appearance.

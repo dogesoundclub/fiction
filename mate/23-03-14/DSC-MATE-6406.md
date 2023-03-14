@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6406
+Description: Subject 6406 is a human female standing at approximately five feet and six inches tall. They have spots on their face and a distinctive purple lip. Upon their head is a pink rabbit. Subject 6406 also has a two-color band on their forehead and wears a gold chain around their neck. Their ears are pierced with jade earrings.

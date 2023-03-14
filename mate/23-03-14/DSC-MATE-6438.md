@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6438
+Description: DSC-MATE-6438 is a male tiger with glasses and a hooded sweatshirt. The subject wears a red victory band on their forehead and a silver chain around their neck. They are often seen carrying a candy stick, which they use to manipulate and subjugate those around them.

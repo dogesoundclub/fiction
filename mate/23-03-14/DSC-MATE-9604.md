@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9604
+Description: DSC-MATE-9604 is a male tiger, standing approximately 1.8 meters tall and weighing 250 kg. Their eyes are covered by a pair of nerd glasses, and their forehead is adorned with a red cross earring and a set of goggles. DSC-MATE-9604 wears a blue bandana and a medical mask, possibly as a precaution against airborne diseases.

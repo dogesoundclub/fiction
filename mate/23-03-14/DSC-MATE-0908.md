@@ -1,0 +1,2 @@
+ID # : DSC-MATE-908
+Description: Item 908 appears to be a male rabbit with typical physical characteristics. However, its face exhibits a perpetual expression of fear and anxiety, with its mouth constantly open and trembling. Its eyes are unnaturally red and oversized, giving a clownish appearance. It wears a police cap on its head and a gold earring in its left ear. It is often seen wearing a gold chain and carrying a candy stick.

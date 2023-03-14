@@ -1,0 +1,2 @@
+ID # : DSC-MATE-177
+Description: Subject 177, also known as the News Anchor, is a female human of unknown age. She wears a retro cap on her head and a medical mask over her mouth, making it difficult to discern her true appearance. Her unique facial features include red clown eyes and spots that cover her face. There is a 2-color band on her forehead, and she wears a choker around her neck.

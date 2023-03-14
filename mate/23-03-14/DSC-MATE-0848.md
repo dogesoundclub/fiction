@@ -1,0 +1,2 @@
+ID # : DSC-MATE-848
+Description: Subject 848 is a notorious Mafia Boss with a humanoid appearance. Despite his human origin, Subject 848 possesses facial features that resemble those of a circus clown. His face sports a clown mouth, and his blue eyes have an uncanny resemblance to those of a clown. Subject 848 also wears a retro cap, with a 2 color band on his forehead, gold earrings on his ears, and a gold chain around his neck. He is consistently seen smoking a cigarette, which serves as an additional accessory.

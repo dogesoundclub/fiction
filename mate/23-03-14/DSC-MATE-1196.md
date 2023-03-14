@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1196
+Description: 1196 is a male rabbit who stands approximately 1m tall. The subject is often seen wearing a bucket hat and horned rim glasses to protect its eyes from sunlight and dust. A whistle, gold chain, glimmering Jade earring, and a goggle on its forehead are frequently observed intermingling with the subject's fur. 1196 has a crisp-sounding voice it uses to give orders and collect tickets for public transport.

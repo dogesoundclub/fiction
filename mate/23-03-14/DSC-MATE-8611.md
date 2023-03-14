@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8611
+Description: DSC-MATE-8611 is a male rabbit of the species Oryctolagus cuniculus, standing at approximately .23 meters in height. DSC-MATE-8611 wears a doge hat on its head and a pair of jade earrings on its ears, along with a silver chain and candy stick as accessories. DSC-MATE-8611’s most notable identifying features are its nerd glasses, which can reflect bright light beams into the eyes of humans, causing temporary blindness.

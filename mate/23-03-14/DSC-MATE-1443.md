@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1443
+Description: Subject 1443 is a human male with distinct orange stripes on his face and a perpetual smile. The eyes appear to be ski goggles affixed securely on his face, and his head, which appears to be metal, exhibits shades of purple. The subject has been known to wear a gold chain, which seems to be an essential accessory. Additionally, the subject is always seen wearing a normal gas mask.

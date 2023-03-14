@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9132
+Description: DSC-MATE-9132 is a female humanoid with distinct physical features, including bright red lips, VR jade LED eyes, and green hair with an edge curl. They also bear a red cross earring and a pair of goggles on their forehead. DSC-MATE-9132 typically carries a cigarette as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7980
+Description: DSC-MATE-7980 appears to be a humanoid robot standing at 6'2" tall. It has a metallic exterior, which is painted a bright yellow color, with the words "SECURITY" emblazoned across its chest. The robot wears a retro-style cap, a pair of horned rim glasses over its LED light eyes, and a jade earring on its left ear. It also sports a gold chain and an LED gas mask, which is integrated into its design.

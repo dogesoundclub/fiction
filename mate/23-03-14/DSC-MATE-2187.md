@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2187
+Description: DSC-MATE-2187 appears to be a male human of average height and weight, and operates as the manager of the theater in which it resides. DSC-MATE-2187 possesses several anomalous features, including a spot on its mouth that emits a bright light that can temporarily blind onlookers, and blue clown eyes that seem to have the ability to manipulate emotions in those who make eye contact with them.

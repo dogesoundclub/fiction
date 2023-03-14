@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6648
+Description: DSC-MATE-6648 is a male human with a unique appearance. The subject has a mouth spot located in the center of their chin area, and their eyes resemble ski goggles. The subject is often seen wearing a police cap on their head and a medical mask on their face.

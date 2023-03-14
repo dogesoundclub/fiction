@@ -1,0 +1,2 @@
+ID # : DSC-MATE-189
+Description: DSC-MATE-189 is a male monkey with red clown eyes. DSC-MATE-189 has a retro cap on its head and a two-color band on its forehead. It is also adorned with a gold earring in each ear and a gold chain around its neck. DSC-MATE-189 exhibits a natural talent for leadership and often takes charge of situations.

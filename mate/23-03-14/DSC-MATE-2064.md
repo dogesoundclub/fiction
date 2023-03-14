@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2064
+Description: Item 2064 is a human male police officer with normal glasses, green un-arranged hair, and a green cross earring in his right ear. Item 2064 often wears a red scarf and is frequently seen smoking cigarettes. 

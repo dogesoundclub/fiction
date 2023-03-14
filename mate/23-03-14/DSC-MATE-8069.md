@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8069
+Description: DSC-MATE-8069 is a male tiger with a frightened mouth and unknown eye color. The subject is often seen wearing a doge hat and two-color band around its forehead. DSC-MATE-8069 is a skilled farmer and is often observed grooming its enclosure.

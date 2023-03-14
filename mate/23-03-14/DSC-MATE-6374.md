@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6374
+Description: DSC-MATE-6374 appears to be a male monkey of an unknown species with red clown eyes. Its head is adorned with a purple cap featuring a headset, and its ears have a gold earring. DSC-MATE-6374 is particularly attached to its red scarf and whistle, which it keeps on its person at all times.

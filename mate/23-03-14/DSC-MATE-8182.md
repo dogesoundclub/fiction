@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8182
+Description: DSC-MATE-8182 is a male humanoid, standing at 6’2” in height with a lean build. He has clown blue eyes, and his mouth is usually in a frightened expression. DSC-MATE-8182’s characteristic accessories include a purple cap atop his head and a headset, and he sports a Jade Earring on his left ear. He is usually seen with a candy stick in his hand, which he sucks on whenever he is anxious.

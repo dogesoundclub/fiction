@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2494
+Description: Item 2494 appears to be an average human male in his mid-thirties, standing at 6’2” tall with a muscular build. Item 2494 has a metal purple head, with a uniquely designed pair of goggles resting on his forehead.

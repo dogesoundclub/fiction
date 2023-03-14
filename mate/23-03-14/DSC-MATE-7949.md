@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7949
+Description: DSC-MATE-7949 is a male robot identified as an electrician, standing at 6'3" and weighing approximately 320 lbs. Its body is primarily made of metallic alloys and advanced circuitry, possessing a single green cyclops eye as its primary facial feature. DSC-MATE-7949 wears normal glasses as a tertiary eye, has a head resembling a red alarm system with jade earrings on both ears, and a medical mask covering its mouth. DSC-MATE-7949 wears a silver chain around its neck as an accessory.

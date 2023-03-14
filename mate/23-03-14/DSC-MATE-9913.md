@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9913
+Description: DSC-MATE-9913 is a human male news anchor. He stands at 1.9 meters tall and weighs 84 kilograms. DSC-MATE-9913's most noticeable feature is the presence of dark spots on his face. He also has bulging ski goggle eyes. DSC-MATE-9913 has a typical blonde hairstyle.

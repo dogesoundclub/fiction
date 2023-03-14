@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2431
+Description: DSC-MATE-2431 is a male monkey of the Macaca fascicularis species. Its facial features include a frightened mouth and blue clown eyes. DSC-MATE-2431 is typically identified by the blue bandana it wears on its head, which is adorned with a pair of goggles. DSC-MATE-2431 has been observed to display impulsive behavior with a tendency to act on its emotions, rather than rational thought.

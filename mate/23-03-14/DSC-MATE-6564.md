@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6564
+Description: Subject 6564 is a 32 year old Caucasian female of average height and weight, with distinctive orange stripes on her face and purple lips. Her eyebrows are also orange, giving her a somewhat unusual appearance. She wears a retro cap on her head, and has one green cross earring on her right ear. She is also commonly seen wearing a silver chain around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8322
+Description: DSC-MATE-8322 is a male human identified as a doctor. DSC-MATE-8322 is known for its distinctive appearance, including multiple spots on its face and a bucket hat on its head. DSC-MATE-8322 often wears a gold chain and has a green cross earring on one of its ears.

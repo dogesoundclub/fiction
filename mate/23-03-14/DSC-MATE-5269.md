@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5269
+Description: DSC-MATE-5269 is a male rabbit of undetermined age, with a unique feature of ski goggle eyes. DSC-MATE-5269's fur is primarily white, with light brown spots on its ears and paws. At all times DSC-MATE-5269 wears a silver chain around its neck and is often seen carrying a whistle.

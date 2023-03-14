@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7500
+Description: DSC-MATE-7500 is a male rabbit standing approximately 30cm in height. It possesses a frightened and quivering mouth, along with normal-sized glasses. DSC-MATE-7500 typically wears a hoodie and a red scarf accessory, which adds to its distinctive appearance.

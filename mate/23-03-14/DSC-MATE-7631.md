@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7631
+Description: DSC-MATE-7631 is a female human of Caucasian descent with a unique appearance. DSC-MATE-7631 has orange stripes on its face and is often seen wearing red lipstick, normal glasses, and a choker. DSC-MATE-7631 has blonde hair with a wing on its head and is often seen wearing a red cross earring. DSC-MATE-7631 can most often be found smoking a cigarette.

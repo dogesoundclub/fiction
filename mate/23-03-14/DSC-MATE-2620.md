@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2620
+Description: DSC-MATE-2620 is a humanoid male of average height and weight, with a round face featuring a unique Mouth Spot that is noticeable during broadcasts. Despite their playful attire, DSC-MATE-2620 may have a no-nonsense attitude and is known to have a dry wit, often telling jokes and sharing stories that have been passed down through their family or community. DSC-MATE-2620 is known to wear a Bucket Hat on their head and sports a 2 Color Band across their forehead. DSC-MATE-2620 also wears a Silver Chain as their main accessory.

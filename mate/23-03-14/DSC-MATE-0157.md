@@ -1,0 +1,2 @@
+ID # : DSC-MATE-157
+Description: DSC-MATE-157 is a humanoid robot designed to resemble a male firefighter. It stands at 6 feet tall and weighs approximately 300 pounds. It has one green cyclops eye as its primary facial feature, surrounded by a pair of horn-rimmed glasses. Its head is covered with a hoodie, and it wears a gold chain and whistle as accessories.

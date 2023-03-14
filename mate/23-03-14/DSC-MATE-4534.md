@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4534
+Description: DSC-MATE-4534 is a female human of approximately 32 years of age. DSC-MATE-4534's most prominent feature is the presence of distinctive orange stripes on her face. DSC-MATE-4534's eyes are also orange, with an eyebrow of the same color. DSC-MATE-4534's head is styled in two pig tails, with a forehead adorned with a two color band. DSC-MATE-4534's ears are pierced and bear a jade earring. DSC-MATE-4534 regularly dons a medical mask and wears a gold chain as an accessory.

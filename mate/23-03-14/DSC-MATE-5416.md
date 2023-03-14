@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5416
+Description: Item #5416 is a humanoid monkey standing at approximately 1.2 meters in height. It wears a plain Hoodie over its body, and it is often seen carrying a candy stick in its mouth. Its eyes color and size remain unknown due to lack of cooperation during physical examinations. Item #5416 has a nurturing and caring personality, and it tends to exhibit this trait towards inanimate objects as well. It often gives names to cars, talks to plants, and anthropomorphizes household appliances.

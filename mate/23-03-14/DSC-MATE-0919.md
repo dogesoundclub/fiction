@@ -1,0 +1,2 @@
+ID # : DSC-MATE-919
+Description: Subject 919 is a humanoid creature of the Homo sapien species, standing at approximately 5'6 in height. They are a female individual with distinct facial features, including orange stripes and red clown eyes. The subject's hair is styled in a short, witch-like manner, and they are often seen wearing a silver chain.

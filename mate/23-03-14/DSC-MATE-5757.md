@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5757
+Description: DSC-MATE-5757 is a female human, identified as an electrician by profession. DSC-MATE-5757 possesses several anomalous physical features, including red clown eyes and a green head with edge curl. A two-color band can be seen on DSC-MATE-5757's forehead feature #1, while a green cross earring adorns her ears. DSC-MATE-5757 wears a silver chain as her accessory.

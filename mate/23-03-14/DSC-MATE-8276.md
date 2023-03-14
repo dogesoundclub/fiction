@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8276
+Description: DSC-MATE-8276 is a male robot with a green cyclops eye as its main facial feature. It also wears a pair of nerd glasses over its cyclops eye and has a red alarm as its head. DSC-MATE-8276 regularly wears a gold chain and is often seen holding a cigarette. DSC-MATE-8276's personality traits tend to be very caring and nurturing, resulting in humorous situations where it takes care of friends and family members like its own children.

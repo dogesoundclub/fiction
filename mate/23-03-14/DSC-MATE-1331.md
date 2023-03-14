@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1331
+Description: DSC-MATE-1331 is a male tiger with a unique appearance that sets him apart from his kin. Upon his head, he wears a headset with a flashing LED light that blinks in rhythm with his heartbeats. This headset also enables DSC-MATE-1331 to communicate with his team in the field, giving him an edge that other reporters lack. His forehead bears a striking red victory band that signifies his determination to succeed at all costs, no matter the danger.

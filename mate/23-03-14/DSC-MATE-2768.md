@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2768
+Description: 2768 is a human male, of average height and weight, with a quirky and infectious smile. Despite his jovial exterior, 2768's most striking feature is his unsettlingly red clown-like eyes, which seem to have an abnormal level of depth and intensity, according to various personal accounts.

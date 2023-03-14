@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9979
+Description: DSC-MATE-9979 is a female human of unknown age and origin. Their most striking feature is the presence of spots covering their face, along with bright red clown eyes, and purple lips. DSC-MATE-9979 is often seen wearing a headset with LED lights and various accessories, including a choker and an LED gas mask.

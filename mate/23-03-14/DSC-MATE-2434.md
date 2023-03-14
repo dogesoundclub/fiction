@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2434
+Description: DSC-MATE-2434 is a male human, with distinctive orange stripes on their face. They often wear nerd glasses over their eyes, and their hair is parted pink. DSC-MATE-2434 can usually be found wearing a red scarf and carrying a candy stick with them at all times.

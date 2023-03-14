@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7780
+Description: DSC-MATE-7780 is a female human of average height and weight, with spots on her face and a perpetual smile. DSC-MATE-7780's eyes are blue Clown eyes, which is a rare genetic disorder that causes the iris and sclera to appear bright blue. DSC-MATE-7780 wears a medical mask that she refuses to remove in the presence of others, except in instances where it is necessary for communication.

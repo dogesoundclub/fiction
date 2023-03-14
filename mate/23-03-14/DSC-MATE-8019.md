@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8019
+Description: DSC-MATE-8019 is a 33-year-old male, standing at approximately 6’1”. DSC-MATE-8019’s most notable physical feature is a distinct mouth spot, which appears just below its nose and above its upper lip. DSC-MATE-8019 is typically seen wearing a pair of thick-framed glasses, which obscure its eyes. Its forehead is adorned with a red victory band, which it is observed to wear at all times, even while sleeping.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4920
+Description: DSC-MATE-4920 is a humanoid robot designed for police work, with a height of 6'2" and a weight of 200 pounds. DSC-MATE-4920's body is primarily made of a durable titanium alloy, with VR Jade LED eyes and a goggle on its forehead. DSC-MATE-4920 wears a silver chain around its neck and an LED gas mask for respiratory purposes.

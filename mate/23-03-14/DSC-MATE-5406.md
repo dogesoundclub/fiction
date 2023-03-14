@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5406
+Description: DSC-MATE-5406 is a human female with striking orange stripes on her face that adds to her unique appearance. She often wears a purple cap with a headset and a choker around her neck. She is almost always seen with a gold earring on one of her ears and a cigarette in her mouth. Her blue clown eyes make her stand out in a crowd, and her smile is a comforting sight for those who know her well. 

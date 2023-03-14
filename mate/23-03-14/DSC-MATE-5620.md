@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5620
+Description: Item 5620 is a male human with the unique feature of a mouth spot and a constant, friendly smile. The subject's eyes emit a subtle jade green LED light, creating a surreal feeling in those who meet their gaze. The subject's head is topped with a crimson beanie, with goggles placed firmly above the forehead.

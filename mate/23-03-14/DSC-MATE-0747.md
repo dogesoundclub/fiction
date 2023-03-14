@@ -1,0 +1,2 @@
+ID # : DSC-MATE-747
+Description: Item #747 stands approximately 75cm in height and weighs approximately 6.8kg. Their most distinguishing feature are the horn-rimmed glasses over their eyes and a police cap on their head. Item #747 also wears a red scarf and carries a whistle as their accessories.

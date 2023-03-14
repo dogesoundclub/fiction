@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4059
+Description: DSC-MATE-4059 was a car salesman robot, model name "AutoSeller 5000", created by the now-defunct "MechTech" Corporation. The robot has a male persona, wearing a hoodie and horned rim glasses as its main facial feature. 

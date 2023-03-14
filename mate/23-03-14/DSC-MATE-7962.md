@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7962
+Description: 7962 is a humanoid robotic doctor, approximately 1.8 meters in height. The robot's head is covered by a retro cap and ski goggles, with additional goggles worn on the forehead. The robot's mouth is covered by a medical mask, and a gold earring is visible on each ear. The robot displays a range of emotions through the goggles, including joy, sadness, and empathy.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4413
+Description: DSC-MATE-4413 is a humanoid robot with a green cyclops eye, a red beanie on top of its head, and a goggle on its forehead. Its mouth is covered by a medical mask, and it wears a silver chain around its neck. DSC-MATE-4413 is anatomically accurate, with its robotic body composed of reinforced metals and synthetic fibers.

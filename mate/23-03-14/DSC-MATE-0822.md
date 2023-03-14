@@ -1,0 +1,2 @@
+ID # : DSC-MATE-822
+Description: The Banker is a sophisticated financial robot with a male presentation. His appearance is a peculiar blend of traditional banker attire and modern technology. He wears a red beanie on his head, a gold earring on his left ear, and a medical mask over his mouth. His eyes are a vibrant jade-colored LED display that projects his facial expressions. He stands 5'9", and his physical frame is composed of alloy steel and carbon fibre.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3396
+Description: Item 3396 is a humanoid robot, approximately 6 feet tall, with a solid metallic frame covered in a thick layer of synthetic skin. Its head resembles a red alarm bell, and its eyes are fitted with nerd glasses. The item is often seen with an unlit cigarette in its metallic fingers.

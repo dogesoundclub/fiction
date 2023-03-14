@@ -1,0 +1,2 @@
+ID # : DSC-MATE-917
+Description: DSC-MATE-917 was a male human identified as a veterinarian. The subject possessed a Mouth Spot on their right cheek and frequently wore Nerd Glasses over their blue eyes. Their head of Mens Normal Blonde hair was often adorned with a Gold Chain accessory, and they were frequently observed carrying a Candy Stick.

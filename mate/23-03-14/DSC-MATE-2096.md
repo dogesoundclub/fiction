@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2096
+Description: Human-Electrician 2096 is a female of average height with a unique facial appearance. The subject has spots covering her face and a distinctive purple lip accompanied by blue clown eyes. 2096 often wears a hoodie and sports a silver chain as well as smoking cigarettes as a habit.

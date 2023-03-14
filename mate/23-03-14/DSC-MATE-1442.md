@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1442
+Description: DSC-MATE-1442 is a male robot resembling a 1920s reporter. It stands at 6 feet tall and is made up of copper and similar materials of that nature. DSC-MATE-1442's eyes are a series of VR Rainbow LED lights, making it appear as they are always changing color. Upon its head, DSC-MATE-1442 wears a retro cap with a gold earring resting in its left earlobe. A medical mask covers DSC-MATE-1442's mouth, ostensibly for health reasons, but has not been confirmed as necessary by any medical examination.

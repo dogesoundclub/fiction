@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1584
+Description: DSC-MATE-1584 appears to be a male rabbit, measuring approximately 40 centimeters in height and 1.5 kg in weight. DSC-MATE-1584 has VR Jade LED eyes and wears a red beanie atop its head. Its most notable accessory is a candy stick, which DSC-MATE-1584 is seen carrying around frequently. DSC-MATE-1584 is a highly intelligent, sentient organism capable of complex reasoning and speech.

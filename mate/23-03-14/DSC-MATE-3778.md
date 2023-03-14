@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3778
+Description: Subject 3778 is a human female, identified as a journalist/reporter who possesses striking orange stripes on her face and is often seen with a bright smile. Her physical appearance further includes blue clown eyes, a head resembling a 00s school girl, and with two color bands on her forehead. Additionally, she is always seen wearing a red cross earring and a gold chain. 

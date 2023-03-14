@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2745
+Description: DSC-MATE-2745 is a male Human of unknown age, with distinctive orange stripes on his face. He sports green hair and a purple cap, with a green cross earring on his left ear. DSC-MATE-2745 is always seen carrying a candy stick, which it claims is a key component to sustaining its anomalous abilities.

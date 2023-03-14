@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2559
+Description: DSC-MATE-2559 is a human male identified as a news anchor for a local television station. DSC-MATE-2559's face features orange stripes and their head has green layers. DSC-MATE-2559 is commonly seen wearing normal glasses and a silver chain as an accessory. Despite its unusual physical traits, DSC-MATE-2559's presence has gone unnoticed by the general public.

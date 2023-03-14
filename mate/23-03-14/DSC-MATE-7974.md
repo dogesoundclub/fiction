@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7974
+Description: DSC-MATE-7974 is a male human of indeterminate age, standing at approximately 6 feet tall and weighing approximately 180 pounds. He has several distinctive facial features, including numerous spots of varying size and color, a perpetually frightened-looking mouth, and blue ski goggle-like eyes.

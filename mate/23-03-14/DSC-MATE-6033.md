@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6033
+Description: DSC-MATE-6033 is a male tiger of unspecified subspecies, approximately 2.5 meters in length and weighing approximately 200 kilograms. DSC-MATE-6033 exhibits several anomalous properties, including bright red clown-like eyes, a purple cap with a headset, a medical mask, and a red scarf. In addition, DSC-MATE-6033's forehead features a two-color band.

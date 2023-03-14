@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5813
+Description: Subject 5813 is a female human of approximately 30 years in age. She stands at 5’4” and weighs approximately 130 lbs. Her distinguishing features include red lips, orange eyebrow, blonde hair styled in an ushanka, and a medical mask. Subject 5813 also wears green cross earrings and a choker. A pair of goggles is kept on her forehead for easy access. 

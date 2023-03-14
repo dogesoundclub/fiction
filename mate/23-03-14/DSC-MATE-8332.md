@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8332
+Description: DSC-MATE-8332 is a middle-aged human male known to the public as a mafia boss. DSC-MATE-8332 stands at approximately 1.85 meters tall and has blue clown eyes which are assumed to be artificially colored. DSC-MATE-8332's most notable features are its green hair, purple cap, and a medical mask covering its mouth. DSC-MATE-8332 also has a goggle on its forehead and a gold earring on each ear.

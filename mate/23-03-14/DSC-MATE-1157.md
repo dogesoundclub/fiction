@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1157
+Description: DSC-MATE-1157 appears to be a sentient rabbit, with its most prominent feature being a headset with LED lights it wears at all times, along with red clown eyes. DSC-MATE-1157 has a natural charisma and an ability to connect with individuals on a deep and emotional level, which has proven useful in selling cars to potential customers.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3801
+Description: DSC-MATE-3801 is a female human with orange stripes across the right side of their head and purple lips. They possess blue clown eyes and wear a gas mask at all times, along with a pair of goggles that are situated on their forehead. Additionally, DSC-MATE-3801 has green cross earrings.

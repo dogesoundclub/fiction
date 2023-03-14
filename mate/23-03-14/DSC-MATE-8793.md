@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8793
+Description: DSC-MATE-8793 is a humanoid figure with orange stripes on its face, and blue clown eyes. It always wears a red beanie and a gold chain around its neck. DSC-MATE-8793 is a male human, who works as a programmer.

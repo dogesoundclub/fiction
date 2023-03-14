@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9857
+Description: 9857 is a human female with a jovial demeanor and an infectious smile that puts those around her at ease. She is identified by her VR Jade LED eyes, Retro Cap, and goggle on her forehead, along with her red cross earring, silver chain, and typical gas mask. While her appearance may warrant attention, her personality demands it. She is incredibly observant and attentive to details, making her a reliable and gifted delivery driver. Furthermore, 9857 is highly empathetic, which allows her to anticipate the needs and wants of those around her.

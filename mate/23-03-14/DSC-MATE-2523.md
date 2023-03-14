@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2523
+Description: 2523 is a human male of average height and build, with bright orange stripes covering his face and a head adorned with green layers. 2523 also sports a goggle on his forehead, and a silver chain necklace that hangs loosely around his neck. Additionally, a green cross earring adorns each of 2523's ears, and they are often seen with a candy stick in their mouth.

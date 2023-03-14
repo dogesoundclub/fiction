@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4493
+Description: DSC-MATE-4493 is a humanoid that appears to be of the Homo sapiens species, with orange stripes and red clown eyes. DSC-MATE-4493 also possesses a purple lip, green ears with a cross earring and a not arranged green head. DSC-MATE-4493 frequently wears a medical mask and a choker as accessories.

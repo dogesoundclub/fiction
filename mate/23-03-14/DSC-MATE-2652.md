@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2652
+Description: Item 2652 is a male monkey with several unique features. Its mouth is in a constant state of fright, and its eyes appear to be ski goggles. The creature wears a distinctive Doge hat and a gold earring in one ear. It also wears a red scarf and is often seen smoking a cigarette despite the prohibition.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8446
+Description: 8446 is a male humanoid of the Homo sapiens variety. The subject stands approximately 6 ft tall and presents with spots scattered across his face. His eyesight appears to require corrective lenses and are frequently found behind normal glasses. 8446 often dons casual attire, particularly a hoodie and silver chain. The subject is known to carry a candy stick as well.

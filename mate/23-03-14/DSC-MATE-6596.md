@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6596
+Description: DSC-MATE-6596 is a male Tiger with red clown eyes. He wears a purple cap with a headset and a red cross earring. DSC-MATE-6596 is also a successful lawyer in the human world, but his true nature as a Tiger is unknown to most of society.

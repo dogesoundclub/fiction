@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4239
+Description: DSC-MATE-4239 is a human male of average height and build, with orange stripes extending from the hairline, down the sides of the face, and disappearing behind the ears. DSC-MATE-4239's eyes appear to be a pair of ski goggles, with the lenses fashioned from jade. DSC-MATE-4239 wears a medical mask atop a smile and a red scarf as an accessory. DSC-MATE-4239's anomalous properties manifest when creating designs.

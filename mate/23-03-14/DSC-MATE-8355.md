@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8355
+Description: DSC-MATE-8355 appears as a humanoid tiger with a frightened mouth and ski goggle eyes. It wears a blue bandana on its head and a red cross earring in its ears. It also sports a red scarf and is often seen holding a cigarette.

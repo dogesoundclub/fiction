@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2743
+Description: DSC-MATE-2743 is a human female with distinctive facial features. She has spots covering her face and neck area and sports purple lipstick. Her eyebrows are orange, and her ears have a pair of jade earrings. DSC-MATE-2743 usually wears a gold chain. She works as a beautician.

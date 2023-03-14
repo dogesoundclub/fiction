@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5156
+Description: DSC-MATE-5156 is a human male with a noticeably dark Mouth Spot just below the lower lip, and displays a constant frightened expression. DSC-MATE-5156 possesses bright blue Clown Eyes which are not consistent with any known human eye color. DSC-MATE-5156 is often observed wearing a hoodie and a red scarf as its accessory.

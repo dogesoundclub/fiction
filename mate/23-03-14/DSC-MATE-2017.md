@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2017
+Description: Subject 2017 is a humanoid entity resembling a Bengal Tiger, standing at approximately 6 feet in height. The entity possesses 2 cybernetic implants in place of its eyes, which project a continuous rainbow LED light. Subject 2017 is often seen wearing a bucket hat, a gold chain, and carrying a whistle.

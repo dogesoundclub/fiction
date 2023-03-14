@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6649
+Description: DSC-MATE-6649 is a human female standing at 170 cm tall and weighing 56 kg. DSC-MATE-6649 possesses facial features including spots and a smile, as well as orange eyebrows and two color bands across the forehead. DSC-MATE-6649 has green hair and wears a purple cap, red cross earrings, and a silver chain. DSC-MATE-6649 is often seen wearing an LED gas mask, which it claims is to help protect against pollution when working.

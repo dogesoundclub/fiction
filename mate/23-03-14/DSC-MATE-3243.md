@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3243
+Description: Subject 3243 is a human female with orange stripes on her facial skin, giving her an unusual appearance. She stands at 5'8" and has a lean build. Her hair is dyed fiery red, and she wears a pair of red clown eyes that glow in the dark. Her outfit is always stylish, accentuating her shoulders, arms, and legs. She also wears a red cross earring on her left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-339
+Description: DSC-MATE-339 is a 31-year-old female human with a unique appearance. Their face is covered in small spots, with bright red lips. The eyes of DSC-MATE-339 differ from normal humans as they are replaced with VR Rainbow LED implants that seem to have the ability to display various patterns and colors. DSC-MATE-339 often wears a black hoodie, a gold chain, and a LED gas mask as accessories. 

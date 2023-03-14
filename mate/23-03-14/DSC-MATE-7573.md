@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7573
+Description: DSC-MATE-7573 is a male monkey of unknown origin. Its eyes are covered by horned rim glasses and it has normal black hair. DSC-MATE-7573 is often seen wearing a red scarf and an LED gas mask as accessories. It possesses an extraordinary level of creativity and a vivid imagination which is evident in its unusual hobbies and interests. It enjoys activities such as writing poetry, creating elaborate cosplay costumes, and collecting various unusual objects.

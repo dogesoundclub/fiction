@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3265
+Description: DSC-MATE-3265 is a human male with a conspicuous mouth spot on their upper lip which appears to be a birthmark. The individual is always seen with a cigarette in hand, regardless of whether or not they are allowed to smoke. The subject's blue clown eyes are non-anomalous and are believed to be a deformity. The gold earring on the subject's right earlobe does not appear to possess any anomalous properties.

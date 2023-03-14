@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4716
+Description: DSC-MATE-4716 is a male rabbit, measuring approximately 30 cm in length and weighing around 2 kg. His eyes are bright blue, resembling clown makeup. DSC-MATE-4716 is often seen wearing a red scarf around his neck and carrying a small whistle in his mouth.

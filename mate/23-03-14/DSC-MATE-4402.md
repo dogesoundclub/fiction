@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4402
+Description: DSC-MATE-4402 is a female human doctor with distinctive facial features. DSC-MATE-4402's face features orange stripes and red lips, while her eyes are orange and her ears are adorned with jade earrings. DSC-MATE-4402 often wears a silver chain necklace.

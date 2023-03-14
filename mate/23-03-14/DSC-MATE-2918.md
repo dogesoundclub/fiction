@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2918
+Description: Item 2918 appears to be a human male with orange stripes on his face and a clown mouth. He has blue clown eyes and an unarranged green head that features a two-color band on his forehead. Item 2918 also wears a jade earring, a gold chain, and carries a candy stick with him at all times.

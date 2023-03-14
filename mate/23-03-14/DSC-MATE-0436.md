@@ -1,0 +1,2 @@
+ID # : DSC-MATE-436
+Description: DSC-MATE-436 is a male humanoid of the species Panthera tigris, commonly known as a tiger. DSC-MATE-436 stands at approximately 2.4 meters tall and has a weight of approximately 272 kilograms. DSC-MATE-436 is able to communicate verbally in English and demonstrates a high level of intelligence and problem-solving skills. DSC-MATE-436 has a frightened mouth and red clown eyes, making it difficult to determine its emotional state at times.

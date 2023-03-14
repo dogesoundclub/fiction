@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1128
+Description: DSC-MATE-1128 is a human male of average height and build, with a permanent smile on his face. The subject's eyes are obscured by normal prescription glasses, giving no unusual details. DSC-MATE-1128 sports a unique two-color band on his forehead, which appears to be an intrinsic part of the subject's physiology. DSC-MATE-1128 also wears a silver chain as part of his normal attire.

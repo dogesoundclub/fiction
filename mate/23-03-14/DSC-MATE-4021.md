@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4021
+Description: Item #4021 is a human male with distinctive spots on his face and head. The entity is often seen wearing a hooded sweatshirt and is noted for typically accessorizing with a silver chain and a candy stick. Item #4021 is capable of displaying a friendly and helpful demeanor, though prolonged interaction with the entity has been shown to result in it assuming a more dominating and intimidating personality.

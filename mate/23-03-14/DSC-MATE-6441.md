@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6441
+Description: Subject 6441 appears as a male tiger humanoid, wearing a police cap and a silver chain around their neck. The subject's most notable feature is their blue clown eyes, which are unsettling and have been known to cause discomfort in those who make eye contact with them. Subject 6441 is a beautician by profession, and has been known to specialize in hairstyle and makeup design.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6576
+Description: DSC-MATE-6576 is a female human of average height, with green hair and a purple cap on her head. Her most noticeable features are the numerous spots on her face and a constant smile. She wears a medical mask over her mouth, likely to conceal her identity or due to health concerns.

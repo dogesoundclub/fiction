@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7477
+Description: Item 7477 is a human male, approximately 6 feet in height, without any remarkable physical attributes, except for several distinctive features. The subject is often seen wearing a medical mask over its mouth, which is known to emit an odorless and tasteless gas that is believed to cause a mild form of sedation.

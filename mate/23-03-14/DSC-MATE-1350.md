@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1350
+Description: Subject 1350 appears to be a human female with distinctive orange stripes on one side of her head. She possesses a bright, infectious smile and eyes that are permanently altered to resemble those of a clown with a red hue. Subject 1350's most prominent feature is a pair of jade earrings that hang from elongated ears. She is often seen wearing a silver chain around her neck.

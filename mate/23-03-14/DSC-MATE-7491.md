@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7491
+Description: DSC-MATE-7491, also known as "Doctor Monkey," is a male monkey of unknown species. It stands approximately 1 meter tall and weighs around 30 kg. DSC-MATE-7491 features blue clown eyes, parted pink hair, a jade earring, and wears a red scarf, and an LED gas mask.

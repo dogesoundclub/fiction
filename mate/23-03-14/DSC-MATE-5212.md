@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5212
+Description: Dr. #5212 is a human female, approximately 5'6" in height and weighing 125 lbs. The most striking aspect of her appearance is the numerous spots that cover her face, arms, and legs. Despite their appearance, these spots do not seem to affect her health in any way. In addition to the spots, Dr. #5212 has red clown eyes that seem to emit an otherworldly glow. Her hair is styled in pigtails, and she often wears a gold chain around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3366
+Description: DSC-MATE-3366 appears to be a normal human male, with blonde hair and a red victory band on their forehead. They frequently wear nerd glasses and a gold earring in their left ear. DSC-MATE-3366 also has a distinctive mouth spot and a smile which are present in all visual records.

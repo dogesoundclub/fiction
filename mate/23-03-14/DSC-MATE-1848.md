@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1848
+Description: DSC-MATE-1848 is a male Bengal tiger standing approximately 2.5 meters long and weighing 200 kg. DSC-MATE-1848 has been observed wearing a blue bandana around its head and a red cross earring in its ear. DSC-MATE-1848 will also wear a medical mask over its mouth when interacting with humans.

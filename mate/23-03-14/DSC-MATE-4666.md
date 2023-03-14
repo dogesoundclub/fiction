@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4666
+Description: Subject 4666 is a female human with blue clown eyes and spotted face features. It is often seen wearing a tiara, a gold chain, and a normal gas mask as accessories. Despite being a talented fashion designer, its spontaneous behavior often leads to absurd and dangerous situations.

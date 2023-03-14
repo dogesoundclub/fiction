@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6303
+Description: Object 6303 appears to be a female human, with distinct features including spots on the face, red lips and blue clown eyes. The head is not arranged in a common hair color and grows in a bright green. The ears are adorned with red cross earrings, and a gold chain is often seen around the neck. 

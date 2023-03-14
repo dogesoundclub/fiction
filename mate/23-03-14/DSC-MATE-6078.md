@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6078
+Description: DSC-MATE-6078 is a male rabbit standing at 5'5" in height. It possesses the physical characteristics of an anthropomorphic rabbit, with fur covering most of its body, and large, floppy ears. Its eyes are obscured by a pair of nerd glasses, and it wears a gold earring in its left ear. DSC-MATE-6078 also wears a silver chain around its neck.

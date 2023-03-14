@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6316
+Description: DSC-MATE-6316 is a male anthropomorphic tiger measuring 6 feet 2 inches in height and weighing approximately 180 pounds. DSC-MATE-6316 has red clown eyes, a red victory band on his forehead, and wears a medical mask to hide his teeth. DSC-MATE-6316 wears a hoodie and a gold chain for accessories. DSC-MATE-6316 is fluent in English and is currently employed as a banker.

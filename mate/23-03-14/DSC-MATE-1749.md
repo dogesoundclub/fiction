@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1749
+Description: DSC-MATE-1749 is a male tiger with blue clown eyes and a frightened mouth. DSC-MATE-1749 possesses a unique forehead feature in the form of a red victory band and jade earring that appears to be permanent. DSC-MATE-1749’s anomalous abilities include the ability to morph into a humanoid form and to heal individuals with a mere touch.

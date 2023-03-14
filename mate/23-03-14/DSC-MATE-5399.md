@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5399
+Description: DSC-MATE-5399 is a human male with spotted facial features, and a frightened mouth. DSC-MATE-5399 wears normal glasses with a jade earring on one ear and a gold chain around its neck. DSC-MATE-5399 is typically seen holding a candy stick as it works. When not working, DSC-MATE-5399 displays a playful personality, often surprising others with dance moves and silly antics.

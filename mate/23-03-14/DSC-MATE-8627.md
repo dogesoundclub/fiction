@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8627
+Description: Subject 8627 is a female human with unique physical features. The subject has spotted skin and eyes that emit a glowing VR jade LED. Her head is a vibrant green with edgy curls, accompanied by green cross earrings. She is often seen wearing a medical mask, and a choker around her neck.

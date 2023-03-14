@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9544
+Description: DSC-MATE-9544 is a male rhesus monkey with normal glasses seated in front of a computer. A red beanie can be seen on its head, while a pair of goggles serves as its forehead feature. DSC-MATE-9544 is often seen with a red scarf and a candy stick. The monkey appears to be capable of understanding and following complex programming tasks, showing considerable talent in coding and programming languages.

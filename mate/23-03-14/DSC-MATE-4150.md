@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4150
+Description: DSC-MATE-4150 appears to be a humanoid robot, resembling a male doctor. Its eyes are contained within a pair of nerd glasses, while its head is covered with a red beanie. It's upper body is covered with a medical mask, with a red scarf draped around its neck.

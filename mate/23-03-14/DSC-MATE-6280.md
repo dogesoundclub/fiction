@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6280
+Description: DSC-MATE-6280 is a male, humanoid rabbit-like entity. It measures approximately 1.2 meters in height and weighs approximately 60kg. DSC-MATE-6280 is typically seen wearing a headset adorned with LED lights and horned rim glasses over its deep red, frightened mouth. In addition, DSC-MATE-6280 also carries a whistle at all times, presumably for defense or emergency purposes.

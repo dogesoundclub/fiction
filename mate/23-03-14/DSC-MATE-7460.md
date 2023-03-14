@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7460
+Description: Subject 7460 is a female human with unmistakable characteristics. She sports a red lip accentuated by striking orange eyebrows that contrast with her head full of vibrant green hair beneath a purple cap.  Her ears are adorned with gold earrings, and she is often seen with a cigarette in hand.

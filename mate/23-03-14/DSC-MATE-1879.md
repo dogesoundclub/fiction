@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1879
+Description: DSC-MATE-1879 appears to be a robot resembling a typical news anchor. Its body is made of metal and plastic, with various parts such as the eyes and mouth designed to mimic human features. DSC-MATE-1879 is equipped with a medical mask covering its mouth, a gold chain accessory, and a goggle on its forehead. Its eyes are covered by nerd glasses, and its forehead feature is a goggle.

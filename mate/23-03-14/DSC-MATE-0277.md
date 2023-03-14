@@ -1,0 +1,2 @@
+ID # : DSC-MATE-277
+Description: Subject 277 appears to be a male human of average height and weight, but it’s his features that make him stand out. He has a spot on his mouth that resembles a birthmark, and his mouth appears to be in a perpetual state of fear, adding to his already unsettling appearance.

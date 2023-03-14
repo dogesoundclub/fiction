@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5064
+Description: Item 5064 is a male robot identified as the Boss of one of the most notorious Mafia organizations in the world. Its green cyclops eye can access advanced technology and analyze its environment in real-time. It wears a red cross earring on its right ear and a silver chain necklace. Additionally, Item 5064 carries a whistle which possesses some unusual capabilities. The robot is capable of transforming its arms into a variety of weapons, including a laser gun, an energy sword, and other forms of lethal force.

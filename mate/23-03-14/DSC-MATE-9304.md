@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9304
+Description: 9304 is a robot that has taken the disguise of a car salesman. Its single face feature is a green cyclops eye, which it uses to analyze objects and individuals within its vicinity. Its mouth, while usually in a frightened state, is capable of producing human-like speech. 9304 wears normal glasses which primarily serve as a disguise to blend in with its environment. Its head is in the shape of a red alarm, which gives off a high-pitched warning signal that is known to cause discomfort to individuals in the vicinity. 

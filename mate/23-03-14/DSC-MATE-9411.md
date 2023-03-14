@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9411
+Description: Subject 9411 is a female human with orange stripes on their face as well as blue clown eyes. The subject's head is short and sharp, much like a witch. They also possess green cross earrings, a silver chain, and an LED gas mask.

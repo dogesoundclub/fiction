@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3063
+Description: DSC-MATE-3063 is a male monkey of an unknown species, standing approximately 1.2 meters tall. DSC-MATE-3063 exhibits human-like qualities, such as having the ability to speak in a fluent and coherent manner in multiple languages, wearing shade glasses as a fashion statement and having a normal black hairdo. DSC-MATE-3063 also wears a jade earring in its left ear along with a red scarf wrapped around its neck. The subject favours a whistle as its primary accessory.

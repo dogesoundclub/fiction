@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1108
+Description: Subject 1108 is a humanoid-being identified as a human male. They stand at 6ft in height and possess a distinct feature of orange stripes across their face. Their eyes are described as "ski goggles" and they are always seen wearing a hoodie coupled with a silver chain and cigarettes as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9050
+Description: DSC-MATE-9050 is a male humanoid, approximately 175cm in height, with a series of spots across its face. Its eyes emit a VR Rainbow LED light, with a frightened mouth as its secondary facial feature. DSC-MATE-9050 frequently wears a red beanie, a red scarf, and a jade earring. It also carries a candy stick as an accessory. DSC-MATE-9050's personality traits have been documented as primarily favorable traits, such as valuing social harmony and connections, and being generally goofy in character.

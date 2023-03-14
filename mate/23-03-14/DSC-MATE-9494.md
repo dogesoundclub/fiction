@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9494
+Description: DSC-MATE-9494 is a male monkey of the species Macaca fascicularis, measuring approximately 65 cm in height and weighing approximately 12 kg. DSC-MATE-9494's most distinguishing feature is its unique eye structure, resembling a pair of ski goggles. DSC-MATE-9494 also wears a red beanie on its head and a jade earring on each ear. It is often seen sporting a red scarf and a normal gas mask, which it appears to have acquired and customized to fit its preferences.

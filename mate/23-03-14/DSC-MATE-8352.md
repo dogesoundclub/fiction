@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8352
+Description: DSC-MATE-8352 appears to be a male tiger in appearance, standing roughly 7 feet tall on its hind legs. It is distinguishable by its bright blue clown eyes and doge hat atop its head. DSC-MATE-8352's mouth is in a permanent expression of fear, and it wears a red scarf around its neck. It is often seen smoking cigarettes, however, this seems to have no effect on its health.

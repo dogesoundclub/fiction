@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9513
+Description: Subject 9513 appears to be a human male with striking orange stripes on his face. His face bears a permanent smile, and his eyes are replaced with state-of-the-art VR Rainbow LED cybernetic implants. 9513's head is shaved bald, and he wears traditional monk attire with a jade earring. A medical mask covers his mouth. He also wears a gold chain.

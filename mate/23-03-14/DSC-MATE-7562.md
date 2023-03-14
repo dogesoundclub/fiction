@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7562
+Description: DSC-MATE-7562 is a humanoid robot created for the purpose of being a fashion designer. DSC-MATE-7562 stands at 6 feet tall, and resembles a human male with a Doge hat covering its head. DSC-MATE-7562's eyes are replaced with VR Rainbow LED lights, and it appears to be capable of changing their colors based on their emotional state. DSC-MATE-7562 has Jade earrings attached to its metal ears.

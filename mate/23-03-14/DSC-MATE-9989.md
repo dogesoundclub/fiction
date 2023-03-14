@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9989
+Description: DSC-MATE-9989 is a human female, approximately 27 years of age, with distinctive orange stripes on her cheeks. DSC-MATE-9989's eyes are VR Jade LED, with a green head featuring edge curl, and wears a medical mask at all times. DSC-MATE-9989 is often seen wearing a gold chain as an accessory.

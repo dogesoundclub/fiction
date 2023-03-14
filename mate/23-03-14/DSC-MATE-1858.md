@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1858
+Description: Item 1858 is a male human with spotted facial features that can range in size and color. It tends to wear a red beanie hat and a gold chain. Its most distinctive feature is its frightened mouth, which it displays frequently during periods of stress. Item 1858 has shown a notable ability to sense the emotions of those around it, and this intuition may give it a psychic edge in certain situations.

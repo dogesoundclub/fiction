@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9728
+Description: Subject 9728 is a female human with peculiar orange eyebrows and spots on her face. They have a noticeable purple lip and an orange side on the head. They wear a medical mask and have non-anomalous attire.

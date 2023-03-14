@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7061
+Description: DSC-MATE-7061 is an artificial intelligence resembling a veterinarian, housed within a humanoid robot with a single green cyclops eye located on its face. DSC-MATE-7061 possesses an animal-themed hat atop its head, resembling the Shiba Inu dog breed, with red cross earrings dangle from each ear as an accessory. DSC-MATE-7061 wears a red scarf around its neck.

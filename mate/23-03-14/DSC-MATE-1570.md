@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1570
+Description: Subject 1570 is a male monkey with red clown eyes. It wears a doge hat on its head and a jade earring on each ear. In addition, it is often seen with a burning cigarette held between its fingers, which seems to be an almost permanent fixture. Despite its odd physical appearance, it has been identified as a successful news anchor working at a major television station.

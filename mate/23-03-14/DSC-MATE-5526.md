@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5526
+Description: 5526 is a male of human species, with several distinguishing appearance features. 5526 has spots on his face and a perpetual smile that is unnerving to most who encounter him. His eyes are consistently red, giving the appearance of clown eyes. He is often seen wearing a red beanie and a red scarf. Additionally, he wears a jade earring on his left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8803
+Description: Item #8803 is a male monkey of the delivery driver profession. It stands at around 3 feet tall and displays a frightened expression at all times, often opening and closing its mouth in a panicked fashion. The monkey's red clownish eyes are unsettling and give the impression that it is always on edge.

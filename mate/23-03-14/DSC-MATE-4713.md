@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4713
+Description: DSC-MATE-4713 is a female human, approximately 175 cm tall and weighing approximately 70 kg. She has orange eyebrows and orange hair on one side of her head, which is often styled in a messy side braid. Her face is marked with dark spots and she is known to wear bright red lipstick.

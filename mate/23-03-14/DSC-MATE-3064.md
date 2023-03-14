@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3064
+Description: DSC-MATE-3064 is a male tiger, standing at approximately 1.8 meters in height. Its fur is orange with black stripes, typical of the Bengal tiger subspecies. In place of traditional eyes, DSC-MATE-3064 has VR jade LED's, which it claims allow it to see more efficiently than a standard pair of eyes. DSC-MATE-3064 also wears a police cap on its head, a jade earring on one ear, and a red scarf around its neck. It is often seen carrying a candy stick with it.

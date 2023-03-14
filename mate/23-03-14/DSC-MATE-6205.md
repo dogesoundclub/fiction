@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6205
+Description: Subject 6205 is a male rabbit, measuring approximately three feet in height, with red clown-like eyes and wearing a red beanie on his head. He has demonstrated the ability to manipulate electricity and has been employed as an electrician by a number of organizations in the past, though his electrical surges have sometimes resulted in damage to the surrounding infrastructure, earning him a reputation as a danger to work with.

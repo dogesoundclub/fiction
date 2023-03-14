@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4386
+Description: DSC-MATE-4386 is a male robot security guard, with normal glasses and a green head. DSC-MATE-4386 possesses a jade earring on each ear, a silver chain around its neck, and is often seen smoking a cigarette.

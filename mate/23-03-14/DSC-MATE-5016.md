@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5016
+Description: DSC-MATE-5016 is a female human of average height and build. Its most striking feature is its VR Rainbow LED eyes, which are visible at all times. DSC-MATE-5016 typically wears a Not Arranged Green headband with a Jade Earring, Medical Mask, and a Silver Chain.

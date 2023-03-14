@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8294
+Description: Subject 8294 is a male human with distinctive orange stripes on their face, leading many to speculate on possible involvement with anomalous entities. Their eyes display a unique rainbow LED pattern, enhanced by advanced virtual reality technology that has been analyzed but remains incomprehensible to Foundation personnel. Their ears are adorned with a single gold earring, and their mouth is always covered by a medical mask. Subject 8294 is known to wear a silver chain as an accessory, although its significance remains unknown.

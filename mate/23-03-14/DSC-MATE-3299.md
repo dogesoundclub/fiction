@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3299
+Description: DSC-MATE-3299 is a female human electrician with a distinctive appearance. She has blonde hair worn in an ushanka with two-color bands on her forehead and goggles resting on her forehead. DSC-MATE-3299's ears are adorned with red cross earrings and her face is marked with orange stripes.

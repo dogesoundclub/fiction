@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1244
+Description: Subject 1244 is a humanoid male of the species Homo sapiens, and is employed as a beautician. Their notable physical characteristics include a small black spot at the corner of the mouth, an expression of constant fear, and piercing blue eyes reminiscent of a clown. They wear a small dog-eared hat atop their head, adorned with a two-color band across their forehead and a jade earring in each ear. They are often seen wearing a gold chain around their neck and smoking a cigarette.

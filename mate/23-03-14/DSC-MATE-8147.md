@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8147
+Description: DSC-MATE-8147 is a human female of average height, with orange stripes on their face and red lips. They wear their black hair in two pig tails and often keep a pair of goggles on their forehead. DSC-MATE-8147's ears are pierced, and they frequently wear gold earrings. DSC-MATE-8147 consistently wears a medical mask, which they claim is for hygiene purposes. 

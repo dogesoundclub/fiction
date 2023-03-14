@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8887
+Description: Subject 8887 is a female human of average height and build, with piercing orange eyebrows and striking red lips. She often wears a retro cap with a two-color band on her forehead, giving her a unique and distinct appearance. The subject also wears a green cross earring on her ear and a gold chain around her neck which only adds to her charm.

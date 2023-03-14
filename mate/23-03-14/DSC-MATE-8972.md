@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8972
+Description: The subject is a female humanoid, identified as a farmer with unique physical attributes. The subject's most notable feature is a purple lip, and her eyes possess vibrant orange eyebrows. The subject has a distinctive rainbow festival hairstyle that is equally unconventional. On the forehead, two color bands are present, with goggles worn on the forehead. Hanging from each ear is a single green cross earring, and a choker accessory is worn around the neck.

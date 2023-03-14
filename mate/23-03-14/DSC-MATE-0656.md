@@ -1,0 +1,2 @@
+ID # : DSC-MATE-656
+Description: DSC-MATE-656 is a human female of African-American descent, approximately 35 years of age with prominent spots on her cheeks, a purple lip, and a purple cap with a headset. DSC-MATE-656's ears are adorned with gold earrings, and she is often seen wearing a silver chain around her neck and holding a cigarette.

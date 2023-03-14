@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1844
+Description: DSC-MATE-1844 appears as a fully grown male Bengal tiger, standing 3 meters tall and weighing approximately 300kg. Its fur is not arranged, giving it a disheveled appearance, though its green eyes stand out as particularly intelligent and observant.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8721
+Description: DSC-MATE-8721 is a human female, standing at 5'7" in height with a slender build. Their defining feature is a prominent set of orange stripes that run down both sides of their face, extending from their forehead to their jawline. DSC-MATE-8721's eyes are a bright blue color and resemble clown makeup, while their head is almost always shrouded in a hoodie. They often wear a medical mask over their mouth and a gold chain as an accessory.

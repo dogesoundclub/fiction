@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2687
+Description: DSC-MATE-2687 appears to be a female human in their early 30s with several distinctive facial features. They exhibit spots on their face and have a bright red lip, which may be enhanced with cosmetics. DSC-MATE-2687 has blue clown eyes and sports pig tails on their head. Their forehead features a two-color band and their ears bear a red cross earring. They are often seen with a cigarette in their possession.

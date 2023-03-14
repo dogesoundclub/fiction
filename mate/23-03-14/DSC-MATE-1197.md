@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1197
+Description: DSC-MATE-1197 is a male rabbit with the ability to take on the form of a human. As a human, DSC-MATE-1197 manifests as the theater manager of [REDACTED], a local theater which is used as a front for Foundation operations in the area.

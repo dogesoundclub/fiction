@@ -1,0 +1,2 @@
+ID # : DSC-MATE-985
+Description: DSC-MATE-985 is an autonomous robot of unknown origin, appearing to be fashioned from a combination of various scrap metal and technological components. Its body is primarily silver, with several protruding joints, and various access panels and vents. Its visual sensors are jade-colored LED's and it has been observed to wear a gold earring and a silver chain around its neck, as well as a bucket hat upon its head. Additionally, DSC-MATE-985 has been noted to frequently smoke a cigarette.

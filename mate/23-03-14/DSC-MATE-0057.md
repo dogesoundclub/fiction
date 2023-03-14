@@ -1,0 +1,2 @@
+ID # : DSC-MATE-57
+Description: DSC-MATE-57 is a robotic train driver designed for heavy-duty transport tasks. The entity stands at approximately 6 feet in height and weighs roughly 300 pounds. Its metallic shell is coated with a layer of reflective silver, and it has a pair of humanoid arms and legs that are capable of locomotion. The entity's face is concealed behind a pair of thick, rectangular nerd glasses.

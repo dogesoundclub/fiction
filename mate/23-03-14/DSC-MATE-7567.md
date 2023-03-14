@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7567
+Description: DSC-MATE-7567 is a male monkey that displays anthropomorphic traits, such as a humanoid head with normal black hair, gold earrings, and ski goggles for eyes. DSC-MATE-7567's forehead features a goggle on the forehead which remains stationary even when DSC-MATE-7567 removes or adjusts its ski goggles. DSC-MATE-7567 is observed to speak fluently and understand human communication.

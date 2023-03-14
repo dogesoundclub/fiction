@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8173
+Description: Subject 8173 appears to be a human male, approximately 5'10" in height with a muscular build. Its head is covered in a mass of unkempt green hair, which obscures its facial features. Instead, two ski goggles with dark lenses serve as its eyes. The subject shows no signs of discomfort wearing the goggles at all times, even during periods of high physical exertion.

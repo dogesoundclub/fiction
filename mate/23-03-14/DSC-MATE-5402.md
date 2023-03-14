@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5402
+Description: DSC-MATE-5402 is a female human of average height and weight, with several distinct physical features. Her face is covered in spots, and she has an infectious smile that she displays frequently. DSC-MATE-5402's eyes are blue and have a clown-like appearance. Her head is green with edges curling upwards on all sides, and she wears a single large gold earring in her left ear. Additionally, DSC-MATE-5402 is often seen wearing a gold chain and smoking a cigarette.

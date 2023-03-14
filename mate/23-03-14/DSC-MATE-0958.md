@@ -1,0 +1,2 @@
+ID # : DSC-MATE-958
+Description: Subject 958 is a humanoid entity, appearing as a male rabbit with a unique set of accessories. The subject's eyes are obscured behind horn-rimmed glasses, and it wears a gold chain around its neck. Additionally, subject 958 has an earring on its right ear and is often seen smoking a cigarette. The entity appears to be sentient and can communicate fluently in various languages.

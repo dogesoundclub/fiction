@@ -1,0 +1,2 @@
+ID # : DSC-MATE-568
+Description: DSC-MATE-568 is a male rabbit of the species Oryctolagus cuniculus, standing at approximately 65cm tall. The subject wears a red beanie on its head and a gold earring on each ear. DSC-MATE-568 also wears a gold chain around its neck and an LED gas mask for unknown reasons. 

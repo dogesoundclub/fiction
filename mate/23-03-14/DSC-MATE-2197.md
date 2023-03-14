@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2197
+Description: DSC-MATE-2197 is a female human who currently holds the occupation of a Traffic Officer. They possess striking rainbow LED eyes that are visible through a medical mask covering the mouth. DSC-MATE-2197 additionally wears a tiara, green cross earring, and a silver chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2704
+Description: Subject 2704, a male Siberian tiger of approximate 8.5ft in height and weighing around 300 lbs. Its eyes are replaced with VR Rainbow LED, and on the forehead is a goggle that reads and analyzes information he encounters.  It has a distinctive jade earring on its left ear. The creature is seldom seen without its silver chain, connected to a candy stick. Most interestingly, the tiger has developed a sense of logic and reasoning much akin to the higher-order thinking of the humanoid species.

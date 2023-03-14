@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5059
+Description: Item 5059 is a male rabbit of indeterminate breed, standing at roughly 1 meter in height on its hind legs. Its fur is a mottled brown and black, with a distinctive blue bandana tied around its head. Item 5059 is always in a state of fear, with a constantly agape mouth and wide eyes. It displays a notable aversion to loud noises and sudden movements.

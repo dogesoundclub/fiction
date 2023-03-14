@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4763
+Description: DSC-MATE-4763 is a male rabbit with unusual physical features. Its eyes resemble ski goggles and its ears have a jade earring pierced through them. DSC-MATE-4763's most notable feature is its ability to speak in a clear and human-like voice.

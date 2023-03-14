@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3889
+Description: DSC-MATE-3889 is a male tiger with blue clown eyes and a red cross earring on its left ear. DSC-MATE-3889 is highly intelligent and possesses a charming, quick wit. DSC-MATE-3889 is highly skilled in debate and enjoys engaging in playful arguments with friends and family members.

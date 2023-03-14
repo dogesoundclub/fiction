@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9815
+Description: DSC-MATE-9815 appears to be a male, anthropomorphic rabbit of average height and build. It is often seen wearing a red beanie on its head, a gold chain around its neck, as well as an earring on one of its ears. DSC-MATE-9815 also carries a candy stick, which it is often seen munching on. DSC-MATE-9815 displays an affable and approachable demeanor, often chatting with anyone who would listen.

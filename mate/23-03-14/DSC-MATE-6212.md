@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6212
+Description: DSC-MATE-6212 is a female human, identified as a reporter by occupation. She stands at approximately 5 feet 7 inches in height and has spots on her face, particularly across her cheeks and nose. Her eyes are orange in color and her eyebrows are a matching shade. She is often seen wearing a purple cap with a headset, accompanied by a black choker.

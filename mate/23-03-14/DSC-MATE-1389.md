@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1389
+Description: DSC-MATE-1389 is a human female with spots covering her face, a set of red lips, and blue clown eyes. The subject’s head appears to be arranged in an unorthodox manner and is constantly moving, although there is no visible indication of injury or mutation. DSC-MATE-1389 is often seen wearing a choker and smoking a cigarette.

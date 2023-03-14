@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5716
+Description: DSC-MATE-5716 is a female human with distinctive red clown eyes and spots on her face, wearing a tiara and a pair of goggles on her forehead, a gold earring in each ear, and a silver chain around her neck. DSC-MATE-5716 also carries a cigarette as an accessory. While her appearance does not appear to pose any direct threat, her personality is cause for concern.

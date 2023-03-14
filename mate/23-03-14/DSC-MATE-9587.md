@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9587
+Description: DSC-MATE-9587 is a female human and former car salesman. The subject's unique physical appearance includes a purple lip, blue clown eyes, bucket hat, and gold earring. DSC-MATE-9587 commonly wears a gold chain and is frequently observed smoking a cigarette.

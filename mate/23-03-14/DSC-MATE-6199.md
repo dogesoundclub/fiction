@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6199
+Description: DSC-MATE-6199 is a humanoid with bright orange stripes along their cheeks and forehead. They present as a human female in their early twenties, with brown hair typically worn under a hoodie. DSC-MATE-6199 is often seen wearing a silver chain and normal glasses.

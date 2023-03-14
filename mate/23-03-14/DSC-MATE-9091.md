@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9091
+Description: Subject 9091 is a male human with unique facial features. The subject has spots on their face accompanied by a bright smile that they frequently wear. The eyes of the subject are covered with nerd glasses, and their head is adorned with a mohawk hairstyle. The subject also sports a jade earring and a silver chain around their neck. However, the most distinct accessory of 9091 is the LED gas mask they always wear while performing their duties.

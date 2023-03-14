@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8901
+Description: DSC-MATE-8901 appears as a middle-aged male farmer of average height and build. However, their appearance is accentuated by a variety of unusual features. DSC-MATE-8901 sports a clown mouth, and their eyes are red with a vibrant sheen. They wear a headset with LED lights on their head, and their forehead features a multi-color band. They also wear a medical mask to cover their mouth and a gold chain as an accessory around their neck.

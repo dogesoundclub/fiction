@@ -1,0 +1,2 @@
+ID # : DSC-MATE-609
+Description: DSC-MATE-609 is a male rabbit-humanoid banker, standing at 3 feet tall. The subject has a frightened mouth feature and wears a hoodie that partially obscures its nerdy glasses. DSC-MATE-609's forehead has a band of two colors, which frequently changes position or disappears altogether. The most notable feature of DSC-MATE-609 is the LED gas mask on its face, which it never removes.

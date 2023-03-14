@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8020
+Description: DSC-MATE-8020 is a human male, standing at approximately 1.8 meters tall. Its face features orange stripes patterned across the cheeks, with a set of VR rainbow LED eyes, and a not-arranged green head of hair. DSC-MATE-8020 maintains a red scarf and gas mask as standard accessories, with a goggle affixed on the forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7947
+Description: DSC-MATE-7947 is a human female with spots on her face and red lips. Her eyes are replaced with VR rainbow LED and she wears a bucket hat on her head. She also wears a red cross earring on each ear, a silver chain, and is frequently seen with a cigarette. DSC-MATE-7947's personality appears to value harmony and social connections, often engaging in humorous banter or telling jokes with others.

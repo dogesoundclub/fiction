@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4994
+Description: DSC-MATE-4994 is a human female, standing at 1.73 meters tall, weighing approximately 75 kilograms. The most notable feature is orange stripes that adorn her cheeks, making her look like a rainbow. Her blue clown eyes have no discernible medical condition, but seem to have been artificially modified to resemble a clown's.

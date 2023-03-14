@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1897
+Description: Subject appears to be a male human, standing at approximately 5'8". The most noticeable feature is the clown-like mouth, which has extreme curvature and exaggerated lipstick. Subject also has blue clown eyes, a head with a peak spike, and jade earrings in both of his ears. 

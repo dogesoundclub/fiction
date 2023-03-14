@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5244
+Description: DSC-MATE-5244 is a human male of indeterminate age, with numerous dark spots on their face. They bear a jade earring in their left ear, as well as a gold chain around their neck. DSC-MATE-5244's most prominent feature is their VR rainbow LED eyes, which are capable of displaying a variety of colors in rapid succession. Subject is also observed smoking cigarettes.

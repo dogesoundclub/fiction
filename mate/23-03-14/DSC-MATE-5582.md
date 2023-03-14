@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5582
+Description: Item 5582 is a robotic entity that appears to take the form of a male veterinarian. It is approximately 1.8 meters in height, with a slim build and not arranged green head. The entity's face features a frightened mouth, and it wears normal glasses. It is often seen sporting a silver chain and smoking a cigarette.

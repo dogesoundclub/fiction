@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6621
+Description: DSC-MATE-6621 is a male human with blonde hair, normal glasses, and a distinctive mouth spot. DSC-MATE-6621 has an additional mouth feature, which appears to be a frightened or anxious expression that is always present, even when DSC-MATE-6621 is smiling. DSC-MATE-6621 also has a green cross earring on one ear and is often seen wearing a silver chain and carrying a candy stick.

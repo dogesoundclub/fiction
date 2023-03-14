@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2708
+Description: DSC-MATE-2708 is a female human who presents with spots on her face, red lipstick, pig tails, and a goggle on her forehead at all times. She is also frequently seen sporting a red cross earring, gold chain, and a medical mask. Despite her physical appearance, DSC-MATE-2708 is highly trained in fire suppression and holds a profession as a firefighter.

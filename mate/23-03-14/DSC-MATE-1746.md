@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1746
+Description: 1746 appears to be a humanoid female of the species, Homo sapiens. The subject possesses facial spots and a frequently displayed smile, and is usually seen wearing medical attire as well as a purple cap equipped with a headset.

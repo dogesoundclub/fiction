@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2496
+Description: DSC-MATE-2496 appears to be a human male with distinct facial features. Its mouth is spotted in different colors, and it has a broad smile that does not seem to fade. The subject's eyes are red and exhibit characteristics similar to those of a clown. It has a head of green, and its ears bear a unique jade earring. Subject 2496 is often seen with a candy stick as an accessory.

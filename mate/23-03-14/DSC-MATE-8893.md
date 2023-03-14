@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8893
+Description: DSC-MATE-8893 is a female human politician who exhibits several noticeable physical features. She has a green head with pronounced edge curls, spotted skin, and purple lips. DSC-MATE-8893 wears normal glasses to correct her vision, medical masks to prevent the spread of diseases, and a jade earring on one ear for an unknown reason. She also wears a silver chain as a necklace.

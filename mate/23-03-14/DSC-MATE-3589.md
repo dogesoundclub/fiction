@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3589
+Description: Subject 3589 is a human male of average height and build. Their physical appearance is not considered abnormal, save for their strange jade LED eyes and matching jade earring in their right ear. Subject 3589 wears a medical mask at all times, making it difficult to discern any facial features or expressions. In addition, they often wear a gold chain around their neck.

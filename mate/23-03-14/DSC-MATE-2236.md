@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2236
+Description: DSC-MATE-2236 is a male capuchin monkey, standing at approximately 40 cm tall and weighing 2.3 kg. DSC-MATE-2236 exhibits normal capuchin monkey behavior in most regards, but possesses an unnerving intelligence that sets it apart from its counterparts. DSC-MATE-2236 has been observed to have a particular fondness for wearing a pair of goggles on its forehead and a gold hoop earring in its left ear.

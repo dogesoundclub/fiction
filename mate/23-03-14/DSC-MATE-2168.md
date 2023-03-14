@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2168
+Description: DSC-MATE-2168 is a monkey of male sex and blue bandana on its head, with ski goggle-shaped eyes, jade earrings on the ears, a gold chain, and a cigarette in his hand. DSC-MATE-2168 has exhibited an intelligence quotient higher than that of other monkeys, allowing him to converse with humans on a basic level.

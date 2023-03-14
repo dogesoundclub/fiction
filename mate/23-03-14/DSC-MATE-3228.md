@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3228
+Description: DSC-MATE-3228 is a female human identified by orange stripes on their face and red lips, with normal glasses over their eyes. DSC-MATE-3228 has green hair with an edge curl, a goggle on their forehead, and green cross earrings in their ears, as well as a choker around their neck and a cigarette as an accessory.

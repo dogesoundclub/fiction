@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7095
+Description: DSC-MATE-7095 is a human female in her 20s, standing at 1.63 meters and weighing approximately 54 kilograms. DSC-MATE-7095 is of Asian descent, with a youthful appearance reminiscent of a 00s school girl. Her eyes are obscured by normal glasses, and she wears a green cross earring on her left ear. DSC-MATE-7095 is often seen with a medical mask, which she claims is for personal hygiene reasons.

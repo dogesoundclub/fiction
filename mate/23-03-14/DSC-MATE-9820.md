@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9820
+Description: DSC-MATE-9820 is a male human of average build, approximately 1.80 meters in height. The subject's most notable feature is a circular spot around the mouth, which is believed to be a birthmark. DSC-MATE-9820 wears normal glasses and a distinct doge hat on the head. The subject also sports a red victory band on the forehead, a green cross earring on each ear, and a medical mask that is worn at all times.

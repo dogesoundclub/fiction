@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9198
+Description: Subject #9198 is a Homo sapien of male sex and appears to be in their early thirties. The subject presents with unusual green layers on their head which give the impression of unaligned scales. A mouth spot is also present, giving a distinct appearance to the subject. The mouth spot's function is unknown, but is speculated to be vestigial. A medical mask covers its lower face, obscuring most of its features except for a pair of striking gold earrings.

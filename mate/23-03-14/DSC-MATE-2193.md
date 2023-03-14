@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2193
+Description: DSC-MATE-2193 is a female human with distinct orange stripes on her face and red lips. The facial features are reminiscent of a 00s schoolgirl. DSC-MATE-2193 also has a two-color band on their forehead, gold earrings on their ears, and a medical mask over their mouth.

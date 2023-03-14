@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4730
+Description: DSC-MATE-4730 is a female human with a retro style cap and red cross earring. Her most distinguishable features are her purple lips and jade-green LED cybernetic eyes. Her choice of apparel includes a silver chain and LED gas mask. DSC-MATE-4730 is employed in repairing mechanical equipment and machinery within Site-██ which shows no anomalous properties. Despite her appearance, it is believed that DSC-MATE-4730 has no anomalous properties. 

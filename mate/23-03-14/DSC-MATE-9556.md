@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9556
+Description: DSC-MATE-9556 is an anomalous humanoid creature that appears to be a human female politician with a pink rabbit head. It has spots on its face and wears normal glasses, a silver chain, golden earring, and a gas mask while in its appearance. Despite its appearance, DSC-MATE-9556 behaves and communicates like any other human.

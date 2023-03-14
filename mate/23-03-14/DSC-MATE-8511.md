@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8511
+Description: Subject 8511 appears to be a human female, approximately 28 years old, of average height and build. She is often observed wearing a silver chain and a unique LED-enabled gas mask. The gas mask is believed to provide some sort of benefit in terms of filtering out airborne contaminants or providing enhanced vision or other sensory abilities, though the exact purpose of the mask is unknown.

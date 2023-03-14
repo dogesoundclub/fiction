@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5694
+Description: DSC-MATE-5694 is a human male with spotted facial features and a perpetually frightened mouth. DSC-MATE-5694 wears normal glasses and often accessorizes with a gold chain and candy stick. DSC-MATE-5694's natural charm and charisma have made them a successful lawyer among non-anomalous humans.

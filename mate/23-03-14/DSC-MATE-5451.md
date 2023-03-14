@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5451
+Description: DSC-MATE-5451 is a human female delivery driver with distinctive facial features, including purple lips and VR Jade LED eyes. DSC-MATE-5451's overall appearance is styled after 00s school girl fashion, with Jade Earrings as her preferred accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1999
+Description: DSC-MATE-1999 is a male rabbit that stands approximately 10 cm tall, and weighs 1.5 kg. DSC-MATE-1999 has a frightened mouth, and I-don't-know-eyes, with a police cap as its head. DSC-MATE-1999 also wears goggles on its forehead and a silver chain as its accessory.

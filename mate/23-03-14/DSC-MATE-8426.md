@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8426
+Description: 8426 is a male human with green hair wearing a purple cap. The most striking features of 8426's face are his spots and frightened mouth. 8426's eyes are circular and change colors in a random pattern, giving the appearance of a virtual reality rainbow LED.

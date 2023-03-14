@@ -1,0 +1,2 @@
+ID # : DSC-MATE-181
+Description: Subject 181 appears to be a normal human male, with no discernible abnormal physical characteristics. However, their jade LED eyes and green cross earring have been modified using unknown technology, indicating that Subject 181 possesses advanced knowledge of mechanics and engineering.

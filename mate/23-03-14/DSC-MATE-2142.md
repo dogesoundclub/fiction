@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2142
+Description: DSC-MATE-2142 is a male monkey belonging to the genus Macaca. DSC-MATE-2142 stands at approximately 80cm in height and weighs 10kg. DSC-MATE-2142's most notable features are its pair of horn-rimmed glasses and the blue bandana that it wears around its head. DSC-MATE-2142 has demonstrated the ability to communicate using sign language and has a vocabulary of approximately 200 signs. DSC-MATE-2142 also possesses a dry sense of humor, often delivering quips and jokes with a deadpan expression that can catch people off guard.

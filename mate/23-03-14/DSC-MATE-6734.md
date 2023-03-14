@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6734
+Description: DSC-MATE-6734 is a male human measuring approximately 1.8 meters in height. The subject wears a hoodie, which partially covers their face, revealing orange stripes on their cheeks. DSC-MATE-6734 carries a silver chain around its neck and frequently sucks on a candy stick. The subject identifies as a lawyer and displays a strong sense of duty and responsibility.

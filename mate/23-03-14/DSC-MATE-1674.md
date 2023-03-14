@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1674
+Description: Subject 1674 is a female humanoid of the Homo sapiens species. The subject is approximately 28 years old and appears to be in good physical health. Notable physical features include orange stripes on the cheeks and a purple lip. The subject's eyes are obscured by normal glasses, and they are often seen wearing a hoodie with a medical mask over the mouth. The subject frequently wears a choker as an accessory.

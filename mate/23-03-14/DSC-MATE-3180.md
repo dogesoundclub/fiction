@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3180
+Description: DSC-MATE-3180 appears to be a human female, with distinct facial features. Her face contains spotted skin, a broad smile, and blue clown eyes. DSC-MATE-3180's head is typically adorned with a retro cap, and her forehead features a two-color band. Her accessories include a choker and a normal gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-213
+Description: DSC-MATE-213 is a male Siberian tiger (Panthera tigris altaica) measuring 2.5 meters in length and weighing approximately 210 kg. DSC-MATE-213 displays red clown-like eyes which appear to have no adverse physical effects on him. He wears a blue bandana on his head and a gas mask which, upon testing, has been discovered to be nondescript.

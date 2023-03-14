@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6294
+Description: Item 6294 is a female human with distinctive spots on their face that add to their natural charm and charisma. They have a contagious smile that can lift the spirits of those around them. The eyes of Item 6294 are fitted with VR Jade LED lenses which allow them to navigate and analyze data in a way that is beyond human capabilities. 

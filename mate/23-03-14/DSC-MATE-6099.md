@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6099
+Description: 6099 appears to be a male rabbit, who commonly wears nerd glasses and a doge hat atop its head. On its forehead, there is a red victory band visible, and a striking gold earring adorns each of its ears. Additionally, 6099 wears a red scarf as an accessory, giving it an eye-catching appearance. Its overall demeanor is that of a typical banker, exhibiting efficient, courteous professionalism.

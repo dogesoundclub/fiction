@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5851
+Description: 5851 appears to be a male tiger, possessing physical features consistent with the species. Notably, he wears a red beanie on his head and a gold earring on his left earlobe. His eyes are obscured by nerd glasses, and his mouth appears to be frozen in a frightened expression.

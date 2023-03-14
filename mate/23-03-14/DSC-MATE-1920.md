@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1920
+Description: DSC-MATE-1920 is a female human, identified as a former mafia boss. Her face features irregular spots and purple lip coloration, providing a stark contrast to her otherwise serious demeanor. She wears normal glasses and a metal blue head with green cross-shaped earrings.

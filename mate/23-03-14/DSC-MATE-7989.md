@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7989
+Description: Item 7989 is a human female with striking facial features, including orange stripes and purple lips. Her hair is styled in a 90s fashion, and she wears a green cross earring in her left ear. Item 7989 routinely wears a medical mask, potentially to conceal their scent from supernatural entities. 

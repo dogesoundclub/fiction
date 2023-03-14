@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4587
+Description: 4587 is a male rabbit of unknown origin displaying several anomalous features. The subject exhibits a frightened mouth as its primary facial feature and wears horned rim glasses over its eyes. Its head remains unstyled and green, which is a rare trait for any known rabbit species. Additionally, the subject wears a gold chain as an accessory. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9933
+Description: Subject 9933 is a human male, approximately 34 years old. He stands at 6 feet, with a slim build, and has a frightened mouth. His eyes are notably unusual, bearing resemblance to red clown eyes. Subject 9933's head is often seen adorned with a short peak cap, alongside a red scarf around his neck. He carries a candy stick at all times.

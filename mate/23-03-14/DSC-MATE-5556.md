@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5556
+Description: 5556 is a male rabbit of unknown origin, measuring approximately 1.3m in height, with vibrant, VR Rainbow LED eyes that change tone depending on his mood, and a terrified mouth expression. They wear a purple cap fitted with a headset, fashioned with a Jade earring on each side, further accentuated by a gold chain that circles its neck, and routinely smoke cigarettes. Despite their cute appearance, personnel must all exercise caution around 5556, due to the extreme danger it poses.

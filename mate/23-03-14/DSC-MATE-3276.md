@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3276
+Description: DSC-MATE-3276 is a humanoid entity of the female sex, identifiable by its distinctive orange stripes across its face and smile. DSC-MATE-3276's head has a wing protruding from it, and it possesses green cross-shaped earrings on its ears. DSC-MATE-3276 is routinely seen wearing a silver chain as an accessory.

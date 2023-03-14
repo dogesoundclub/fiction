@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2107
+Description: 2107 is a female human with vibrant green hair styled in an edgy curl that frames a coquettish face that features purple lips. Her forehead supports two bands of color at odd angles, seemingly dyed into the skin. A single goggle rests clumsily on her forehead.

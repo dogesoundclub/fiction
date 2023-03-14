@@ -1,0 +1,2 @@
+ID # : DSC-MATE-40
+Description: Individual 40 is a human female with bright orange stripes on their face and orange eyebrows. They are known to wear a bucket hat on their head with a 2-color band across their forehead. Individual 40 is often seen donning a medical mask, but it is not clear if this is due to personal preference or for health and safety reasons.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2914
+Description: Subject 2914 is a human male in his late 20s with blonde hair and noticeable gold earrings. The most distinguishable facial feature is a spot on the subject's mouth, and their eyes are similar to that of ski goggles. Subject 2914 often wears a silver chain, which they seem to hold great value over.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3669
+Description: DSC-MATE-3669 is a male European Rabbit, measuring approximately 0.6 meters in height and weighing 3.5 kilograms. DSC-MATE-3669 appears to possess above-average intelligence and has demonstrated the ability to communicate fluently in multiple languages. DSC-MATE-3669's most distinctive feature is the red scarf it wears around its neck at all times.

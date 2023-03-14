@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4032
+Description: DSC-MATE-4032 was a humanoid robot, measuring approximately 2 meters in height. It had one green cyclops eye and wore a bucket hat on its head, along with red nerd glasses. Its ears were adorned with a red cross earring, and it wore a red scarf around its neck.

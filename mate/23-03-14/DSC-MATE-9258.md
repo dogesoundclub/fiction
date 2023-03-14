@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9258
+Description: DSC-MATE-9258 is a male tiger with a frightened mouth expression. It wears a red beanie on its head, a red cross earring on each ear, a red scarf, and a normal gas mask as its accessories. Despite its cute appearance, DSC-MATE-9258 is a highly dangerous villain with a desire to make the world a better place according to its own, twisted standards.

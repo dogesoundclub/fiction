@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9810
+Description: DSC-MATE-9810 is a human female of average height and build, with red clown eyes and an unusual head featuring a set of wings. DSC-MATE-9810 also possesses a two-color band on its forehead and a set of goggles positioned above them. Its ears have red cross earrings. DSC-MATE-9810's most unique feature is its normal gas mask, which it wears on its face during public interactions.

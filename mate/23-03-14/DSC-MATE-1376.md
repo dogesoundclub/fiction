@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1376
+Description: Subject 1376 appears to be a male rabbit of the Leporidae family, standing at approximately 3 feet tall on two legs. The subject is outfitted with VR Jade LED eyes, a police cap on its head, and a Jade Earring on each ear. Additionally, the subject is frequently seen sporting a gold chain necklace and a candy stick in its mouth. Subject 1376 exhibits anthropomorphic traits, including the ability to communicate in fluent English and possesses remarkable organizational skills.

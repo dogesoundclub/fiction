@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5893
+Description: DSC-MATE-5893 is a male human of average height, with notable face features including spots, a clown mouth, and red clown eyes. The subject's head exhibits a peak spike, with an emerald jade earring in the left ear. The subject wears a medical mask at all times, limiting facial expression and speech.

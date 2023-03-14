@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2310
+Description: DSC-MATE-2310 appears to be a monkey approximately 1 meter tall with unknown eye color. Its head is adorned with a purple cap which has a headset attached, and its ears bear a gold earring. DSC-MATE-2310 is often seen wearing a gold chain around its neck and smoking a cigarette.

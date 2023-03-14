@@ -1,0 +1,2 @@
+ID # : DSC-MATE-29
+Description: DSC-MATE-29 is a human female with abnormal head features, noted to have green hair that is not styled in any particular manner. DSC-MATE-29 is often observed wearing a pair of goggles on their forehead and a gas mask, with no notable damage or abnormalities. Despite this, DSC-MATE-29's personality is noted to have a tendency to be highly practical and hands-on. When presented with a problem, DSC-MATE-29 will often fix objects in unconventional ways, using duct tape or paper clips as makeshift solutions.

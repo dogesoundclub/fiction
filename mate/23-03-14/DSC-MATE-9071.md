@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9071
+Description: Item 9071 is a middle-aged human male with a distinctive mouth spot and a perpetually charming smile. The subject's eyes have been replaced with advanced VR Jade LED implants, allowing for high-resolution virtual interface capabilities. The item also wears a green cross earring and a standard-issue gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7979
+Description: DSC-MATE-7979 appears to be a human female of approximately 25 years old. She has blonde hair with an ethereal-like wing on her head and jewelry to accentuate her features. Her face is speckled with spots, and she has orange eyebrows with bright red lipstick. DSC-MATE-7979 is commonly seen wearing a black choker around her neck and frequently using a cigarette for unknown reasons.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6052
+Description: Subject 6052 is a male monkey of the species Cercopithecus, standing at 1.1 meters in height and weighing approximately 22 kilograms. He possesses a frightened mouth, seemingly always on the brink of tears, and his eyes are adorned with normal glasses. He wears a gold earring on his left ear.

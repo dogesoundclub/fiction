@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1591
+Description: DSC-MATE-1591 is a male human with a unique facial feature - a spot on their mouth that resembles a lipstick mark. Their mouth often appears frightened, which can be attributed to their history of violent crime and ongoing conflicts with other Mafia families.

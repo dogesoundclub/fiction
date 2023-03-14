@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6415
+Description: 6415 is a human female with distinct orange stripes on their face. Their eyes are VR Jade LED and their head is green with edge curl. They often wear a silver chain, and their accessory of choice is an LED gas mask. 6415 is a skilled mechanic, with a particular talent for working with mechanical objects that are believed to be beyond repair. They have a habit of attaching sentimental value to inanimate objects and treating them as if they possess sentience.

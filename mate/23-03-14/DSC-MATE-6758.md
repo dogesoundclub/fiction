@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6758
+Description: DSC-MATE-6758 appears to be a male human of average height and build, with clown blue eyes and a unique mouth spot. On his head is a red bucket hat, and he wears a silver chain around his neck. His ears are pierced with a jade earring, and he often carries a candy stick with him.

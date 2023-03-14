@@ -1,0 +1,2 @@
+ID # : DSC-MATE-110
+Description: DSC-MATE-110 is a female human of Asian descent, standing at 1.65 meters tall and weighing 57 kilograms. DSC-MATE-110's most distinctive features are her red lips and VR jade LED eyes, which replace her natural eyes that are believed inaccessible to DSC-MATE-110.

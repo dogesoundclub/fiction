@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5467
+Description: The subject, previously known as the theater manager of Theater XXXX, is a humanoid tiger with blue clown eyes. He has a permanent frightened mouth and wears a bucket hat with a red victory band around his forehead. The subject also possesses a gold chain and a whistle, which he has been known to use to reinforce his authority and to welcome new guests to the theater. The subject's behavior is generally considered to be friendly and non-threatening, though he has been known to act unpredictably in the past.

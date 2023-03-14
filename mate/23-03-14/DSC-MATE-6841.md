@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6841
+Description: Subject 6841 is a male human with short black hair and green eyes. He appears to be in his early twenties and stands at approximately 5’10. He is often seen wearing a short peak cap with a red victory band and a green cross earring. He also wears a red scarf as an accessory.

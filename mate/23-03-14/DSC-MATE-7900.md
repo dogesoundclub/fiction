@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7900
+Description: Item #7900 is a male human of average build and height, with a distinct mouth spot on the left side of their face. Their irises are red, resembling those of a clown, and their hair is parted in a pink hue. They wear a red victory band on their forehead, a gold earring on their left ear, a silver chain around their neck, and carry a candy stick at all times.

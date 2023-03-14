@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7371
+Description: DSC-MATE-7371 is a female human with distinctive facial features. They have orange stripes running vertically down their face and purple lips. DSC-MATE-7371's eyes are blue and resemble clown makeup, with exaggerated pupils outlined in black. DSC-MATE-7371's hair is brown and styled in a 90s fashion, and they wear a gold earring in each ear.

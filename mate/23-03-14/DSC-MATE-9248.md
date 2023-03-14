@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9248
+Description: Subject 9248 is a human female of average height and build. Notable features include a purple lip, normal glasses, a bucket hat, a goggle on the forehead, a green cross earring, a medical mask, and a silver chain worn as an accessory. 

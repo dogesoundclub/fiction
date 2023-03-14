@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3434
+Description: DSC-MATE-3434 appears to be a male humanoid rabbit, approximately 1.5 meters in height. It possesses green hair, a purple cap, a red victory band on its forehead, jade earring adorned ears, and a red scarf draped over its neck.

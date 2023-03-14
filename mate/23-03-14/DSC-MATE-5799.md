@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5799
+Description: DSC-MATE-5799 is a rabbit-humanoid hybrid of male gender, measuring at 1.5m in height. DSC-MATE-5799 expresses itself through normal glasses that discreetly cover its hazel-colored eyes. DSC-MATE-5799 is often seen wearing a "Doge" hat, which resembles the popular internet meme of the same name. DSC-MATE-5799 also dons a gold chain accessory around its neck.

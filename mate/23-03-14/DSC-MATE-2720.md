@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2720
+Description: DSC-MATE-2720 is a human male of average build and height. DSC-MATE-2720's face has an irregular spot just above the upper lip, which is slightly darker than the surrounding skin. When frightened, DSC-MATE-2720's mouth curves upwards, giving the appearance of a permanent smile. DSC-MATE-2720's eyes emit a green glow similar to Jade LED, a type of virtual reality lens technology. DSC-MATE-2720 is always wearing a red beanie, a green cross earring, and a red scarf. DSC-MATE-2720 also carries a normal gas mask as an additional accessory.

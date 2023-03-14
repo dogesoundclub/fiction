@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3558
+Description: D-3558 is a green robotic humanoid, standing at approximately 5'8" in height. It possesses a single left cyclops eye, resembling that of a cyclops from greek mythology, and a pair of nerdy-looking glasses over its facial area. The head of D-3558 is covered by a hooded sweatshirt, which it refuses to take off. Despite its robotic core, it displays emotions and personality traits that suggest self-awareness and identity.

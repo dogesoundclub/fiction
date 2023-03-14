@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5339
+Description: Item #5339 is a human female, approximately 28 years of age, who by profession is a veterinarian. Physical examination reveals several unique features, such as purple lips and spots covering the face, including an orange side head feature. They often wear a silver chain and are frequently seen with a cigarette. Subject #5339 possesses a natural charm and charisma, which may cause them to be the life of the party, often telling jokes or doing silly dances to make others laugh.

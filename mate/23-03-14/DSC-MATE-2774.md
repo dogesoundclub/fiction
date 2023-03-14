@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2774
+Description: Item 2774 appears to be a robotic male entity designed to mimic the appearance of a human reporter. The entity is most frequently seen wearing a red beanie and normal glasses. Item 2774 is often seen with a cigarette in its hand, which it claims is an essential tool for journalistic integrity.

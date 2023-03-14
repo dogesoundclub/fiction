@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3397
+Description: Subject 3397 is a male human of approximate age between 30 and 40 years. Their most notable facial feature is a dark spot located on the lower right side of their mouth. Despite sporting this unique trait, Subject 3397 always has a smile on their face, which they appear to wear effortlessly. They are often seen wearing a retro cap and a medical mask, particularly in public areas. 

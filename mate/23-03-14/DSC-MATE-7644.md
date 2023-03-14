@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7644
+Description: DSC-MATE-7644 is a human male of American ethnicity. The subject possesses a blue bandana on its head and a gold earring on its left ear. DSC-MATE-7644 is consistently found wearing its signature silver chain around its neck and carrying a candy stick in its pocket.

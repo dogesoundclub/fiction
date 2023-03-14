@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5706
+Description: Dr. 5706 is a human male with a notably unique appearance. His facial features consist of a sprinkle of spots and blue clown eyes, adding to the uniqueness of his already-parted pink hair. His forehead stands out with a dual-color band and he is often seen wearing a gold chain around his neck and a candy stick in his mouth. 

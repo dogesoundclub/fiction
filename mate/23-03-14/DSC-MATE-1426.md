@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1426
+Description: DSC-MATE-1426 is a humanoid entity, appearing as a female human with the head of an 00s school girl. DSC-MATE-1426 wears an LED gas mask as an accessory, which they have shown a strong attachment to. Though DSC-MATE-1426 appears to be a human, they have displayed unusual traits that suggest something other than a normal human. DSC-MATE-1426's sense of humor is a significant part of their personality, and they enjoy making others laugh but not necessarily in the most appropriate context.

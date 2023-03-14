@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6806
+Description: DSC-MATE-6806 is a male monkey of unknown origin. DSC-MATE-6806 exhibits distinctive facial features, including a frightened mouth and blue clown eyes. DSC-MATE-6806 wears a bucket hat and sports a two-color headband across his forehead. DSC-MATE-6806's ears are adorned with a jade earring, and he wears a silver chain necklace around his neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9711
+Description: DSC-MATE-9711 is a male rabbit of average size, with horned rim glasses and a police cap atop its head. DSC-MATE-9711 wears a red victory band on its forehead, along with a goggle that sits atop the band. Additionally, DSC-MATE-9711 has a gold earring in its left ear and wears a silver chain around its neck.

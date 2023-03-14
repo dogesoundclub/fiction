@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6688
+Description: Subject 6688 is a human female with normal glasses and a green head which is not arranged in any particular fashion. A goggle on her forehead and a green cross earring on each ear are also distinguishing features. In public settings, the subject always wears a medical mask over their mouth to hide any revealing facial expressions.

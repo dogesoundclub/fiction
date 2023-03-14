@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5182
+Description: 5182 is a robotic entity resembling a male firefighter, standing at 6'3". Its head is shaped like a red alarm with normal glasses serving as its eyes. Its attire consists of a red scarf and a gas mask used to filter its internal systems. 5182's actions and thought processes resemble those of a human, though it lacks sentience, and operates based on preset programming.

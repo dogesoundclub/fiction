@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2379
+Description: DSC-MATE-2379, also known by its human name, [REDACTED], is a human male with unique physical features. DSC-MATE-2379 has several spots on his face and a wide, infectious smile that he employs frequently. DSC-MATE-2379 typically wears a doge hat on his head, with a pair of nerd glasses perched atop his nose. DSC-MATE-2379 also sports a silver chain and a green cross earring, along with a cigarette dangling from his lips.

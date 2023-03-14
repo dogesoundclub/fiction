@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3197
+Description: DSC-MATE-3197 is a female human of average height and weight with distinct orange stripes on her face. DSC-MATE-3197's hair is a common style of the 1990s, generally unremarkable to the casual observer. However, DSC-MATE-3197's clown-like red eyes and gold earring signify a higher level of anomaly.

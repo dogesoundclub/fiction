@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1089
+Description: 1089 is a male robot, designed to function as an electrician. Its appearance is unique, featuring a not-arranged green head, jade earrings, and a medical mask covering its mouth. While its physical design is impressive, it is 1089's personality that has garnered most of the attention. The subject tends to be introspective and can become lost in thought for extended periods. This results in comical situations, such as walking into poles or tripping over objects.

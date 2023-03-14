@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4895
+Description: 4895 is a male monkey, standing at 4 feet tall with a pink, parted head and ski goggle eyes. Notably, the subject has an affinity for human clothing and often accessorizes with a red scarf and a LED gas mask. The subject's personality is known to be spontaneous and impulsive, leading to erratic behavior that can often be dangerous.

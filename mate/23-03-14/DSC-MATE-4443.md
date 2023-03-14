@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4443
+Description: Item 4443 is a humanoid robot, measuring approximately 1.8 meters tall and weighing approximately 100 kilograms. It possesses a single green Cyclops eye, composed of unknown materials, which places the robot's vision capabilities above human normative ranges. The eyes of Item 4443 emit a VR Rainbow LED light, which is used for communication and as a visual feedback mechanism.

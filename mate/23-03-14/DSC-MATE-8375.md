@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8375
+Description: DSC-MATE-8375 is a male Bengal tiger standing at approximately 8 feet tall and weighing approximately 300 kg. DSC-MATE-8375 is capable of speech in various languages and has been observed to possess intelligence and problem-solving skills equivalent to that of a human. The subject's head is adorned with a blue bandana, and it wears a medical mask over its mouth.

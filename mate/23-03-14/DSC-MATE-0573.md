@@ -1,0 +1,2 @@
+ID # : DSC-MATE-573
+Description: Subject 573 is a female human of average height and build with distinctive orange stripes on her face and bold red lips. The subject wears normal glasses over her deep-set eyes and has a head that appears to be made of metal, which may be why she works as a mechanic. She has an earring in the form of a red cross and wears a gold chain around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2697
+Description: DSC-MATE-2697 is a male human of average height and build. One distinguishing feature is the presence of numerous spots across their face, which appear to be freckles. DSC-MATE-2697's eyes are unique in that they have been modified with VR Rainbow LED technology, allowing them to display various colors and patterns.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7645
+Description: DSC-MATE-7645 appears to be a human male in their mid-forties, who identifies as a politician. However, DSC-MATE-7645's features and attire have led researchers to suspect that they may possess anomalous properties. DSC-MATE-7645 is often seen wearing a "Doge" hat on their head and a medical mask over their mouth. However, the most striking feature of DSC-MATE-7645 is their LED VR Rainbow eyes, which emit a variety of colors and frequencies based on DSC-MATE-7645's emotional state.

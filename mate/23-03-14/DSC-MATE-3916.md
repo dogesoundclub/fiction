@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3916
+Description: Subject 3916 is a male tiger of unknown origin, noted for its distinctive frightful mouth and horned-rimmed glasses. The tiger's head is adorned with a Doge hat, further adding to its unusual appearance. Subject 3916 is also known for its jade earring and medical mask, likely indicating an interest in human culture and hygiene. The subject also wears a gold chain, which may have symbolic or aesthetic value.

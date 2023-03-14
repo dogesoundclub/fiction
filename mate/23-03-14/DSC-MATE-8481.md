@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8481
+Description: DSC-MATE-8481 is a robotic, male news anchor that possesses a green Cyclops eye as its primary facial feature. The entity's head is adorned with a purple cap and a headset, while a gold earring adorns its right ear. DSC-MATE-8481 is often seen sporting a red scarf and a standard gas mask over its mouth and nose.

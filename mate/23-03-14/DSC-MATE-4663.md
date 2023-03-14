@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4663
+Description: DSC-MATE-4663 is a male anthropomorphic Rabbit measuring approximately 1 meter in height and weighing 40 kilograms. DSC-MATE-4663 has bright VR LED eyes, which flicker in a rainbow color pattern.

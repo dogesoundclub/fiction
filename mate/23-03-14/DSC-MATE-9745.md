@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9745
+Description: DSC-MATE-9745 appears to be a humanoid entity with unique facial and head features that differentiate it from the human norm. DSC-MATE-9745 has shown no signs of abnormal behavior or physical abilities, but its love for urban legends and other paranormal phenomena suggest that it may have an anomalous understanding of the world. 

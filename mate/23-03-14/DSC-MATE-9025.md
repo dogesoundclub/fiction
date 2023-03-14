@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9025
+Description: DSC-MATE-9025 is a male rabbit creature measuring approximately 1 meter in height. DSC-MATE-9025 has a frightened mouth and red clown eyes. DSC-MATE-9025 wears a purple cap with a headset, gold chain, and carries a candy stick as accessories. DSC-MATE-9025 has a natural charm and charisma that can be highly infectious, resulting in individuals being drawn to DSC-MATE-9025 in a captivating way.

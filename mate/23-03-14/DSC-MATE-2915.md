@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2915
+Description: DSC-MATE-2915 is a female human with distinct facial features, including purple lips and spots. Its eyes are replaced with VR jade LED screens, and it wears a set of jade earrings in its ears. It is commonly seen wearing a gold chain around its neck, and a LED gas mask.

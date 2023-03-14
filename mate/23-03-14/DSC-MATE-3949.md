@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3949
+Description: DSC-MATE-3949 is a human male with bright red clown eyes and green layered skin on the head. He wears a green cross earring and a medical mask at all times, hiding his mouth. DSC-MATE-3949 is often seen wearing a gold chain as an accessory. Despite his appearance, DSC-MATE-3949 is completely human and displays no anomalous physical abilities. However, his personality can be erratic and forgetful, leading to numerous humorous situations.

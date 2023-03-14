@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1188
+Description: Item 1188 is a male human of average height and build, with orange stripes on their face and a constant smile. Item 1188 has a shaved head, which they adorn with what appears to be a traditional monk's headpiece. Item 1188 wears a single green cross earring in their left ear, as well as a silver chain necklace. Item 1188 is typically seen indulging in a cigarette.

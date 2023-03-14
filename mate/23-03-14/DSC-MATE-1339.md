@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1339
+Description: DSC-MATE-1339 is a male tiger whose physical appearance does not deviate significantly from that of a typical tiger. However, it has developed several distinct features including blue clown eyes, a red beanie on its head, a red scarf around its neck, and a candy stick in its mouth. While DSC-MATE-1339's physical features are noteworthy, it is its personality that truly sets it apart.

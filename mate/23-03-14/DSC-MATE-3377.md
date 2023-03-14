@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3377
+Description: DSC-MATE-3377 is a humanoid robot with a bucket hat for its head and a single green Cyclops eye. The robot stands approximately 2 meters in height and is equipped with various weapons and tools. DSC-MATE-3377 has shown an affinity for smoking cigarettes despite not requiring to do so.

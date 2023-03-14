@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2289
+Description: DSC-MATE-2289 is a male monkey with a set of unique physical characteristics. The subject is frequently seen wearing a doge hat and a jade earring, along with a bright red scarf and a whistle. DSC-MATE-2289 has the ability to speak several languages fluently, including English, Spanish, and French. Its voice is described as high-pitched and somewhat mischievous.

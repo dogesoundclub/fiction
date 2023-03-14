@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7674
+Description: DSC-MATE-7674 is a male news anchor robot with retro styling. It has one green cyclops eye and VR rainbow LED eyes. Its head is adorned with a retro cap, and it is often seen wearing a red scarf and smoking a cigarette.

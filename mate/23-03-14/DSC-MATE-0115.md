@@ -1,0 +1,2 @@
+ID # : DSC-MATE-115
+Description: DSC-MATE-115 is a human female with distinctive orange stripes on one side of her face and a red clown-style lips. She has bright red eyes with a slow blining rate, sometimes up to 15 minutes, and an orange side of the head. Her forehead features goggles that are eternally in dash. Her ears have a gold earring, and she wears a choker a lot. She is tall, standing at around 1.83 meters, and weighs 60 kilograms.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3398
+Description: Subject 3398 is a male human of unknown age and origin. The subject is distinguished by its orange striped facial features, adorned with a purple cap with a headset on top of the head, red victory band on the forehead, and goggles on the forehead. The subject's red clown eyes and jade earring are additional features. Subject 3398 is referred to as a "programmer" which is suspected to be a cover name for the activities it performs. 

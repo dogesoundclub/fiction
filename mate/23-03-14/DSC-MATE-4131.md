@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4131
+Description: Subject 4131 appears to be a male rabbit, standing approximately 2 feet tall on two legs. They possess a distinctive feature of blue clown-like eyes that have been observed to change color depending on the situation. They often don a police cap atop their head and a jade earring on one of their ears, adding to their eccentric appearance. They also wear a bright red scarf around their neck, which has been noted to have no practical use.

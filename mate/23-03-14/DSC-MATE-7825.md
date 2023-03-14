@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7825
+Description: DSC-MATE-7825 is a male human of average height and weight. It has a unique physical feature on its mouth in the form of a small, greenish-blue spot. DSC-MATE-7825's eyes are not organic in nature and appear to have been surgically implanted with modified VR Jade LEDs. They exhibit a noticeable amount of luminescence even in low light conditions. DSC-MATE-7825's hair is blonde, and it has a jade earring on its left ear. DSC-MATE-7825 also wears a normal gas mask and a gold chain around its neck.

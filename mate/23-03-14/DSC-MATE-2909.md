@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2909
+Description: 2909 appears to be a human female in her late 30s with distinctive features. She has 90s brown hair, a red lip, and VR jade LED eyes. 2909 is often seen wearing a gold earring and a choker, as well as smoking a cigarette. 

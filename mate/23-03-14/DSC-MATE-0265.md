@@ -1,0 +1,2 @@
+ID # : DSC-MATE-265
+Description: Subject 265 is a humanoid entity of the species Homo sapiens exhibiting unique facial and body features. The subject's face is highlighted by orange stripes and red lips, with blue clown eyes contrasting against their rainbow festival head. The subject's ears are decorated with a red cross earring, while their mouth is constantly covered by a medical mask.

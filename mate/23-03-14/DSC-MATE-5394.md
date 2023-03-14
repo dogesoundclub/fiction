@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5394
+Description: DSC-MATE-5394 is a female humanoid of average height and weight. DSC-MATE-5394 has a pink rabbit head with spots on its face, and purple lips. A pair of goggles is consistently seen resting on its forehead. It is capable of locomotion and speech which allowed interactions between itself and the Foundation's personnel. DSC-MATE-5394's profession is a mechanic, though the circumstances surrounding its imprisonment by the Foundation are unknown.

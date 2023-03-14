@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3127
+Description: Subject 3127 is a male monkey of an unknown species believed to have been subjected to magical experimentation. Its eyes resemble ski goggles, and it often wears a hooded jacket for unknown reasons. Subject 3127 is equipped with a whistle that it uses to manipulate the emotions of those around it.

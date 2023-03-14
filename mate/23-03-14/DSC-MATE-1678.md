@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1678
+Description: 1678 was a male tiger, with an unarranged green head and ski goggle eyes. The subject's most noticeable feature was a frightened mouth that gave the impression of anxiety and fear. On occasions, 1678 was observed carrying a candy stick as a talisman of sorts.

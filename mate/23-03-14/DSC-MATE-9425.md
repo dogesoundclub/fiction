@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9425
+Description: DSC-MATE-9425 is a human male of indeterminate age, measuring approximately 1.8 meters in height and weighing approximately 85 kilograms. DSC-MATE-9425 is notable for the numerous brown spots on his face and hands, and for his constant smile, which appears to be involuntary. DSC-MATE-9425's eyes are covered by a pair of ski goggles at all times, and he wears a pink cap on his head, parting on the left side. DSC-MATE-9425 sports a gold earring in his left ear, and is often seen wearing a red scarf and smoking a cigarette.

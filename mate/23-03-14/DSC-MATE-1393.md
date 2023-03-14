@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1393
+Description: Subject 1393 is a male monkey with piercing red clown eyes. He wears a retro cap and a gold chain around his neck. He often carries a candy stick, which he uses as a tool or a weapon in certain situations. 1393 displays a natural talent for leadership, often taking the role of the alpha figure in any given situation. 

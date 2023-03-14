@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9754
+Description: Subject 9754, also known as the Car Salesman, is a male rabbit standing at about 2 feet tall. He has two distinct physical features; his frightened mouth, which appears to be in a perpetual state of shock, and a police cap that tends to tilt to the left. His forehead features a two-color band, and he wears a jade earring on each ear. The Car Salesman is fond of accessorizing and is often seen wearing a red scarf around his neck and carrying a whistle.

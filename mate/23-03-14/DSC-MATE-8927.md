@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8927
+Description: Item 8927 is a humanoid robot standing at 1.83 meters tall, with a rounded head bearing a red alarm on the forehead. Item 8927's face features resemble that of a human, with a mouth perpetually frozen in a frightened expression. Its eyes are covered with nerd glasses that are found to be purely for aesthetic purposes.

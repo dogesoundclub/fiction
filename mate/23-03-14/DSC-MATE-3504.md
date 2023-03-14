@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3504
+Description: DSC-MATE-3504 is a human female of average height and weight, with a distinct feature of dark spots covering her face. DSC-MATE-3504's appearance is further distinguished by her purple lips and orange eyebrows that contrast with her otherwise unremarkable skin tone.

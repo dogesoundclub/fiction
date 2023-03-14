@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8523
+Description: Subject 8523 is a human female with distinctive purple lips and spotted face. Their head is adorned with two distinctive pigtail braids and they wear a green cross earring on each ear. They are typically seen wearing a silver chain.

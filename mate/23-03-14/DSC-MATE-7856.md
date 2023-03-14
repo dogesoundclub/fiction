@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7856
+Physical Description: The Striped Enforcer stands at an unassuming 5'6", with short hair the color of a summer sunset. Her most noticeable feature, however, is the bright orange stripes that streak across her face, standing out like garish war paint. Her ears are adorned with a pair of red cross earrings, nearly as bold as her stripes. She often wears a leather choker around her neck, adorned with a small silver charm in the shape of a wolf's head.

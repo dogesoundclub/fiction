@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2214
+Description: Subject 2214 appears to be a female human, but with several anomalous features. Notable physical features include orange stripes on the face and a head resembling that of a pink rabbit. The eyes of Subject 2214 are blue and appear to be similar to clown makeup. A set of goggles rests on the forehead, while a red cross earring serves as the primary ear accessory. The subject also wears a choker as an accessory.

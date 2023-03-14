@@ -1,0 +1,2 @@
+ID # : DSC-MATE-458
+Description: DSC-MATE-458 appears to be a normal, bipedal monkey of the genus Macaca, with a penchant for fancy attire. The subject is frequently seen wearing a red scarf and jade earring on their left ear, along with a pair of nerd glasses perched on their nose. DSC-MATE-458 is capable of speaking fluent english, and behaves in a highly articulate and intelligent manner.

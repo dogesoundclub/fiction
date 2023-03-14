@@ -1,0 +1,2 @@
+ID # : DSC-MATE-701
+Description: DSC-MATE-701 is a seemingly normal human male, approximately 27 years old, standing at 5'9". However, he possesses highly abnormal cybernetic eyes that emit a variable, rainbow-colored light. DSC-MATE-701's head is covered by a blue bandana, and it wears a jade earring in one ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8031
+Description: DSC-MATE-8031 is a human female with a distinctive purple lip. She wears normal glasses for vision correction, but the rest of her head is that of a pink rabbit. DSC-MATE-8031 has a two-color band on her forehead and jade earring ears. She is often seen wearing a silver chain and an LED gas mask.

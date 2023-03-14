@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5930
+Description: Subject 5930 is a male monkey, standing approximately 3 feet tall when upright. Their physical appearance is otherwise unremarkable, save for a perpetually frightened expression on their mouth. The subject is often seen wearing a hoodie, which they use to cover their head in moments of extreme stress.

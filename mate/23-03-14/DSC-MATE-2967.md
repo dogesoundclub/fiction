@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2967
+Description: 2967 is a human female with a unique appearance. She has numerous spots all over her face that grant her an exotic look. Her eyes are a shocking shade of orange with matching eyebrows, and her head is adorned with a rainbow festival-style wig. On her forehead rests a pair of goggles, and she wears a medical mask over her mouth. Additionally, she has a choker around her neck.

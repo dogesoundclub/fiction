@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7086
+Description: Subject 7086 is a Tigroid Felis Sapiens of adult age, measuring approximately 8 feet tall from head to toe. They possess a coat of soft, golden fur with black stripes, and their eyes are an ominous red, resembling those of a clown. The subject is always seen wearing a red beanie on their head, adorned with a silver chain around their neck, and constantly carries a cigarette in their mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6088
+Description: DSC-MATE-6088 is a female human with orange stripes on their face and purple lips. Their eyes resemble those of a clown, being blue and oversized. DSC-MATE-6088's head resembles that of a 00's schoolgirl. Their forehead has a two-color band above their eyes, and they wear green cross earrings. They wear a choker accessory around their neck.

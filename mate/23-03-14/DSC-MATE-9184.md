@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9184
+Description: DSC-MATE-9184 is a humanoid of the male gender belonging to the Homo sapiens species, with distinctive facial features of multiple spots and a frightened mouth. The subject also possesses blue clown eyes and a doge hat on the head, with a two-color band on the forehead and a green cross earring on the ears. The subject is always seen holding a candy stick as an accessory.

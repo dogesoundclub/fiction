@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5957
+Description: Subject 5957 is a human male who displays distinct augmentations in their eyes, emulating the appearance of Jade LED. The individual is commonly seen wearing a Short Peak Cap along with a Green Cross earring on each earlobe. Additional accessories include a Silver Chain and a candy stick.

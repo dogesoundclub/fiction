@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8074
+Description: Item #8074 is a male tiger that appears to have the unusual ability to understand and empathize with the emotions of others. Its head is covered in a green fur that is not arranged and seems to be shaggy in appearance. It has jade earrings attached to its ears, as well as a gold chain necklace around its neck. An unusual feature is a candy stick it carries around in its mouth when it is content.

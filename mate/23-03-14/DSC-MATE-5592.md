@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5592
+Description: Item 5592, also known as "Mechanic", is a robotic entity with a male humanoid appearance. It is approximately 6 feet tall and weighs 200 pounds. Its head is adorned with a purple cap and headset, with a silver chain draped around its neck. On its forehead, it has a set of goggles. The most prominent feature of Item 5592 is its green cyclops eye, which is made of an unknown material and appears to be its primary mode of vision. Its eyes are VR jade LED.

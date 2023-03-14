@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4827
+Description: DSC-MATE-4827 is a humanoid female with purple lips, orange eyebrows, and head covered in metal blue hair. DSC-MATE-4827 wears a silver chain around her neck and a pair of jade earrings. On DSC-MATE-4827’s forehead there is a two-color band. DSC-MATE-4827’s most distinctive feature is its ability to create and control a synthetic metal known as DSC-MATE-4827-A through an unknown process. 

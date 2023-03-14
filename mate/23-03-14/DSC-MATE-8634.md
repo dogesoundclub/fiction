@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8634
+Description: DSC-MATE-8634 appears as a male monkey species with normal glasses and a doge hat on its head. It has a unique 2 color band on its forehead and wears a gold earring in each ear as well as a silver chain around its neck. In addition, DSC-MATE-8634 carries a metal gas mask as a precautionary measure.

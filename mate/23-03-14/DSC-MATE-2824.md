@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2824
+Description: Item 2824, also known as "The Mechanic," is a male tiger standing at approximately 6 feet tall when on two legs. The subject's head is not arranged in the usual way a tiger's head would be, and it has a green tint to it. Item 2824 is easily recognized by the red cross earring on each ear, and the gold chain necklace around its neck. 

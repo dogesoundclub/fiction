@@ -1,0 +1,2 @@
+ID # : DSC-MATE-503
+Description: DSC-MATE-503 is a male monkey species, approximately 7 years old. It stands at 3 feet and weighs around 35 pounds. It wears brown nerd glasses on its eyes, a blue bandana on its head, and a jade earring on its right ear. It also has a habit of smoking cigarettes, after obtaining clearance to do so from personnel in Site-17.

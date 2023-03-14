@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5860
+Description: Item 5860 is a male rabbit seemingly at the age of 27, stands at 5.5ft, and with bluish-grey fur. A blue bandana has been found wrapped tightly around the subject's head, one silver chain, and an LED gas mask that is attached to the chain. The origin of these accessories has yet to be discovered. The eyes of the subject remain unknown due to the constant use of the LED gas mask, masking the wearer's face.

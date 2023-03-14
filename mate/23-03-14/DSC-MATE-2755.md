@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2755
+Description: DSC-MATE-2755 is a male Siberian tiger with an unusual interest in creative arts. It appears to be highly intelligent and loves to play both mentally and physically stimulating games. DSC-MATE-2755 is often seen wearing a red beanie hat and a red cross earring in its left ear. In addition, DSC-MATE-2755 wears an LED-gas mask as an accessory in order to express its individuality.

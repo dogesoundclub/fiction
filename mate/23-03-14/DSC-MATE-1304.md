@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1304
+Description: DSC-MATE-1304 is a male monkey that appears to be a hybrid of several primate species. DSC-MATE-1304 displays unusual anatomical features such as ski goggle eyes and a retro cap. DSC-MATE-1304 also has a gold earring on one of its ears.

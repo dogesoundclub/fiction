@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6398
+Description: DSC-MATE-6398 is a male rabbit of unknown age, standing at approximately 60 cm tall on its hind legs. It has a white fur coat and wears a police cap and a jade earring in its left ear, which mystifies researchers as to what his motives may be. DSC-MATE-6398 is known for its very organized planning and spontaneous side, which can lead to bouts of panic and amusement.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5609
+Description: Subject 5609 appears to be a male monkey with blue clown eyes and typical black hair. It wears a gold chain around its neck and carries a candy stick at all times. Despite its animalistic appearance, subject 5609 displays a higher level of intellectual curiosity than a typical monkey or non-human primate.

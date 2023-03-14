@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6256
+Description: DSC-MATE-6256 is a Caucasian male in his mid-thirties, measuring 1.8 meters in height and weighing approximately 86 kilograms. The subject presents normal human physiology, except when it comes to its sensory organs, specifically its eyes. DSC-MATE-6256's eyes display a unique blue coloration that resembles that of clown makeup.

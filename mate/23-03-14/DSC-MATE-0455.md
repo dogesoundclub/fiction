@@ -1,0 +1,2 @@
+ID # : DSC-MATE-455
+Description: Subject 455 appears to be a human male in his late thirties. He wears a retro cap and a gold earring in his left ear. He can often be seen wearing a silver chain around his neck. His most noticeable feature is a perpetually frightened expression on his mouth. However, his demeanor belies his appearance. Subject 455 has a strong sense of independence and is resistant to authority or rules that he deems unnecessary. This can result in some rebellious behavior such as taking unauthorized leave or leaving the office early.

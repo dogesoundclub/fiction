@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5142
+Description: DSC-MATE-5142 is a humanoid female, standing approximately 1.72 meters tall and weighing approximately 68 kilograms. DSC-MATE-5142's most notable features include blue clown eyes and a red lip, both of which stand out against its otherwise unremarkable physical appearance. DSC-MATE-5142 typically wears a hooded sweatshirt and a choker, and is known to exhibit a stubborn personality. 

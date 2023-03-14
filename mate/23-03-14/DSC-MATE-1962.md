@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1962
+Description: DSC-MATE-1962 is a robot Traffic Officer with a green Cyclops eye and a frightened mouth. Its eyes resemble ski goggles, and it wears a red beanie on its head along with a red cross earring in each ear. DSC-MATE-1962 is often seen wearing a red scarf and a gas mask, although the gas mask is not necessary for its functioning.

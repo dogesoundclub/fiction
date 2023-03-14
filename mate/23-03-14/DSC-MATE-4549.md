@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4549
+Description: Item 4549 is designated as a sentient fire-fighting robot of male gender with a green hair on his purple cap. The robot wears a medical mask over his mouth and a red scarf as an accessory. He has been programmed with a natural charm and charisma that can make him the life of any party. Item 4549 loves to crack jokes and perform silly dances to make others laugh.

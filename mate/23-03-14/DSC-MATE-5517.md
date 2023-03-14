@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5517
+Description: DSC-MATE-5517 is a human female identified as a veterinarian by profession. The subject is easily identifiable by several distinct physical features, including a purple cap with a headset, orange eyebrow eyes, and a medical mask. The subject also wears a silver chain as an accessory and has a red cross earring on both ears.

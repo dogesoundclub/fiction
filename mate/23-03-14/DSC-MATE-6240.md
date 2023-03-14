@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6240
+Description: DSC-MATE-6240 is a male Siberian Tiger, measuring 9 feet in length and weighing over 900 lbs. DSC-MATE-6240 exhibits an unusually frightened mouth and wears horned rim glasses. It also has a green head, with a goggle attached to its forehead, jade earring on its left ear, and silver chain around its neck.

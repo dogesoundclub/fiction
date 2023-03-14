@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1851
+Description: DSC-MATE-1851 is a human female, standing at 5'6" with a slender build. They possess distinctive spots on the face and exhibit a friendly smile. DSC-MATE-1851 possesses a pair of normal glasses, green cross earring-shaped ears, and is habitually observed to be wearing a gold chain.

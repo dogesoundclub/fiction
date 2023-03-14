@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7566
+Description: Item 7566, also known as "The Caretaker," is a human male standing at 6 feet 1 inch tall with a muscular build. His head has a distinctive purple metallic finish, with a VR Jade LED eye implant and a goggle attached to his forehead. He wears a medical mask over his mouth and has a metallic spot on his lips, referred to as the "Mouth Spot." Item 7566 wears a gold earring and a silver chain around his neck.

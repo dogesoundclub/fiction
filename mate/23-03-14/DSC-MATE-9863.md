@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9863
+Description: DSC-MATE-9863 is a male member of the genus Macaca Fascicularis, otherwise known as the Long-Tailed Macaque. DSC-MATE-9863's physical appearance is mostly unremarkable from other members of its species, save for the presence of a pair of normal glasses over the eyes and a goggle placed on the forehead. DSC-MATE-9863 has also been observed wearing a gold earring on the left ear, a silver chain, and an LED gas mask as accessories.

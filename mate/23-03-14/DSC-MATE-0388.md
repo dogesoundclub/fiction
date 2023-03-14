@@ -1,0 +1,2 @@
+ID # : DSC-MATE-388
+Description: Agent 388 is a female human with striking and unusual features. Her face is adorned with orange stripes, and her lips are a bold red. Her eyes are equipped with VR Rainbow LED technology, giving her a distinct appearance that sets her apart from other humans.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5012
+Description: Subject 5012 is a male tiger, standing at 1.8 meters tall and weighing approximately 200 kilograms. Their face features a constant expression of fear and anxiety, often accentuated by their open, trembling mouth. Subject 5012 is known for wearing a simple grey hoodie over their striped fur, with a red scarf hanging loosely around their neck. Their mouth is almost always covered by a white surgical mask, further increasing the uneasy feeling that emanates from the subject.

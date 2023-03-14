@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3684
+Description: DSC-MATE-3684 is a real estate agent robot classified as a Euclid entity due to its unpredictable behavior patterns. It is characterized by its green cyclops eye and frightened mouth feature, as well as its VR jade LED eyes, medical mask mouthpiece, and hoodie head. DSC-MATE-3684 carries a silver chain accessory around its neck.

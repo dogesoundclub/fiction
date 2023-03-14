@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3642
+Description: DSC-MATE-3642 is a male Rabbit of unknown origin, standing approximately 30cm in height. DSC-MATE-3642 exhibits an unusual ability to control and command illicit organizations and criminal syndicates. It has been determined that DSC-MATE-3642 is capable of gaining substantial amounts of wealth and resources through its influence over these organizations, which are primarily focused on illicit activities such as gambling, drug trafficking, and extortion.

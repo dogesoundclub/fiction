@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7136
+Description: DSC-MATE-7136 is a human male, approximately 35 years of age. They stand at 180 cm in height and weigh 76kg. They have blue clown eyes that are the result of a genetic mutation, which has no negative effect on their vision or overall health. DSC-MATE-7136 is often seen wearing a police cap and a goggle on their forehead. They also sport a green cross earring on their left ear and smoke cigarettes throughout the day.

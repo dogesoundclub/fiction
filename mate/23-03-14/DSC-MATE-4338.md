@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4338
+Description: 4338 is a male monkey of unknown origins. The subject possesses VR Rainbow LED eyes and sports a purple cap with a headset, a red scarf, and a cigarette. 4338's physical appearance is unique, with no known similar creatures on record.

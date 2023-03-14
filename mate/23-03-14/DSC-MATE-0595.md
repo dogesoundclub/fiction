@@ -1,0 +1,2 @@
+ID # : DSC-MATE-595
+Description: DSC-MATE-595 is a male rabbit who exhibits remarkable intelligence and remarkable curiosity. He works as a programmer and is responsible for developing highly advanced software systems. His eyes resemble a pair of ski goggles, while his ears are adorned with a gold earring. He wears a silver chain around his neck and an LED gas mask over his face.

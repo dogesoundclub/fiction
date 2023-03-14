@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5732
+Description: DSC-MATE-5732 is a male simian of the species Macaca fuscata, commonly known as the Japanese macaque. Subject stands approximately 1 meter tall and weighs roughly 10 kilograms. DSC-MATE-5732 possesses blue clown eyes and a distinctive bucket hat atop its head. A gold earring is visible in its left ear, and it is frequently adorned with a gold chain and candy stick.

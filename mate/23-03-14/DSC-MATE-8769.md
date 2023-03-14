@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8769
+Description: DSC-MATE-8769-S is a humanoid rabbit, standing approximately 1.2 meters tall. Its features include a frightened mouth, a bucket hat atop its head, and a 2 color band on its forehead. DSC-MATE-8769-S also possesses a solid gold earring in each ear, a gold chain around its neck, and frequently carries a cigarette on its person.

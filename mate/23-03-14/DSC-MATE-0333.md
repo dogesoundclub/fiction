@@ -1,0 +1,2 @@
+ID # : DSC-MATE-333
+Description: DSC-MATE-333 is a male human politician with a distinctive appearance featuring spots on their face. DSC-MATE-333 has blue clown eyes, often shrouded by a police cap, and they always wear a red scarf and smoke a cigarette. Despite engaging in human-like behavior, DSC-MATE-333 has displayed a tendency towards analytical and logical thinking, often resulting in humorous debates over trivial topics.

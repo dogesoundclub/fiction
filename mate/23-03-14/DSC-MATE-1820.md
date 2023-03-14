@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1820
+Description: DSC-MATE-1820 is a human male with a normal blonde haircut and jade earrings. He has a noticeable spot on his mouth, which is often accompanied by a frightened expression. Despite not displaying any anomalous properties, DSC-MATE-1820's empathetic and compassionate nature and tendency to take on others' problems as his own have deemed him worthy of containment.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9677
+Description: DSC-MATE-9677 is a female human with distinct orange stripes on its face and red lips. Its eyes are augmented with VR Rainbow LED technology, providing a holographic effect. DSC-MATE-9677 wears a bucket hat, a silver chain, and is often seen smoking a cigarette.

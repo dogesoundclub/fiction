@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8444
+Description: DSC-MATE-8444 is a male human with spotted facial features. The subject stands at 1.8 meters tall, and their weight is consistent with the average human male. DSC-MATE-8444 has been reported to have an affinity for creative pursuits such as painting, drawing, and creative writing. The subject exhibits exceptional creativity and artistic skill, and is particularly adept at expressing themselves through various forms of media.

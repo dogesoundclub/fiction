@@ -1,0 +1,2 @@
+ID # : DSC-MATE-354
+Description: Subject 354 is a young Caucasian female with striking orange stripes on her face and red lips. Her eyes are a piercing shade of blue, reminiscent of a clown's, which may be related to her tendency to make people laugh with her spirited energy. Subject 354's head is unique with a set of wings that grow directly from her skull.

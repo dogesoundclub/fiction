@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5006
+Description: Item 5006, also known as the "Fashion Designer", is a human female of approximate age between 25-30 years and stands at 5'6" in height. The most distinctive features of Item 5006's appearance are the orange stripes on their face, purple lips, and orange eyebrows. Their hair is styled in pig tails and they frequently wear a pair of goggles on their forehead.

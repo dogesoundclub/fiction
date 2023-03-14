@@ -1,0 +1,2 @@
+ID # : DSC-MATE-453
+Description: DSC-MATE-453 appears as a humanoid robot, standing at 5'10". Its most distinctive feature is its large, green cyclops eye located in the center of its face. DSC-MATE-453 also wears a pair of nerd glasses over its other eye, and its head is adorned with green hair in a purple cap. A goggle is always fastened on its forehead, and a red cross earring can be seen dangling from each ear. DSC-MATE-453 is often seen wearing a red scarf around its neck, which it claims is a symbol of solidarity and resistance.

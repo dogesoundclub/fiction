@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8661
+Description: DSC-MATE-8661 is a humanoid entity appearing to be a human female of approximately 28 years of age. DSC-MATE-8661 possesses striking traits such as red clown-like eyes, a rainbow-colored head, and a medical mask covering her mouth. Other noticeable features include a two-color band on her forehead, and a choker worn around her neck.

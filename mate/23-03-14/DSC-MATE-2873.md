@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2873
+Description: Subject 2873 is a human male delivery driver with distinct facial features. The subject is known to have a contagious smile, which can be seen even under his police cap. His blue clown eyes stand out, especially with the orange stripes on his face. Subject 2873 also wears a gold earring in his right ear and a red scarf as an accessory.

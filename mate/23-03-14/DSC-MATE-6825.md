@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6825
+Description: DSC-MATE-6825 is a male rabbit of the species Oryctolagus cuniculus. They stand at 120cm tall and weigh approximately 60kg. DSC-MATE-6825 wears horned rim glasses and a doge hat on their head. They also have a 2 color band on their forehead, jade earrings on their ears, and a silver chain around their neck. DSC-MATE-6825 is often seen smoking a cigarette.

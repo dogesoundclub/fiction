@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4481
+Description: Subject 4481 is a female human, approximately 25 years old. They have several distinctive physical features, including spots on their face and purple lips, which are believed to be cosmetic in nature. Subject 4481 is commonly seen wearing normal glasses, a tiara on their head, and a jade earring on one ear. They also wear a choker as an accessory.

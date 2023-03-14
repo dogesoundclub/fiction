@@ -1,0 +1,2 @@
+ID # : DSC-MATE-174
+Description: Officer 174 is a female human police officer with a distinct appearance. She has orange eyebrows and wears a rainbow festival styled headdress. She also has a two-color band on her forehead and a green cross earring on each ear. Officer 174 frequently wears a medical mask and a choker necklace as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7515
+Description: DSC-MATE-7515 is a male human of African American descent, standing approximately 6 feet tall. His most notable characteristic is a proliferation of dark spots covering his face, arms, and legs, along with a frightened mouth. His eyes are that of a clown, appearing red and distorted. DSC-MATE-7515 wears a blue bandana on his head and a pair of goggles on his forehead. A green cross earring adorns his left earlobe, and he typically wears a gold chain and a cigarette in his mouth.

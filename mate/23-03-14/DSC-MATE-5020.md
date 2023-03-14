@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5020
+Description: DSC-MATE-5020 is a male member of the species Oryctolagus cuniculus or common rabbit. Its eyes are currently unknown due to DSC-MATE-5020's refusal to open them when being observed. DSC-MATE-5020 wears a Doge hat on its head, with a red victory band across its forehead and a gold earring. It is often seen wearing a gold chain around its neck. DSC-MATE-5020 works as a farmer in a small village located in █████████, France.

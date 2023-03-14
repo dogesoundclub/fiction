@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6151
+Description: DSC-MATE-6151 is a male human of African descent aged 42 years. DSC-MATE-6151 wears a bucket hat and has a goggle over his forehead, commonly seen wearing a gold chain necklace and an LED gas mask. The most notable feature of DSC-MATE-6151 is a spot on its mouth that appears as a dark patch.

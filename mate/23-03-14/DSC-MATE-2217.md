@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2217
+Description: Item 2217 is a male robotic firefighter. Its eyes are in the shape of ski goggles and its head is adorned with a short peak cap. Its ears are decorated with a jade earring and it wears a red scarf as an accessory. Item 2217 has a humanoid shape and is five feet, six inches in height; however, its body is made of reinforced metal for increased durability during firefighting efforts.

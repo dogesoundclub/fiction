@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1286
+Description: DSC-MATE-1286 is a male monkey of the genus Cercopithecus. It stands approximately 45 cm tall, with a weight of 8 kg. DSC-MATE-1286 wears a bucket hat, a red scarf, and a gas mask. It has a gold earring in its left ear. DSC-MATE-1286 demonstrates a frightened mouth expression as its default neutral expression.

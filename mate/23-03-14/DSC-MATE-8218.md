@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8218
+Description: Subject 8218 is a human female of average height and build. They have a pleasant countenance and a friendly smile, which have made them a popular stylist among mortals and supernaturals alike. Their eyes are framed by normal-looking glasses, which they wear to counter a mild astigmatism. Subject 8218 sports a red cross earring on their left ear, which they claim has significant personal meaning.

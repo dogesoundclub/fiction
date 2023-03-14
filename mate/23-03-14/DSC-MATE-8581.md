@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8581
+Description: DSC-MATE-8581 is a sapient rabbit of the species Oryctolagus cuniculus, standing at 1.2 meters tall. Its eyes are fitted with VR Rainbow LED technology, and it wears a bucket hat as its headpiece. DSC-MATE-8581's ears sport a gold earring and a silver chain serves as a necklace accessory.

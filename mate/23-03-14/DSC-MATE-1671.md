@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1671
+Description: DSC-MATE-1671 appears to be a human male in his late 30s. DSC-MATE-1671 has orange stripes on his facial features and wears retro glasses and a cap. Strangely, DSC-MATE-1671's glasses appear to have an anomalous property that helps DSC-MATE-1671 understand highly complex electrical systems seemingly at will.

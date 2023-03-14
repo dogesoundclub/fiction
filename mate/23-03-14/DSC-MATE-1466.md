@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1466
+Description: DSC-MATE-1466 is a human female with multiple spots on her face arranged in a random pattern, paired with bright orange eyebrows and red lipstick, giving it a distinct and unusual appearance. DSC-MATE-1466 usually wears a hoodie with a silver chain around her neck and is often seen smoking a cigarette.

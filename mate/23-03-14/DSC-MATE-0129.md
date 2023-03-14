@@ -1,0 +1,2 @@
+ID # : DSC-MATE-129
+Physical Description: Traffic Officer 129 has spots on their face, complimented by a peaceful smile. They wear normal glasses and a retro cap adorns their head. Jade earrings are present in their ears and a choker is worn as accessory around the neck.

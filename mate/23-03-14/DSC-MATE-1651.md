@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1651
+Description: DSC-MATE-1651 is a human female in her mid-30s with distinctive facial features. She has a series of black spots on her face, with purple lipstick that complements her 90s-style brown hair. Her forehead has a two-color band and a pair of goggles resting on top. She is often seen wearing a choker around her neck.

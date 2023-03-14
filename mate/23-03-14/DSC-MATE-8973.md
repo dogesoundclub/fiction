@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8973
+Description: DSC-MATE-8973 is a humanoid robot designed to mimic the appearance of a human police officer. It stands approximately 1.8 meters in height and weighs just over 150 kilograms. It is outfitted with a LED gas mask that covers its face, horned rim glasses on its eyes, and a red cross earring on its left ear. The robot’s mechanical structure possesses a degree of flexibility that enables it to perform various forms of human-like locomotion.

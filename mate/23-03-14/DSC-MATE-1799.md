@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1799
+Description: Subject 1799 is a human female with metal blue hair and normal glasses. They are commonly seen wearing a gold chain and gold earrings. A notable feature is a two-color band on their forehead. Subject 1799 has a friendly smile, but their tendency towards strong organizational skills can make them appear bossy at times. They can be observed taking charge and delegating tasks to others in a matter-of-fact way.

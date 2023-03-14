@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7658
+Description: DSC-MATE-7658 appears to be a standard Traffic Officer, with the exception of their gold earring and horned rim glasses. DSC-MATE-7658's head is adorned with a police cap, and they are often seen with a cigarette in their mouth. DSC-MATE-7658 is a robot, and as such, does not require food or sleep.

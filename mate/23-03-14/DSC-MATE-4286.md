@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4286
+Description: DSC-MATE-4286 is a male rabbit of average size and weight. DSC-MATE-4286 exhibits two color band imprints on its forehead and adorned with a gold earring on each ear. It often wears a red scarf and an LED gas mask for personal reasons. DSC-MATE-4286 displays a high level of empathy and understanding for others, particularly those in pain or suffering. DSC-MATE-4286 may become emotionally affected to the point of tears or outbursts when witnessing others' distress. DSC-MATE-4286 also has a strong affinity for animals and nature.

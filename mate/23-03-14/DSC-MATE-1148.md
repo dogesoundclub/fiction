@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1148
+Description: DSC-MATE-1148 is a male human, appearing to be in his mid-30s with a charismatic personality. DSC-MATE-1148 is a Firefighter and is frequently seen around his containment unit dressed in a Hoodie with orange stripes on his face. He wears normal glasses over his Orange Striped eyes, which have been tested and show no anomalous features. 

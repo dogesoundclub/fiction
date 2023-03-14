@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9555
+Description: DSC-MATE-9555 is a human male with a unique appearance. Its face features include spotted skin and a clown mouth. Its eyes are blue clown eyes, which have demonstrated the ability to hypnotize individuals if prolonged eye contact is made. DSC-MATE-9555 often wears a short peak cap with a two-color band on its forehead, along with a green cross earring, gold chain, and candy stick.

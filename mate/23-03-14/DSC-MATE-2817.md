@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2817
+Description: DSC-MATE-2817, also known as "The Detail-Obsessed Firefighter", is a human male with distinctive markings on his face. His face is covered in spots and a permanent, almost eerie, smile. DSC-MATE-2817 also has unique features such as green layers on his head, jade earring in his ears, and a silver chain around his neck.

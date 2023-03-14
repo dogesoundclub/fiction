@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3695
+Description: Subject appears to be a male tiger in his mid-twenties. The subject wears horned rim glasses, a goggle on his forehead, a red cross earring in his left ear, and a red scarf around his neck. Subject's most peculiar trait is the LED gas mask he wears over his muzzle, which emits a soft blue light. The purpose of the mask remains unknown.

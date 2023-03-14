@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5431
+Description: DSC-MATE-5431 is a female human with the distinct feature of spots on her face and a smiling expression. DSC-MATE-5431's most notable characteristic is her jade LED eyes, which appear to be implanted or surgically modified. Her head is adorned with green hair in a purple cap, and she wears a red cross earring, a silver chain, and is often seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4139
+Description: DSC-MATE-4139 is a human male of unknown age, standing at 178cm tall and 65kg in weight. Its most notable feature are the orange stripes covering its face, which appear to have been painted on. In addition, DSC-MATE-4139 wears a monk's hood and a gold earring on its left ear. Its eyes are obscured by nerd glasses, and its mouth is always in a frightened expression.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7813
+Description: DSC-MATE-7813 is a female human identified as a mechanic. She sports a unique appearance with spotted facial features, orange eyebrows and wears a medical mask that covers her mouth. DSC-MATE-7813's head is covered by a blonde ushanka and her ears adorned with golden earrings. She wears a silver chain around her neck as an accessory.

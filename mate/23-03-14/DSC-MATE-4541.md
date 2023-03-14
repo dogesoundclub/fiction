@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4541
+Description: DSC-MATE-4541 is a robot of unknown origin, resembling that of a typical attorney, with a purple cap and a headset. DSC-MATE-4541 is 172 cm in height and weighs 65 kg. DSC-MATE-4541's most striking feature is its green cyclops eye, which takes up approximately a third of its face, giving it an intimidating appearance. DSC-MATE-4541 also has a frightened mouth and wears a red scarf and a normal gas mask for additional protection.

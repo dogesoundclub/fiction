@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8509
+Description: DSC-MATE-8509 is a human female with distinct physical abnormalities, including orange stripes and a purple lip. DSC-MATE-8509's hair is styled in an orange side, and she frequently adorns her forehead with goggles as well as gold earrings. DSC-MATE-8509 often carries a cigarette with her.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8153
+Description: Identified as a male monkey, 8153 presents a unique appearance, resembling that of a modern-day politician. The subject’s head is adorned with a purple cap and a headset attached to a communication device. Ski goggle-like eyes and gold earrings enhance the bizarre appearance of this anomalous creature. 8153 is frequently seen carrying a silver chain and a candy stick, which it is quick to offer to its visitors.

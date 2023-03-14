@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9612
+Description: DSC-MATE-9612 is a human female with unnaturally red clown eyes and a head resembling that of a pink rabbit. The subject possesses two color bands across their forehead, and a goggle rests on their forehead, seemingly for decoration rather than practical use. Their ears are adorned with gold earrings and their mouth is covered by a medical mask. DSC-MATE-9612 also wears a choker around their neck. 

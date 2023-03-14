@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3868
+Description: DSC-MATE-3868 is a human male of average height and build, with a striking appearance consisting of orange stripes adorning his face and pink hair that parts at the center. His most notable facial feature is a mouth that conveys a perpetual expression of terror. DSC-MATE-3868 bears distinct, vivid red eyes reminiscent of clown makeup, which appear to be of a biological nature.  

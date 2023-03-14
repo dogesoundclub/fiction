@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7393
+Description: DSC-MATE-7393 is a male robot species designed to resemble a human police officer. DSC-MATE-7393 stands at 6 feet tall and weighs approximately 375 pounds. It is equipped with a green Cyclops eye, located in the center of its head. Its eyes are covered with thick nerd glasses, and it has a black hoodie for a head, with a medical mask covering its mouth. DSC-MATE-7393 wears a silver chain around its neck, which is believed to be purely cosmetic.

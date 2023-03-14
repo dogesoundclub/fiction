@@ -1,0 +1,2 @@
+ID # : DSC-MATE-796
+Description: Subject 796 is a human male with distinct physical features. He has spots on his face and a smile that seems to be permanently etched onto his lips. His red clown eyes stand out from his face and add to the overall unsettling appearance. A peak spike protrudes from his head, resembling a horn of sorts. His medical mask covers all facial features except for his eyes, adding an air of mystery to the subject.

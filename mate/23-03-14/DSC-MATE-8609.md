@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8609
+Description: DSC-MATE-8609 is a human male, aged 32, standing at 1.8 meters tall. Their face is marked with prominent orange stripes, and they often appear with a frightened expression on their mouth. DSC-MATE-8609 is usually seen wearing a short peak cap and a medical mask covering their mouth, and has a green cross earring on their right ear. They also have a goggle on their forehead and a gold chain accessory around their neck.

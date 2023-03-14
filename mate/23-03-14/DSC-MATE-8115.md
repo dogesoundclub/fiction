@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8115
+Description: DSC-MATE-8115 is a male human with several unique physical features. Its eyes resemble ski goggles, positioned over the skin and functioning with no known mechanism of support. On its forehead, DSC-MATE-8115 wears a goggle uncovered at all times. DSC-MATE-8115 also has a jade earring attached to its left earlobe. During delivery shifts, DSC-MATE-8115 wears a medical mask to cover its mouth. DSC-MATE-8115 is often seen with a silver chain as an accessory.

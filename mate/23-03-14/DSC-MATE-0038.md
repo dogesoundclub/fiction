@@ -1,0 +1,2 @@
+ID # : DSC-MATE-38
+Description: Subject 38 is a human female with blue clown eyes and a unique fashion sense. The subject is often seen wearing a bucket hat, two-color band across her forehead, and a pair of goggles resting on her forehead. Her jade earrings and LED Gas Mask complete the ensemble, making the subject stand out in any social gathering.

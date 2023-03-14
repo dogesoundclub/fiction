@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8563
+Description: DSC-MATE-8563 appears to be a human female with orange stripes on her face and an orange side of her head. DSC-MATE-8563 is always seen wearing a medical mask over her mouth and a silver chain accessory around her neck. DSC-MATE-8563's job is as a theater manager, and she is known to be quite successful in this role.

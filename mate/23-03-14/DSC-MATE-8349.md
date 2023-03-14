@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8349
+Description: DSC-MATE-8349, also known as "The Rabbit", is a male bipedal rabbit of unknown origin. DSC-MATE-8349 is approximately 1.2 m in height and has a distinctive ski goggle-like eye covering. Its head is adorned with a red beanie and its ears are pierced with green jade earrings. DSC-MATE-8349 sports a silver chain around its neck that appears to be embedded into its skin, making it impossible to remove. DSC-MATE-8349 is known to carry a whistle with it at all times.

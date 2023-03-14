@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9900
+Description: DSC-MATE-9900 appears to be a male monkey with a frightened mouth as its main facial feature. Its eyes are modified ski goggles and its head is covered with a red beanie. DSC-MATE-9900 has a single jade earring on its left ear and a red scarf around its neck. DSC-MATE-9900 is often seen smoking a cigarette.

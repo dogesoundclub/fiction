@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5690
+Description: DSC-MATE-5690 appears as a male rabbit with VR rainbow LED eyes. Its head is adorned with green hair in a purple cap, as well as a goggle on its forehead and a jade earring on each ear. DSC-MATE-5690 also wears a silver chain and carries a whistle.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5607
+Description: DSC-MATE-5607 is a male rabbit standing at approximately 30 cm in height. DSC-MATE-5607's eyes are in the shape of ski goggles, which are believed to grant DSC-MATE-5607 night vision and thermal vision. DSC-MATE-5607 also wears a bucket hat and gold earring in their ears. They have a bright red scarf tied around their neck and a whistle hangs from their neck.

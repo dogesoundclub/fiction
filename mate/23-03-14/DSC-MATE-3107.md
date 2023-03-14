@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3107
+Description: Subject 3107 is a human male of average height and build with short brown hair and neatly trimmed facial hair. They are often seen wearing a short peak cap and nerd glasses, which they claim are necessary for their legal work. Subject 3107 has one jade earring in their left ear and is often seen wearing a red scarf. Their most unusual accessory is an LED gas mask, which they wear when they feel threatened or exposed to toxins.

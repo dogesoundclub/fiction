@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7764
+Description: Subject 7764, also known as "The Boss" in the criminal underworld, is a humanoid entity of the species Homo sapiens. The subject's appearance is adorned by a red beanie cap and a pair of jade LED eyes, which although aesthetically imposing, display limited variations in expressions. The subject appears to be in possession of a golden earring and carries a candy stick in his mouth, which displays a frightened expression.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3571
+Description: DSC-MATE-3571 is a human female, appearing to be in their late 20s. They have distinctive Orange Stripes on their face, which are naturally occurring. DSC-MATE-3571 also has purple lips, which appear to be from a cosmetic product. Their head lacks any type of arrangement and is dyed green. They require corrective lenses and wear normal glasses. DSC-MATE-3571's ears have a green cross earring. They also wear a gold chain and an LED gas mask as accessories. 

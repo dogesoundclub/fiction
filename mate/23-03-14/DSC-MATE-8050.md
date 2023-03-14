@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8050
+Description: DSC-MATE-8050 identifies as a human of the female sex. They have various features that make them stand out, most prominently a series of spots that cover their face. Their eyes are also unique as they are red clown eyes, which can make DSC-MATE-8050 appear intimidating to those who are not used to seeing them. DSC-MATE-8050's head is adorned with a retro cap and gold earrings decorate their ears.

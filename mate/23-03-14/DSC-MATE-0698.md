@@ -1,0 +1,2 @@
+ID # : DSC-MATE-698
+Description: DSC-MATE-698 is a human female, approximately 35 years old, and identifies as a banker. DSC-MATE-698 is known for her distinctive spotted facial markings and retro cap, which she is often seen wearing. DSC-MATE-698 also commonly wears normal glasses, a gold chain around her neck, and is often seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8700
+Description: 8700 was a humanoid entity identified as a human female in appearance. They worked as a real estate agent in the local community. Their most notable physical features were their red clown eyes and the LED headset they constantly wore. Attached to the headset was a pair of goggles which 8700 often wore on their forehead. Additionally, they also adorned a silver chain around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3617
+Description: DSC-MATE-3617 is a male monkey with a prominent gold chain and cigarette. It exhibits one additional face feature which is a permanently frightened mouth. DSC-MATE-3617 is known to wear a hoodie to conceal various objects it carries on its person.

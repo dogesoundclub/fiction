@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2420
+Description: DSC-MATE-2420 is a male human with nerd glasses and parted pink hair, and wears a jade earring on their left ear. DSC-MATE-2420 exhibits a strong sense of empathy and is often attuned to the emotions of others. Observations suggest that DSC-MATE-2420 can feel the emotions of others, which can lead to unusual situations. DSC-MATE-2420 has shown no signs of exhibiting any anomalous abilities.

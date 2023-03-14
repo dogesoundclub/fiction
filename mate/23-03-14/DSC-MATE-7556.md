@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7556
+Description: 7556 is a human male with the distinct feature of ski goggles for eyes, and a police cap for his head. The subject's mouth is always concealed by a medical mask, making communication challenging at times. Despite this, 7556 is a delivery driver by profession, and his services are highly sought after for their unparalleled efficiency.

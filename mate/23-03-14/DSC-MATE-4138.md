@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4138
+Description: DSC-MATE-4138 appears to be a normal human female with the exception of its green jade LED eyes and the goggle affixed to its forehead. DSC-MATE-4138's right ear is adorned with a Red Cross earring. DSC-MATE-4138 is employed as a news anchor, but its reporting often stretches beyond typical journalistic standards, with an emphasis on uncovering paranormal or anomalous events.

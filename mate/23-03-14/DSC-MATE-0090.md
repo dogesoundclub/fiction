@@ -1,0 +1,2 @@
+ID # : DSC-MATE-90
+Description: DSC-MATE-90 is a male robot with a singular, green cyclops eye and a constantly frightened mouth. Its eyes are made of a rainbow-colored LED display, and it wears a red cross earring in its left ear. It is often seen with a red scarf around its neck and a normal gas mask covering its face.

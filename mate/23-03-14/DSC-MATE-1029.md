@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1029
+Description: DSC-MATE-1029 is a human female of medium build, with blond hair and a peculiar feature of a wings protruding from its head. It always wears goggles on its forehead and an earring shaped like a green cross on its left ear. DSC-MATE-1029 is known to be a skilled mechanic, specializing in restoring and maintaining vintage automobiles.

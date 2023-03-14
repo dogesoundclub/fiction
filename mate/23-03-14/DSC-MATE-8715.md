@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8715
+Description: DSC-MATE-8715 is a male human with red clown eyes and a mouth spot. Its parted pink hair is often adorned with a silver chain, and it frequently wears a goggle on its forehead. DSC-MATE-8715's personality is characterized by a strong sense of duty and responsibility, but it also knows how to have fun.

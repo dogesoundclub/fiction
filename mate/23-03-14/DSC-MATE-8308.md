@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8308
+Description: DSC-MATE-8308 is a humanoid robot, resembling a middle-aged human male, with a green cyclops eye for a face feature. The robot's head is covered with a red beanie, and it wears a gold earring on its left ear. DSC-MATE-8308 also appears to have a gold chain around its neck.

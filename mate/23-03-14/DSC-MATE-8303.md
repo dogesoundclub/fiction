@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8303
+Description: DSC-MATE-8303 is a male humanoid with a constant smile on its face, though its demeanor quickly turns malicious once it begins to laugh. Its red clown eyes and parted pink hair make it easily identifiable, and it is often seen wearing a jade earring and an LED gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8492
+Description: DSC-MATE-8492 is a human male identified as a traffic officer for the city of [REDACTED]. DSC-MATE-8492 exhibits a permanent smile on his face and wears a doge hat on his head. DSC-MATE-8492's glasses appear to be normal prescription glasses. DSC-MATE-8492 is seen wearing a gold earring and a silver chain. DSC-MATE-8492 is frequently observed smoking a cigarette. 

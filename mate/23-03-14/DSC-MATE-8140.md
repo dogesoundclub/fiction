@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8140
+Description: DSC-MATE-8140 is a male monkey of the species Chlorocebus pygerythrus, standing at approximately 90 cm tall and weighing 15 kg. DSC-MATE-8140 displays remarkable intelligence, with the ability to understand and communicate in several human languages. They are also a certified veterinarian and have an extensive knowledge of biology and medicine.

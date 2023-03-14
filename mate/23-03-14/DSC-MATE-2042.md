@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2042
+Description: DSC-MATE-2042 is a male human with normal blonde hair and red clown eyes. DSC-MATE-2042 has a distinct mouth spot and a two-color band on his forehead. DSC-MATE-2042 is often seen wearing a red scarf and a green cross earring. DSC-MATE-2042 is also a smoker and can often be seen with a cigarette.

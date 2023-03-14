@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2932
+Description: DSC-MATE-2932 is a female human identified as a veterinarian, designated as Subject-2932. They possess an orange side hairstyle and a distinctive two-color band on their forehead. The subject also wears gold earrings and a choker as accessories. However, the most striking feature of DSC-MATE-2932 is their LED-powered gas mask, which they carry with them at all times. DSC-MATE-2932 has been observed to be extremely protective of their gas mask, and will react violently if it is removed from their possession.

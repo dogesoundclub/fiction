@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6207
+Description: DSC-MATE-6207 is a female human, aged 35, who works as a theater manager. Her facial features include multiple dark spots on her skin and bright red lips, accompanied by orange eyebrows. Her head is not arranged properly and is a green color. Her forehead has two different colored bands on it. She has gold earrings and a gold chain as accessories.

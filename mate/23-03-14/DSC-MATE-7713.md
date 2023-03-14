@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7713
+Description: DSC-MATE-7713 is a male rabbit with unusual physical features. It possesses eyes that resemble ski goggles, a head adorned with a doge hat, and ears adorned with a jade earring. Additionally, DSC-MATE-7713 typically wears a red scarf and a normal gas mask.

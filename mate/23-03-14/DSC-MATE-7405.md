@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7405
+Description: DSC-MATE-7405 is a human female and works as a real estate agent. Their physical features include spotted skin on their face, red clown eyes, a two-color band on their forehead, gold earring on their left ear, gold chain around their neck, and a cigarette between their lips. 7405 is known for having a great sense of humor and uses it to make others laugh, which sometimes leads to humorous scenarios. 

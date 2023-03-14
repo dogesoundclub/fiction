@@ -1,0 +1,2 @@
+ID # : DSC-MATE-708
+Description: DSC-MATE-708 is a male humanoid with average height and build. The subject is a fashion designer, and it is not known how they gained their designing skills. DSC-MATE-708's most unique feature is their VR Rainbow LED eyes. DSC-MATE-708 is usually seen wearing a blue bandana on their head, a gold earring in their left ear, a gold chain around their neck, and holding a cigarette.

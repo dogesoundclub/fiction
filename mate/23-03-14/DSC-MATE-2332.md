@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2332
+Description: DSC-MATE-2332 is a male human of average height and weight. Its face is marked with orange stripes, and it is always seen with a smile. DSC-MATE-2332's eyes are VR Rainbow LED and are always glowing. Its head is typically adorned with a short peak cap, and it wears a green cross earring in one ear.

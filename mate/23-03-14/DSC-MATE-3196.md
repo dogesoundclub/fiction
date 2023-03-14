@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3196
+Description: DSC-MATE-3196 is a male human with blue clown eyes, a frightened mouth, and a purple metal head. DSC-MATE-3196 wears a medical mask over their mouth and a red scarf around their neck. DSC-MATE-3196 has a goggle on their forehead at all times.

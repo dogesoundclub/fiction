@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3612
+Description: DSC-MATE-3612 is a robotic humanoid entity standing at approximately 1.9 meters in height. It appears to resemble a male humanoid figure, and is typically seen wearing a bucket hat and a silver chain necklace.

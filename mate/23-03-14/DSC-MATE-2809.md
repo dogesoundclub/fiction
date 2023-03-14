@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2809
+Description: Item 2809 is a human male with a normal blonde head and ski goggle eyes. The subject is often seen with a cigarette, and has a distinctive smile. Item 2809 has a strong sense of independence and may be resistant to authority or rules that they see as unnecessary. This can lead to some rebellious behavior, such as sneaking out of the office early or taking a day off without permission.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5661
+Description: Item 5661 resembles a fully grown male rabbit, standing at 18 inches tall, with a pair of red clown eyes that are unusual for his species. It wears a gold earring on its left ear and a silver chain around its neck. It is often seen holding a candy stick in its mouth. Its fur is white, slightly fluffy, and well-groomed. Despite its small size, this creature holds incredible physical strength that enables him to conduct his duties as a firefighter. 

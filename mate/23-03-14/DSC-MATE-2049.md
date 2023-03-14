@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2049
+Description: Subject 2049 is a male monkey who works as a fast food worker. It wears a bucket hat on its head and a jade earring on its left ear. It often wears a gold chain around its neck and smokes cigarettes.

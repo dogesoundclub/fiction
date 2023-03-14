@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8555
+Description: DSC-MATE-8555 is a human female of average build, standing at 170cm tall with metal blue hair and orange eyebrows. Their ears contain jade earrings, and they wear a silver chain as an accessory. DSC-MATE-8555's face features a pleasant smile, and their forehead exhibits a two-color band. DSC-MATE-8555 is identified as a banker in the general public.

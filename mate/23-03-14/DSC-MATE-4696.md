@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4696
+Description: Subject 4696 is a male human with bright orange stripes on his face, giving the appearance of a tiger. He has a disheveled head of hair that always seems to stand on end, colored in a sickly green hue. His red clown eyes give off an unsettling aura and his mouth is concealed by a medical mask, which is to remain on at all times.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8741
+Description: Subject 8741 stands at 5'7" tall, with a lean and toned physique. She has long brown hair from the 90s and a pair of VR Jade LED eyes. The subject's forehead features a goggle while an ear adorned with a Red Cross earring give off a unique personality. The subject can often be seen clutching onto a cigarette.

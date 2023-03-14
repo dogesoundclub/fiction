@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3574
+Description: Subject 3574 is a human male, with an unusual eye configuration resembling ski goggles. The subject often wears a traditional monk's hood covering the remainder of their face, obscuring any facial features. The ears are pierced with gold earrings and the subject often wears a silver chain around their neck. A cigarette is a must-have item for the subject, and they can often be seen smoking even in non-smoking locations.

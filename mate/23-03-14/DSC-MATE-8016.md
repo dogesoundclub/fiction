@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8016
+Description: DSC-MATE-8016 is a human female of Italian descent, commonly known as "The Orange Lady" among members of the criminal underworld. They are the leader of an organised crime syndicate and hold significant power and influence within their community.

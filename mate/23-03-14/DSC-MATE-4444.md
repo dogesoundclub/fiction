@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4444
+Description: DSC-MATE-4444 is a 32-year-old female of the Homo Sapiens species. DSC-MATE-4444 has red clown eyes, a red lip, a blonde head with an attached wing, and jade earrings. DSC-MATE-4444 is often seen smoking a cigarette and can be easily identified by her unique appearance.

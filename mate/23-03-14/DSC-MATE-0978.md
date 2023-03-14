@@ -1,0 +1,2 @@
+ID # : DSC-MATE-978
+Description: Officer 978 is a human female with distinctive features, including red lips and orange eyebrows. Officer 978 is often seen wearing a purple cap with a headset, gold earrings, a gold chain, and smoking a cigarette. These accessories are not anomalous but tend to draw attention to Officer 978. Officer 978's impulsiveness can sometimes result in amusement for those around them, but it can also lead to unpredictable situations.

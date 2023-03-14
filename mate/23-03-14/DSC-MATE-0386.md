@@ -1,0 +1,2 @@
+ID # : DSC-MATE-386
+Description: DSC-MATE-386 is a robotic traffic officer resembling a human male, standing at approximately 1.8 meters tall. Its eyes consist of horned rim glasses, while a goggle is affixed to its forehead. Additionally, DSC-MATE-386 wears a gold earring on its right ear and a medical mask over its mouth.

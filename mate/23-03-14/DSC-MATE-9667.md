@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9667
+Description: DSC-MATE-9667 is a humanoid robot with a male appearance and a bucket hat covering his rounded head. He is equipped with normal glasses, a medical mask over his mouth, a goggle on his forehead, and a gold earring dangling from each ear. The robot also wears a red scarf around his neck as an accessory. DSC-MATE-9667 appears to function in a similar manner to a human, and carries out its role as a theater manager with competence.

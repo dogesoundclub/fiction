@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8562
+Description: Subject 8562 appears to be a robotic humanoid, roughly six feet tall. Its main body is a sleek metallic frame, with limbs that end in supple, flexible pincers. Its spherical head, which resembles a bucket hat, houses a complex processor which powers its artificial intelligence capabilities. The head is also attached to a neck joint that allows it to swivel and tilt with precision.

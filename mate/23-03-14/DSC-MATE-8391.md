@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8391
+Description: DSC-MATE-8391 is a male human, aged 34 years old, with a distinctive mouth spot on the left side of his face. DSC-MATE-8391 commonly wears a medical mask to cover his mouth, and a purple cap with a headset. DSC-MATE-8391 also has a silver chain around his neck that he never removes.

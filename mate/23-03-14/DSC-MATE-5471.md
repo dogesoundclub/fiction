@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5471
+Description: DSC-MATE-5471 is a female human electrician of average height and weight. DSC-MATE-5471's physical appearance is distinguished by an orange side head and cross-shaped green earring on each ear. DSC-MATE-5471 typically wears glasses and a silver chain as accessories. DSC-MATE-5471 is observed to be a proficient electrician, and has been seen completing and repairing electrical setups quickly and with care.

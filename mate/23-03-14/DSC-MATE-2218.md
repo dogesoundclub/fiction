@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2218
+Description: 2218 appears to be a male monkey standing approximately 1 meter tall. The subject's blue bandana and silver chain are believed to be self-imposed accessories, although their significance is unclear. The subject's most notable feature is its permanently frightened mouth, which is believed to stem from a past traumatic experience. 

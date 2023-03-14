@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5090
+Description: DSC-MATE-5090 is a male monkey with a frightened mouth and normal glasses for eyes. The subject wears a hoodie over its head, as well as a red scarf and carries a whistle as accessories. DSC-MATE-5090 is a highly skilled beautician, often with a strong sense of duty and responsibility that can sometimes cause them to take on more than they can handle. This can result in humorous situations, such as being unable to fit all of their tasks into a single day or trying to carry too many things at once.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9349
+Description: DSC-MATE-9349 is a humanoid robot with a male programming. It stands at approximately 6 feet tall and weighs approximately 200 pounds. Its appearance is that of a police officer, complete with a blue bandana covering its head, and a medical mask covering its mouth. Its eyes are a pair of horn-rimmed glasses, and it sports a gold chain around its neck as an accessory.

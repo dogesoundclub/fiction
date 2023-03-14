@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5567
+Description: DSC-MATE-5567 is a human female with distinctive purple lips and spotted skin. Their eyes are orange with thick pointed eyebrows. DSC-MATE-5567 has long blonde hair and frequently wears an ushanka. A silver chain is often seen around their neck and they are regularly seen smoking cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8366
+Description: DSC-MATE-8366 appears to be a male rabbit of the Leporidae family. It stands at approximately 50cm tall and weighs 3.5kg. DSC-MATE-8366 is known to display a constant state of fear, characterized by a permanently widened mouth. It is often seen wearing a hoodie with a red scarf draped around its neck.

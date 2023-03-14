@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9084
+Description: DSC-MATE-9084 is a humanoid robot with a single green Cyclops eye, fashioned after a 1920s-era reporter. Its overall height is 183 cm, with a weight of 90 kg. It has a rainbow LED display for eyes, a red cross earring attached to its left earlobe, and always carries a cigarette in between two metallic fingers on its right hand.

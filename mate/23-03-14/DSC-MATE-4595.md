@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4595
+Description: Item 4595 is a bipedal robot, standing 6 feet tall, dressed in a red beanie, and sporting a single green cyclops eye. It has ski goggle eyes and a gold chain around its "neck," as well as an LED gas mask covering its "face." Item 4595 appears to be predominantly constructed from industrial-grade steel and carbon fiber composite materials, with copper and platinum wiring. Despite its construction, it displays a high level of agility and flexibility.

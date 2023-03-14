@@ -1,0 +1,2 @@
+ID # : DSC-MATE-341
+Description: DSC-MATE-341 appears to be a fully functioning robot with the appearance of a middle-aged male veterinarian. DSC-MATE-341 stands at 5'10" tall and weighs approximately 150 lbs. The robot wears a bucket hat on its head and gold earrings in its ears, and its eyes are obscured by a pair of normal glasses.

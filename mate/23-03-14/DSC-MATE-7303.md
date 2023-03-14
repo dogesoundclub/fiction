@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7303
+Description: Subject 7303 is a male rabbit believed to have been born in the late 1980s. Its eyes resemble ski goggles, and it has a red beanie on its head. The subject also has an earring made of jade and wears an LED gas mask as an accessory. Its personality has been described as highly analytical and logical, with a penchant for witty observations and dry humor.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1066
+Description: DSC-MATE-1066 is a male rabbit of the species Oryctolagus cuniculus. Their size and features are typical of the species but bear noticeable human influences, such as a retro cap and a jade earring. DSC-MATE-1066's mouth is often found in a frightened or nervous position, and their eyes take on the appearance of ski goggles. The entity carries a whistle as its primary accessory.

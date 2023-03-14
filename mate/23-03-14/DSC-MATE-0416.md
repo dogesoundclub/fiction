@@ -1,0 +1,2 @@
+ID # : DSC-MATE-416
+Description: DSC-MATE-416, known in the public as "Vito the Monkey," is a male monkey of unknown species. DSC-MATE-416 possesses a unique appearance with ski goggle-like eyes and a blue bandana on its head. It also wears a golden earring on its left ear. DSC-MATE-416 has demonstrated the ability to speak fluent Italian and has been identified as the current boss of the ██████ mafia family. 

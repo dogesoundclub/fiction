@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3636
+Description: DSC-MATE-3636 is of the human species, a female with distinct orange stripes on her face and a red lip. She possesses unique orange eyebrow eyes and can usually be found wearing a headset with LED light built into it. DSC-MATE-3636's forehead features a two-color band, and she is often seen smoking cigarettes and wearing a choker accessory. DSC-MATE-3636 tends to be nurturing and caring towards those around her, often behaving like a mother hen to her friends and family, which can create humorous situations.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-749
+Description: Subject 749 appears to be an average human male in his mid-thirties. Upon closer inspection, it becomes apparent that the subject possesses a unique set of features. The most striking of these is a prominent mouth spot, which is u-shaped and covers the entirety of his upper lip. In addition, his eyes are completely replaced by a set of jade LED screens, which constantly emit a faint green glow.

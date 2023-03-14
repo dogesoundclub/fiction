@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3218
+Description: DSC-MATE-3218 is a human male with a series of unique physical traits which make him easily identifiable. The most prominent feature being his spotted complexion and clown mouth. DSC-MATE-3218's eyes are blue and locked into a constant appearance of clown eyes, regardless of changes in gaze or emotion. 

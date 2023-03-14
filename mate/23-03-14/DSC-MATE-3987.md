@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3987
+Description: DSC-MATE-3987 is a humanoid individual of the female sex, with several distinctive features. They have orange stripes across their face, with purple lips and red clown eyes. DSC-MATE-3987's hair is dyed with a rainbow festival pattern, and they wear goggles on their forehead and a green cross earring on their left ear. They are often seen wearing a silver chain around their neck.

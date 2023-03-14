@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3349
+Description: Subject 3349 is a humanoid robot standing at 6'1'' in height and weighing approximately 180 lbs. The exterior of subject 3349 is made up of titanium alloy, and it boasts a mesmerizing emerald green Cyclops eye that illuminates in low light conditions. Its face features a breathing apparatus concealed behind a ski goggle, which enables it to operate efficiently in harsh environments.

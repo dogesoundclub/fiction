@@ -1,0 +1,2 @@
+ID # : DSC-MATE-877
+Description: Subject 877 is a human female approximately 1.7 meters tall. They have a distinctive pattern of spots on their skin and blue clown eyes that are usually covered with a set of goggles resting on their forehead. Their retro cap and green cross earring complete their unique appearance.

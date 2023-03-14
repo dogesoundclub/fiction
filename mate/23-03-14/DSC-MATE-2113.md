@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2113
+Description: DSC-MATE-2113 is a female human, approximately 45 years of age, with distinctive spots on her face and purple lips. DSC-MATE-2113's head is adorned with green hair in a purple hat, and her ears are pierced with jade earrings. The subject is known to carry around a cigarette as an accessory.

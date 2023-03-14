@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4554
+Description: DSC-MATE-4554 is a human male, approximately 37 years of age, and works as a car salesman. DSC-MATE-4554's most prominent facial feature is a spot on their mouth, which appears to be a birthmark. They are frequently seen wearing a green cross earring on their ears, and nerd glasses that hide their eyes. DSC-MATE-4554 often wears a short peak cap and can be found smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1604
+Description: DSC-MATE-1604 is a middle-aged human male, with a notable preference for wearing a hoodie and nerd glasses. DSC-MATE-1604 appears to be a veterinarian, specializing in the treatment of domestic animals. However, DSC-MATE-1604 displays a unique personality trait that is not commonly observed in other humans; extreme empathy.

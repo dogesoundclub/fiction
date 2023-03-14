@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3437
+Description: DSC-MATE-3437 is a female human politician who displays unusual physical features. Its face has orange stripes and purple lips with orange eyebrows. DSC-MATE-3437 wears a tiara on its head, and its forehead has a two-color band and a goggle for unknown purposes. The entity has red cross earrings and is often seen smoking a cigarette.

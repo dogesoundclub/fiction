@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5774
+Description: Item 5774 is a male monkey, standing at approximately 2 feet tall. It has been observed to wear horn-rimmed glasses, and to have an unarranged green head and a single gold earring in one ear. Item 5774 has shown a highly creative and artistic personality, using any available materials to express itself - this has included painting, drawing, writing, and other forms of self-expression.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-62
+Description: Subject 62 is a human female with bright blue clown eyes that have been the subject of much speculation. Their hair is styled in pig tails, giving them a youthful appearance that is at odds with their professional demeanor as a news anchor. Their forehead is adorned with a two-color band, and they sport a green cross earring on one of their ears.

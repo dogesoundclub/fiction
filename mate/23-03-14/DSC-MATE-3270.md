@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3270
+Description: DSC-MATE-3270 is a female human with several unusual physical features. They have small spots scattered across their face and wear red lipstick. DSC-MATE-3270's eyes are unnaturally large and have a bright red color, reminiscent of a clown's eyes. DSC-MATE-3270's head is that of a pink rabbit, and they have goggles on their forehead. They wear a choker and a normal gas mask.

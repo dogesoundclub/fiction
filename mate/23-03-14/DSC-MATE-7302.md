@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7302
+Description: DSC-MATE-7302 is a human male identified as a veterinarian by profession. He has several distinct facial features, including spots on his face, a wide and welcoming smile, and a pair of normal glasses. DSC-MATE-7302 is often seen sporting a green hoodie and a red scarf around his neck. A two-color band can be found on his forehead, though its purpose is unknown.

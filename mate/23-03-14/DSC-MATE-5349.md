@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5349
+Description: DSC-MATE-5349 is a humanoid rabbit of indeterminate age standing approximately six feet tall. DSC-MATE-5349's eyes are distinctively red clown eyes that cause mild hypnotic effects on anyone who makes direct eye contact. DSC-MATE-5349 is often seen wearing a purple cap with green hair, a red scarf, and an LED gas mask. DSC-MATE-5349 claims to be a theater manager, but the veracity of this claim is yet to be verified.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2247
+Description: Item 2247 appears as a male humanoid robot standing 1.80 meters tall. Its head is adorned with a purple cap with green hair sticking out of it. Its face features a single green cyclops eye and a frightened mouth. Item 2247 wears a gold earring on its right ear, a gold chain around its neck, and holds a cigarette in its hand.

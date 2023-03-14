@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1314
+Description: DSC-MATE-1314 is a male rabbit approximately 1.5 meters tall, dressed in a red retro cap and horned-rimmed glasses. It sports a jade earring and a gold chain necklace, as well as carrying a whistle at all times. DSC-MATE-1314 is capable of speech, and is fluent in several languages. Its voice is deep and authoritative, and it possesses excellent oratory skills.

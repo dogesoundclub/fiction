@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7581
+Description: DSC-MATE-7581 is a human male of average build and height. DSC-MATE-7581 is easily identified by his unique appearance as he has a rare mark on his mouth and red clown eyes. DSC-MATE-7581 has had his head replaced with metal purple, and he sports a jade earring on his right ear. DSC-MATE-7581 wears a silver chain and carries a candy stick with him at all times.

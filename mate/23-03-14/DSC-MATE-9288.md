@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9288
+Description: DSC-MATE-9288 is a human male with distinctive facial features including orange stripes and a permanent smile. DSC-MATE-9288's eyes are composed of VR jade LED lights and their head is adorned with a "Doge" hat. DSC-MATE-9288 also possesses green cross earrings, a gold chain, and a normal gas mask. It is unknown how DSC-MATE-9288 acquired these accessory items.

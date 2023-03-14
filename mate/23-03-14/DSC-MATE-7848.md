@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7848
+Description: Subject 7848 is a female human with blue clown eyes, a rainbow festival hair, and spots on her face. She is easily identifiable due to her infectious smile and the gold earrings she wears on her ears. Her most notable accessory is a gold chain she wears around her neck, which is believed to have no anomalous properties.

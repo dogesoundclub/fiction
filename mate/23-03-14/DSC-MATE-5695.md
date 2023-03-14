@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5695
+Description: DSC-MATE-5695 is a male Bengal tiger with jade earrings on its ears. It wears normal glasses and has a frightened mouth feature. Its head hair is not arranged and is green in color. It is usually found wearing a silver chain and smoking a cigarette. DSC-MATE-5695 has demonstrated a humanoid intelligence and the ability to communicate fluently in English.

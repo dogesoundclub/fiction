@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5578
+Description: Subject 5578 is a male monkey with a penchant for villainy. The subject possesses a highly developed sense of curiosity, manifested in an insatiable desire to explore and learn about the world around it. This curiosity often results in the subject engaging in a variety of reckless and dangerous activities, including the theft of valuable artifacts and the sabotage of scientific research projects.

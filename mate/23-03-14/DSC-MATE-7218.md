@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7218
+Description: 7218 is a male tiger of indeterminate age with a frightened mouth. Its head is not arranged green, and its ears are adorned with a jade earring. The creature carries a whistle with a length of cord around its neck as its favorite accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2711
+Description: Subject 2711 appears to be a male human with distinctive and unusual physical features. The subject has a dark spot on his mouth area, and his lips are arranged in a perpetual smile. Additionally, the subject's head shows layers of green coloration, and he typically wears a medical mask concealing his mouth.

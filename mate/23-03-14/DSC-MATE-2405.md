@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2405
+Description: DSC-MATE-2405 is a humanoid female of the species Homo sapiens with a height of 172 cm and a weight of 56 kg. The subject has spots covering their face, which is often accompanied by a friendly smile. DSC-MATE-2405 wears normal glasses and has blonde hair with a wing protruding from the head. DSC-MATE-2405 has green cross earrings and often wears a silver chain accessory. The subject is often seen smoking a cigarette.

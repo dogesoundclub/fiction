@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9417
+Description: DSC-MATE-9417 is a human female employed as a security guard at Site-██. Her most notable features include a purple lip, jade earring, and goggles on her forehead. DSC-MATE-9417's eyes are orange and her mouth is typically covered by a medical mask. She regularly wears a black choker as an accessory.

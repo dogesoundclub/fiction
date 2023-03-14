@@ -1,0 +1,2 @@
+ID # : DSC-MATE-770
+Description: DSC-MATE-770 is a Human female with an unusual appearance consisting of red clown eyes and green hair under a purple cap. Additionally, the subject wears a medical mask over their mouth and a goggle on their forehead. DSC-MATE-770 carries with her a silver chain as an accessory.

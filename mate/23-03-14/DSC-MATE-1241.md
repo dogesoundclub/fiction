@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1241
+Description: Subject 1241 is a male rabbit of unknown age, standing at 25cm in height. Its fur is an unremarkable moss green color, and it sports a set of large blue clown eyes. Most disturbing is the two-color band around its forehead and the jade earring attached to each ear. Subject 1241 also wears a gold chain on its neck. Despite its seemingly harmless appearance, Subject 1241 possesses a high level of intelligence and a natural charm that can make others easily drawn to them.

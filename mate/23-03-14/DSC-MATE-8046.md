@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8046
+Description: DSC-MATE-8046 is a male human, identified as the theater manager of a local establishment. Subject displays a unique series of physical features, including a distinct mark on their mouth area and a pair of glasses that are commonly associated with intellectuals. The subject is often found wearing a blue bandana atop their head and a medical mask over their mouth.

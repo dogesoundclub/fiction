@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9493
+Description: DSC-MATE-9493 is a human female of average height and weight, with red clown eyes and spots on her face. The subject wears a red lip and has an 00s school girl hairstyle. DSC-MATE-9493 possesses a forehead feature consisting of two different colored bands and red cross earrings.

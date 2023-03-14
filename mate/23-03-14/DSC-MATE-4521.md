@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4521
+Description: DSC-MATE-4521 is a male tiger that has been assigned the occupation of a police officer. DSC-MATE-4521 prefers to don a red beanie and a red cross earring, as well as a pair of horned rim glasses. Often, instances will also display a frightened mouth due to their underlying anxiety disorder.

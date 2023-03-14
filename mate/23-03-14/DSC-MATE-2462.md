@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2462
+Description: DSC-MATE-2462 is a female humanoid of average size, with a distinctive pink rabbit head and orange stripes on her face. DSC-MATE-2462's forehead features two evenly-spaced color bands, and her ears are adorned with a green cross earring. DSC-MATE-2462 often wears a standard traffic officer uniform, along with a gold chain and a normal gas mask, which it wears at all times.

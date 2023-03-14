@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6746
+Description: DSC-MATE-6746 is a human male and a renowned politician. He has a unique appearance with a metallic purple head, blue clown eyes, green cross earrings, and a red scarf. The subject's distinct mouth spot and persistent smile makes them easily recognizable in public eye.

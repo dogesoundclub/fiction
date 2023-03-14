@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7620
+Description: DSC-MATE-7620 appears to be an average human male in his mid-30s of average build and height. His most noticeable feature is a series of light-colored spots across his face. His head is completely purple and made of an unknown metal. The subject's eyes are a set of VR Rainbow LED's that appear to be able to function normally despite their abnormal appearance. DSC-MATE-7620's mouth is covered with a medical mask.

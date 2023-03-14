@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1413
+Description: DSC-MATE-1413 is a human male, visually identifiable by the presence of several spots on his face. Additionally, DSC-MATE-1413 has a frightened mouth and ski goggle eyes. His head is adorned with a peak spike and his ears are pierced with a green cross earring. DSC-MATE-1413 is often seen wearing a silver chain around his neck and carrying a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4642
+Description: DSC-MATE-4642 is a male human affiliated with the DogeSoundClub as a reporter. Its physical appearance is notable for the presence of spots on its face feature #1, a frightened mouth on its face feature #2, and bright red clown eyes. DSC-MATE-4642 has green hair and wears a purple cap with a two-color band on its forehead feature #1. It also bears a silver chain and a normal gas mask as accessories.

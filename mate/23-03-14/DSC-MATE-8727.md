@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8727
+Description: DSC-MATE-8727 is a human female of Caribbean descent, aged 29 years at the time of containment. DSC-MATE-8727 stands at 1.7 meters in height and weighs approximately 55 kilograms. Notable features include spots on her face and an infectiously warm smile. DSC-MATE-8727's head has a green coloration and is stylized with edge curls. DSC-MATE-8727 wears two notable accessories: a silver chain and a standard gas mask.

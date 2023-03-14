@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8615
+Description: DSC-MATE-8615 is a human female, with a bright smile and rainbow LED eyes. Their blonde hair features an abnormal wing-shaped protrusion, while a set of goggles is kept on their forehead. They are often seen wearing a red cross earring and a silver chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5265
+Description: DSC-MATE-5265 is a highly advanced robotic entity, resembling a humanoid male with a polished metal exterior. It stands at approximately 2.1 meters in height, and sports a police cap on its head, with a red scarf draped around its neck. Of note, DSC-MATE-5265 also wears a pair of regular glasses, and a gold earring is affixed to its left ear.

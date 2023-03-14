@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9655
+Description: DSC-MATE-9655 is a male tiger with green hair and a purple cap. It has VR Jade LED eyes and a frightened mouth expression. A goggle is worn on its forehead, and a red cross earring in one of its ears. DSC-MATE-9655 is often observed wearing a gold chain as an accessory.

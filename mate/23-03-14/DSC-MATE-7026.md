@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7026
+Description: 7026 appears to be a human female in her early thirties, measuring approximately 5'8" tall, with green hair that has an edge curl. She has orange eyebrow eyes and often wears a gas mask, which is not required for her survival. This gas mask serves as a precautionary measure for those who may come into close contact with her. She is often seen wearing a gold earring on her left ear and a silver chain.

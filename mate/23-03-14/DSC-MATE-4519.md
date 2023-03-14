@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4519
+Description: DSC-MATE-4519 is a female humanoid with orange stripes on their face and a permanent smile. Their eyes are red clown eyes and their head appears to be not arranged green. DSC-MATE-4519 has two color bands on their forehead, and gold earrings on their ears. They also wear a choker as an accessory.

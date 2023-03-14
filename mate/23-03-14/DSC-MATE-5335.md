@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5335
+Description: DSC-MATE-5335 is a female human of African descent, standing at 170 centimeters in height and weighing approximately 60 kilograms. DSC-MATE-5335's face features several brown spots and bold red lips. DSC-MATE-5335 wears a purple cap with a headset, jade earrings, and a gold chain. DSC-MATE-5335 always wears a gas mask at all times, even when not exposed to hazardous materials. 

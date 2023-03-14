@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2816
+Description: DSC-MATE-2816 is a human male, approximately 27 years old, with red clown eyes and a prominent mouth spot. DSC-MATE-2816 has a mohawk hairstyle and a unique two-color band on their forehead. They wear a gold earring in their left ear and a red scarf around their neck. Despite their unusual appearance, DSC-MATE-2816 presents themselves as a programmer by profession.

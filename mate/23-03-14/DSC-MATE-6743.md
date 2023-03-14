@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6743
+Description: DSC-MATE-6743 is a human male identified as a traffic officer named [REDACTED]. DSC-MATE-6743 is immediately recognizable due to its distinctive orange stripes, 2 color band on its forehead, and jade earring. Its glasses are ordinary, with no apparent modifications of any kind. DSC-MATE-6743 is generally ambulatory and appears to be healthy.

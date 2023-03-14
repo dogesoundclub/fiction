@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5970
+Description: DSC-MATE-5970 is a female human of average height and weight. DSC-MATE-5970 has orange stripes on her face and displays a smile frequently. DSC-MATE-5970 has green hair in a purple cap, with goggles on her forehead and jade earrings. DSC-MATE-5970 is commonly seen with a choker.

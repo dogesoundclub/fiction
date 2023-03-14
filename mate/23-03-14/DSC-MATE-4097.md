@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4097
+Description: DSC-MATE-4097 is a male real estate agent robot with a distinct green Cyclops eye and horned rim glasses. DSC-MATE-4097 also wears a blue bandana on its head, a red cross earring on its left ear, and a medical mask over its mouth. DSC-MATE-4097 is frequently seen sporting a red scarf around its neck, which has been noted to appear dirty and frayed around the edges.

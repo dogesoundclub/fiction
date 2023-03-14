@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6513
+Description: 6513 is a male tiger with bright blue fur and a white chest. He has been observed wearing horned rim glasses and a doge hat as well as a red cross earring in his left ear, a gold chain around his neck, and a whistle. He identifies himself as a beautician, however there is no record of him being licensed to practice.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3896
+Description: Subject 3896 is a human male of approximately 32 years of age, standing at 6 feet tall with a muscular build. His appearance is marked by the bright VR Rainbow LED eyes and a Police Cap placed atop his head. His mouth is hidden behind a Medical Mask, preventing any identification of his facial features. Additionally, 3896 wears a Silver Chain around his neck as an accessory.

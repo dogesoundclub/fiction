@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6018
+Description: The Delivery Driver appears as a Siberian tiger with accessorized clothing. The subject's eyes are ski goggles, and the head is covered with a purple cap and headset. The tiger wears a gold chain, a quirky addition that sees to highlight its carefree spirit.

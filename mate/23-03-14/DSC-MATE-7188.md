@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7188
+Description: Item 7188 is a human male, appearing to be in his late 20s to early 30s. He stands at an average height of 6 feet, with a lean build. Item 7188's most prominent facial feature is a series of pale, circular spots which border his cheeks, forehead and nose, giving him a distinctive and striking appearance.

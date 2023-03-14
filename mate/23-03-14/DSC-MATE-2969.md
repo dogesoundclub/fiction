@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2969
+Description: Subject 2969 appears to be a male rabbit with peculiar features that distinguish it from other rabbits. Its eyes resemble ski goggles, and it possesses green hair tucked under a purple cap. 2969 also wears a gold chain and carries around a candy stick. The subject's most notable feature is its frightened mouth, which it keeps open most of the time.

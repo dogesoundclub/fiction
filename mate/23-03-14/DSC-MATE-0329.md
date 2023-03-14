@@ -1,0 +1,2 @@
+ID # : DSC-MATE-329
+Description: DSC-MATE-329 is a delivery driver of unknown origin. DSC-MATE-329 appears to be a monkey and measures approximately 1 meter tall. DSC-MATE-329 wears a purple cap with a headset and a goggle on its forehead, and is often seen wearing a silver chain around its neck. DSC-MATE-329 exhibits physical abilities that exceed those of a typical primate and has been observed using tools to complete tasks.

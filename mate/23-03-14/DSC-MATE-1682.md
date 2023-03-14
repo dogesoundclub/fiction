@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1682
+Description: DSC-MATE-1682 is a female human of average height and build. Their most noticeable feature is the orange stripes present on their face. DSC-MATE-1682 also possesses blue clown eyes, pigtail hairstyle, and gold earrings. On occasion, DSC-MATE-1682 can be seen wearing a normal gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2194
+Description: 2194 is a human female, standing at 5'5" with an unusual head of hair styled in the manner of a rainbow-colored festival. Their face exhibits distinctive orange stripes and they wear normal glasses with a pair of green cross earrings in each ear. 2194 also wears a choker and an LED gas mask as accessories.

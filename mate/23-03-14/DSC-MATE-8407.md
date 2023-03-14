@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8407
+Description: DSC-MATE-8407, also known as "The Farmer", is a humanoid female of average height and build. Her most notable feature is the VR Rainbow LED eyes, which emit a colorful glow at all times. Her head is asymmetrical, with one side being orange in color. There is a goggle attached to her forehead that she wears occasionally. The ears are adorned with jade earrings, and she wears a choker around her neck.

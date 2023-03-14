@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6953
+Description: Subject 6953 is a male rabbit of the Lepus species with red clown eyes. The subject is commonly seen wearing a red beanie, red victory band on the forehead, and a red scarf. Additionally, subject 6953 is known to wear an LED gas mask as an accessory. 

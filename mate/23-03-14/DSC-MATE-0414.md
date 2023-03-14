@@ -1,0 +1,2 @@
+ID # : DSC-MATE-414
+Description: DSC-MATE-414 is a female human measuring 168 cm in height, with blonde hair and orange stripes on her face. DSC-MATE-414 has a wing attached to the side of her head and wears a green cross earring on one of her ears. DSC-MATE-414 is typically seen wearing a choker and a gas mask.

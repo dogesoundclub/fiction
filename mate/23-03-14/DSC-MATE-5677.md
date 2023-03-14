@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5677
+Description: Officer 5677 is a humanoid entity that appears to be of human species with distinct facial features. The entity's face contains several spots and a permanent smile, with striking red clown eyes. A head of metal purple, bearing a sleek appearance, scales up where the ears should be, with green jade earrings. Officer 5677 consistently sports a gold chain around their neck and can often be seen smoking a cigarette.

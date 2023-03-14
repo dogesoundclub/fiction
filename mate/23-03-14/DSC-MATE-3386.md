@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3386
+Description: DSC-MATE-3386 is a male rabbit of the Leporidae family. DSC-MATE-3386 has distinctive ski goggle eyes, a purple cap with a headset, and a gold earring in each ear. DSC-MATE-3386 is commonly seen carrying a whistle and is known to use it to grab the attention of others around him. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4502
+Description: DSC-MATE-4502 is a male monkey with the profession of a beautician. The appearance of DSC-MATE-4502 consists of a purple cap with a headset, a pair of normal glasses, and a silver chain worn around its neck. It also has a two-color band on its forehead and a jade earring on each ear. DSC-MATE-4502 also commonly carries a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5484
+Description: 5484 appears to be a female of the human species, aged between 28-35. They present themselves as a fashion designer, and their attire reflects their passion for style. Their long hair is dyed in rainbow colors, and they sport VR Rainbow LED eyes that emit a fluorescent glow. One earring decorates each ear, made of exquisite jade stone. A silver chain adorns their neck, and they regularly smoke cigarettes, which they carry around as an accessory.

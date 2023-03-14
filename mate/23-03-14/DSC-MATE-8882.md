@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8882
+Description: Subject 8882 is a male human of unknown age and origin, with distinct orange stripes on his face and parted pink hair. His most notable features are his red clown eyes and green cross earring on his left ear. They also have a noticeable gold chain around their neck and frequently carry a cigarette with them.

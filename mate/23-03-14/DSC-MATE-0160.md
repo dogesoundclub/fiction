@@ -1,0 +1,2 @@
+ID # : DSC-MATE-160
+Description: Subject 160 appears to be a typical human female, dressed in an 00s school girl uniform, accessorized with a red cross earring, gold chain and LED gas mask. However, the most striking feature of the subject are its eyes, which resemble those of a clown, a bright red which contrasts sharply with her dark hair. 

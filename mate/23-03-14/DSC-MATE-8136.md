@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8136
+Description: Item 8136 is a male, simian entity that appears to possess empathic abilities. Its face is marked with a constantly fearful expression, and its eyes bear the appearance of red clown makeup. Its head is a shade of parted pink, complementing its gold earrings and red scarf.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-171
+Description: 171 is a human of the female sex, with blue clown eyes that seem to glow in the dark. They appear to be a throwback to 00s School Girl style with gold earrings, a gold chain, and a charming smile. Goldie is an electrician by trade and is known to exhibit erratic behavior at times. Despite this, they have a strong sense of duty and responsibility that they take seriously when working on electrical work sites.

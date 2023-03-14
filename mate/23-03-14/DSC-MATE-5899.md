@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5899
+Description: DSC-MATE-5899 is a human male with a disarming smile and an affinity for fashionable nerd glasses. The subject is often seen wearing a doge hat with a 2 colored band on his forehead. DSC-MATE-5899 is known for its ambitious and goal-oriented nature, which often drives the subject to take on more than they can handle.

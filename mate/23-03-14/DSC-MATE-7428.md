@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7428
+Description: DSC-MATE-7428 is a robot that resembles a humanoid banker. DSC-MATE-7428 is 1.9 meters tall and its body is composed of metal alloy. DSC-MATE-7428's head is a red alarm, with a green cyclops eye as its singular face feature. DSC-MATE-7428 has a mouth structure that appears to be frightened and wears a medical mask. The robot's eyes are covered by normal glasses, and it has golden earrings pierced through its ears.

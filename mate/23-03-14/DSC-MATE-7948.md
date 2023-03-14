@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7948
+Description: DSC-MATE-7948 is a male monkey of the genus Macaca, standing approximately 50 centimetres in height and weighing approximately 7 kilograms. The monkey's head is adorned with a red beanie hat, and it wears a gold chain around its neck as an accessory. DSC-MATE-7948 is employed as a beautician by its previous owner, and has demonstrated a particular talent for hair grooming and nail art. Its fine motor control and attention to detail have been noted as being exceptional.

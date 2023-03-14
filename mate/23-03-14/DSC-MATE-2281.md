@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2281
+Description: DSC-MATE-2281 is a human male with a distinctive mouth spot on his upper lip and frequently displays a frightened expression. DSC-MATE-2281 wears prescription nerd glasses and a jade earring in their right ear. Additionally, DSC-MATE-2281 can often be seen with a cigarette in their hand.

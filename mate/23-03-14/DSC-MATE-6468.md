@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6468
+Description: Subject 6468 is a male rabbit of an unknown, possibly magical species. Its most striking features are its blue clown eyes, green hair in a purple cap, and gold earring. It accessorizes with a red scarf and a whistle. Its appearance is highly unusual and appears to aid in its chosen profession as a lawyer.

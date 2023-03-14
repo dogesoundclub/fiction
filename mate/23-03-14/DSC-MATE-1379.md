@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1379
+Description: 1379 is a male monkey species with piercing red clown eyes. The subject is typically observed wearing a red beanie on its head with a goggle securely strapped to its forehead. Additionally, a silver chain dangles from around its neck.

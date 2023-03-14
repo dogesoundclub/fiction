@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6428
+Description: DSC-MATE-6428 is a human male with orange stripes on their cheeks and forehead, red clown eyes, and a short peak cap on their head. The subject also wears a green cross earring and a red scarf as accessories. DSC-MATE-6428 is a professional beautician, with exceptional skills in hair styling and makeup application.

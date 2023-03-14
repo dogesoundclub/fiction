@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1983
+Description: DSC-MATE-1983 is a male monkey of an unknown species, measuring 2.4 ft in height and weighing approximately 22 pounds. DSC-MATE-1983's most noticeable facial feature is its constantly frightened mouth. DSC-MATE-1983 wears a headset and a purple cap with a jade earring pierced in one ear. It also sports a pair of normal glasses, a red scarf, and carries a candy stick at all times. DSC-MATE-1983 is a news anchor for a leading news channel and is known to deliver the news in a professional and efficient manner.

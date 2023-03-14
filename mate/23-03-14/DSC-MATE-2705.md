@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2705
+Description: Subject 2705 is a male Bengal tiger with distinctive markings. The tiger's forehead is adorned with a dual-colored band, while a jade earring is attached to its left ear. Subject 2705's facial features include a frightened mouth and eyes whose color is unclear.

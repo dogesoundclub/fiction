@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4438
+Description: DSC-MATE-4438 is a male humanoid identified as a lawyer. DSC-MATE-4438 appears to be in his mid-30s and is of average height and build. DSC-MATE-4438 possesses two distinct facial features; a black spot located on the left corner of his mouth, and a perpetually frightened expression on his mouth. DSC-MATE-4438 is often seen wearing a doge hat, gold earring, red scarf and a candy stick.

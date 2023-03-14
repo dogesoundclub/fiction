@@ -1,0 +1,2 @@
+ID # : DSC-MATE-158
+Description: DSC-MATE-158 appears to be a robot programmed for delivery services, resembling a humanoid figure with a green cyclops eye as its only facial feature. DSC-MATE-158's eyes are jade LED and its head is covered in green hair, decorated with a purple cap. A jade earring is attached to DSC-MATE-158's left ear. Its body is made of an unknown metal alloy, which is highly durable and resistant to damage.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3460
+Description: DSC-MATE-3460 is a male tiger humanoid, standing at approximately 1.8 meters in height. They possess the physical features of a tiger, including fur that ranges from orange to white and distinctive stripes. DSC-MATE-3460 wears normal glasses, which tend to slip down their snout due to their frightened mouth. Their head is not arranged in a proper hairstyle, giving off an unkempt appearance, and they wear a red victory band on their forehead. DSC-MATE-3460 also wears a jade earring on their right ear.

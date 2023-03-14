@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5737
+Description: DSC-MATE-5737 is a male monkey veterinarian with bright red clown eyes. He wears a bucket hat on his head which features a 2 color band on the forehead, and sports a jade earring on each of his ears. DSC-MATE-5737 can often be seen wearing a red scarf and carrying a candy stick with him.

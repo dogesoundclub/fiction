@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1669
+Description: DSC-MATE-1669 is a female human of indeterminate age, approximately 30-40 years old. DSC-MATE-1669 exhibits several anomalous traits; most notably, her eyes have been replaced with Jade LED lenses which can display a variety of visual effects, including but not limited to, infrared imaging, magnification, and night vision.

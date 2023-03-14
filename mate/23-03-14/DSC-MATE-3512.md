@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3512
+Description: 3512 is a robot of male sex, currently serving as a banker for a prominent international financial institution. 3512's face features a permanently frightened mouth, while its eyes are covered by horn-rimmed glasses. The robot's head is adorned with a red beanie, and it is normally accessorized with a silver chain and a whistle, which is believed to function as a form of self-defense.

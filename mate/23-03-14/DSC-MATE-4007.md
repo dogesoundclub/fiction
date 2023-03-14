@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4007
+Description: Item 4007 appears to be a human male in his early 30s, with an unusual combination of facial features. Its face is covered in numerous spots, and its mouth is exaggeratedly shaped like a clown's. Its red eyes glow unnaturally in low light, and its head is always adorned with a tattered blue bandana. A gold earring is visible on its left ear, while its mouth is constantly concealed behind a medical mask. It wears a red scarf as its primary accessory.

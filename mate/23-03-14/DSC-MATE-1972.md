@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1972
+Description: Subject 1972 is a human male of an estimated age between 25 and 30 years old. Subject 1972's facial features are peculiar, such as the distinct mouth spot, and clown mouth. These features are capped off by piercing red clown eyes. Subject 1972's head is adorned by a short peak cap and a pair of goggles that rest on his forehead. Additionally, subject 1972 possesses a silver chain as an accessory.

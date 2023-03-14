@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3152
+Description: DSC-MATE-3152 is a humanoid male identified as a politician, appearing to be in his mid-40s. DSC-MATE-3152 has orange stripes on their face resembling that of a tiger, making them easily recognizable in public. Additionally, DSC-MATE-3152 has red clown eyes and wears a purple cap with a headset. A pair of goggles can be found situated on DSC-MATE-3152's forehead along with a green cross earring on each ear.

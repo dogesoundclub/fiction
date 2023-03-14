@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8211
+Description: DSC-MATE-8211 is a male tiger that stands 9 feet in height and weighs approximately 600 pounds. Its fur is a striking red with black stripes and it has blue clown-like eyes. DSC-MATE-8211 exhibits two bandages of differing colors wrapped around their forehead and has a pair of goggles resting on their forehead. Additionally, DSC-MATE-8211 has green hair that is usually seen resting in a purple cap.

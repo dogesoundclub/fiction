@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2358
+Description: DSC-MATE-2358 is a male human of unknown age, who presents with orange stripes on his face. He is commonly seen wearing a hoodie, and nerdy glasses. He always carries a candy stick and a gold chain for accessories. DSC-MATE-2358's primary anomaly appears to be his idealistic personality, resulting in a desire to make the world a better place. This typically manifests as protesting or boycotting companies or causes that he feels go against his values.

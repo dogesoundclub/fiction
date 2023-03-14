@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2002
+Description: Subject 2002 is a female humanoid of average height, with distinctive orange stripes on her face and purple lips. The subject's most notable feature is her blue clown eyes that give her a distinctively eerie appearance, and her witch short hair completes the unique ensemble. They wear a medical mask that covers her mouth at all times. The subject has a jade earring on their left ear.

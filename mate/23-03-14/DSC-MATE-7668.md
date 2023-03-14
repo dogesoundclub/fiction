@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7668
+Description: Item #7668 is a male rabbit humanoid, standing at approximately 5 feet tall. The creature often wears a bucket hat and red victory band on its forehead. It also sports a pair of nerd glasses over its eyes. Item #7668's most notable feature is its frightened mouth, which gives it a constant look of unease.

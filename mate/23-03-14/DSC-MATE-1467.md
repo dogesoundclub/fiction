@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1467
+Description: DSC-MATE-1467 is a female human politician of average height and weight. Although she appears to be a normal human being, she possesses unusual physical features. Her lips are a vivid shade of purple, and she has blue clown eyes that are often very expressive. Perhaps the most unusual feature of DSC-MATE-1467's appearance is the large pink rabbit head she wears at all times. The head is completely opaque and covers her entire head, save for her face.

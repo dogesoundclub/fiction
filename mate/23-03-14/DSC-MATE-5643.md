@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5643
+Description: DSC-MATE-5643 is a female humanoid of the species Homo sapiens. DSC-MATE-5643's most notable facial feature is the presence of orange stripes, which run from the corners of its mouth to the bottom of its chin. DSC-MATE-5643 also has orange eyebrows and a smile that is constantly present on its face.

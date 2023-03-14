@@ -1,0 +1,2 @@
+ID # : DSC-MATE-474
+Description: DSC-MATE-474 is a male human standing 1.8 meters tall and weighing 72.5 kilograms. DSC-MATE-474's most notable feature is the presence of numerous spots along his body, from the top of his head to the soles of his feet. Additionally, DSC-MATE-474's eyes appear to be a pair of ski goggles, and his hair is styled in a sharp, pointed spike. DSC-MATE-474 is often seen sporting a silver chain and carrying a cigarette.

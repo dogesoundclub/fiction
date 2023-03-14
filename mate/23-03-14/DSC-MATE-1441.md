@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1441
+Description: DSC-MATE-1441 is a female human identified as the leader of a mafia organization. They have orange eyebrows and metal-blue colored head, with two colored bands on their forehead. DSC-MATE-1441's ears are adorned with gold earrings, and they usually wear a medical mask over their mouth. DSC-MATE-1441 also has spots on their face and wears a silver chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1732
+Description: DSC-MATE-1732 appears to be a monkey of the species Macaca fascicularis, standing approximately 50 centimeters tall and weighing around 5 kilograms. DSC-MATE-1732 wears a pair of nerd glasses and has a goggle on its forehead. It also carries a whistle as its accessory. DSC-MATE-1732's eyes are unusually intelligent for a monkey, and it has demonstrated the ability to understand and mimic human language to a limited extent.

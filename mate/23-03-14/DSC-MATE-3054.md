@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3054
+Description: DSC-MATE-3054 is a humanoid of the male gender, approximately 32 years of age at the time of initial containment. DSC-MATE-3054 presents with an unusual head, which has a metallic purple color and is adorned with a pair of goggles on the forehead. The face features of DSC-MATE-3054 are characterized by orange stripes, a smile, and ordinary glasses.

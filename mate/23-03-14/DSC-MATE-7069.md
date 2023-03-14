@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7069
+Description: Subject 7069 is a human female with blue clown eyes and a unique hairstyle featuring pig tails. A distinguishing feature of subject 7069's forehead is a two-color band which appears to be natural coloring. Additionally, she is often seen wearing a green cross earring and a choker. Subject 7069 works as a real estate agent and is known to use her charismatic personality to influence her clients.

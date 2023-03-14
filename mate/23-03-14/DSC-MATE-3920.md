@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3920
+Description: DSC-MATE-3920 is a humanoid identified as a female veterinarian with blue clown eyes, a green hair mane capped with a purple cap, and a two-color band feature on their forehead. DSC-MATE-3920 is frequently seen wearing a medical mask and a red cross earring, with a choker as an accessory. DSC-MATE-3920 has a habit of being forgetful, especially when lost on thoughts or working on projects. Their actions often result in inadvertent humorous situations, including missing appointments and losing track of important events.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8739
+Description: DSC-MATE-8739 is a humanoid male of indeterminate age, standing at 182 cm tall and weighing 72 kg. Its face is marked with a spot on its mouth and a perpetual smile, with eyes resembling ski goggles. DSC-MATE-8739's head is completely metallic and coated in a bright purple hue, with a single green cross earring standing out against the metallic surface.

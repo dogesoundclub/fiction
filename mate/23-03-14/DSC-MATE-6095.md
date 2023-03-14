@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6095
+Description: DSC-MATE-6095 is a female human of average height, with distinct spots on their face, paired with a permanent smile. The subject is often seen with their hair styled in pig tails, and features a two-color band on their forehead. One green cross earring is seen on each of their ears, along with a silver chain around their neck. DSC-MATE-6095 is almost always seen with a cigarette in their possession, which they are seen smoking frequently.

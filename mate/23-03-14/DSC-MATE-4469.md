@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4469
+Description: Subject 4469 appears to be a male Siberian tiger measuring approximately 2 meters in length and weighing roughly 200 kilograms. The subject has been observed wearing a hoodie and nerd glasses, and adorned with a gold chain and whistle.

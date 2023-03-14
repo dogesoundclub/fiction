@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9998
+Description: 9998 is a female human of average height and build, with orange stripes accentuating her facial features, and a permanently affixed smile. Her eyes are concealed behind normal glasses, and her ears are adorned with a valuable jade earring. She is often seen wearing a silver chain necklace and smoking a cigarette.

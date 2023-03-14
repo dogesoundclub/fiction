@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9511
+Description: 9511 appears to be a Real Estate Agent, but is in fact a robotic being of unknown origin. Its face feature resembles that of a frightened mouth, and its eyes are made of VR Jade LED, which shine a bright green. Additionally, it has a unique green head, which remains in its original state (not arranged). It has a goggle on its forehead and a jade earring on each side of its head, completing its appearance with a silver chain around its neck.

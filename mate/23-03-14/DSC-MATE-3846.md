@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3846
+Description: DSC-MATE-3846 appears to be a delivery robot of unknown origins. Its main feature is a green cyclops eye which emits a low hum when on standby. DSC-MATE-3846's frightful mouth and bucket hat give it a timid appearance. It also wears a red cross earring in its left ear, a gold chain around its neck, and a whistle around its wrist.

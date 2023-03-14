@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9419
+Description: DSC-MATE-9419 is a male human news anchor, identified as [REDACTED], who exhibits several anomalous properties. DSC-MATE-9419 is visually distinct due to the presence of spotted skin, a clown mouth, and red clown eyes. DSC-MATE-9419 also wears a doge hat, a red victory band on his forehead, a jade earring, a red scarf, and an LED gas mask.

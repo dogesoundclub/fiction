@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2699
+Description: DSC-MATE-2699 appears to be a human male in his late 20s. DSC-MATE-2699 stands at approximately 6 feet in height and weighs approximately 200 pounds. DSC-MATE-2699's most notable feature is his spotted face with a contagious smile. DSC-MATE-2699 has parted pink hair, which appears to be a unique genetic anomaly. DSC-MATE-2699 also bears a two-color band on his forehead and wears a gold earring and chain as accessories. DSC-MATE-2699 can often be seen with a candy stick in his mouth.

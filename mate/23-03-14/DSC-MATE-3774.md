@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3774
+Description: Subject 3774 is a human female of average height and build, with a face that is often adorned with a smile. The subject wears normal glasses and has a metal blue head that appears to be some kind of accessory or headpiece. The subject also has a 2 color band on their forehead, jade earring on her ears, and often wears a medical mask and choker. 

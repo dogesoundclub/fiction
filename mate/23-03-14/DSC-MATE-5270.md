@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5270
+Description: Subject 5270 appears to be a male rabbit wearing a green headpiece with a goggle on his forehead, gold earring on his ear, and silver chain around his neck. His eyes are VR Jade LED, giving his gaze an unnatural glow. Additionally, he carries a candy stick, which displays no anomalous properties.

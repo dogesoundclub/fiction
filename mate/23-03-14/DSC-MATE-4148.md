@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4148
+Description: DSC-MATE-4148 appears to be a female human with distinctive orange stripes on the side of her head and red lipstick. The subject's head is partially shaved on one side and wears a large gold earring on the other. DSC-MATE-4148 is typically seen smoking a cigarette and is known to rarely engage in conversation with personnel.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5197
+Description: 5197 is a male rabbit standing at approximately 1 meter in height. Its bodily features are typical for a rabbit, with the exception of a pair of blue clown eyes and a frightened mouth that are seen on human faces. It also has a two-coloured band on its forehead and a pair of goggles kept around its forehead. Its ears are pierced with a jade earring, which 5197 always wears. It is often seen sporting a gold chain and smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6589
+Description:  Subject 6589 appears to be a human female with unique features. It has orange stripes on its face and skull, and red clown eyes. It bears a green cross earring on both ears. Subject 6589's persona is very excitable and tends to hype up others, even using persuasion and manipulation to achieve its goals. 

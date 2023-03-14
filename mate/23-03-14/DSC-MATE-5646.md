@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5646
+Description: DSC-MATE-5646 is a human male with several unique physical features. The subject has multiple spots scattered across its face, with a prominent smile and wears normal glasses over its eyes. DSC-MATE-5646 styles its hair in a mohawk and has a two-color band across its forehead.

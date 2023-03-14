@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7854
+Description: DSC-MATE-7854 is a male robot of unknown origin with a green cyclops eye, gold earring, and ski goggles for eyes. In addition, DSC-MATE-7854 also wears a blue bandana on its head, a gold chain as an accessory, and has a medical mask as its mouth. A goggle design is featured on its forehead.

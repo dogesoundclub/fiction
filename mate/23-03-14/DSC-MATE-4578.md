@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4578
+Description: Subject 4578 is a humanoid of female gender, with a distinctive appearance of Orange Stripes and Purple Lips. She wears a Purple Cap with a Headset that is connected to an unknown source, and normal glasses that conceal her eyes. She also wears Green Cross Earrings and a Choker as accessories. While visually distinct, these features are not believed to be of any supernatural origin.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-856
+Description: DSC-MATE-856 is a female human with unusual physical features. The subject has orange stripes on her face, a tiara on her head, and red cross earrings. DSC-MATE-856's eyes are replaced with virtual reality jade LED, and she frequently wears a medical mask over her mouth. She also wears a silver chain around her neck.

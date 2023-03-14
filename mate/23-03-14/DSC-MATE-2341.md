@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2341
+Description: DSC-MATE-2341 is a humanoid Rabbit species, standing at approximately 1.2 meters in height. DSC-MATE-2341's most notable feature is their frightened mouth, which is present regardless of mood. DSC-MATE-2341's eyes are currently unknown due to the rabbit's reluctance to open them outside of designated medical procedures.

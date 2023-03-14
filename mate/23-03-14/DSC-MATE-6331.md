@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6331
+Description: Item 6331 is a male robot, resembling a human security guard. It stands at a height of 6'3" and weighs approximately 230lbs. Its eyes consist of two ski goggles with red-tinted lenses. Its head is a silver headset with a built-in LED. It dons a silver chain and carries a whistle on its person at all times.

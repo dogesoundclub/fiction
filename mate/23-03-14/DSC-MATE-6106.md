@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6106
+Description: DSC-MATE-6106 is a humanoid entity identified as female and is recognized as a successful politician. DSC-MATE-6106 displays a wide range of behaviors, but is most often observed as being energetic and enthusiastic. DSC-MATE-6106 is characterized by the presence of various spots on her face and has bright orange eyebrow eyes. They are often seen wearing a hoodie with a gold chain around their neck, and are frequently observed smoking cigarettes.

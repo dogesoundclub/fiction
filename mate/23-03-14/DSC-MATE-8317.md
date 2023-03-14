@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8317
+Description: Subject 8317 is a human male, with distinctive orange stripes across the face. The subject is often seen wearing a red beanie, a medical mask over the mouth, and a gold earring on the right ear. The subject is also known to wear a gold chain around the neck, which can be used to identify the individual.

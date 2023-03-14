@@ -1,0 +1,2 @@
+ID # : DSC-MATE-237
+Description: Subject 237 is a male monkey commonly referred to as "Sparky" by those who work with him. His most notable feature is his red clown eyes, which are a genetic abnormality unique to his species. He is often seen wearing a doge hat and a jade earring, as well as a silver chain around his neck. As an electrician, he is adept at handling high voltage equipment and can perform basic repairs without any difficulty.

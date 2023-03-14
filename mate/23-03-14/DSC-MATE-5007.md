@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5007
+Description: Item 5007 was a human female, adorned with a dark purple lip and striking VR Rainbow LED eyes. They commonly wore a gold chain and gold earring as well as smoking a cigarette. Their usual attire consisted of a subdued business suit and clean, sharp lines throughout their appearance. 

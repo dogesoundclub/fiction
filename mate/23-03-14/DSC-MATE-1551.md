@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1551
+Description: Subject 1551 appears to be a male tiger in his mid-30s, standing at 6' 5" and weighing approximately 600 pounds. He has a pair of horned rim glasses perched on his nose and an earring in the shape of a red cross on his left ear. His forehead features a two-color band that runs from temple to temple, reminiscent of the traditional tiger stripes. The silver chain around his neck appears to be his only form of adornment, joined by a whistle that he often plays with when nervous.

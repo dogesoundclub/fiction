@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5797
+Description: Subject 5797 is a male rabbit, standing at approximately 30 cm tall. They have a purple cap on their head with a headset on top, and they wear a gold chain and a normal gas mask, suggesting the individual is fond of style. Despite their appearance, 5797 displays high levels of intelligence and self-awareness.

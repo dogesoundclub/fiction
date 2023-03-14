@@ -1,0 +1,2 @@
+ID # : DSC-MATE-835
+Description: DSC-MATE-835 is a humanoid rabbit with green hair and a purple cap, and two colored bands across the forehead. The entity possesses a gold earring in each ear and carries a whistle as an accessory. DSC-MATE-835 is a male, and has exhibited a high degree of intelligence and cunning.

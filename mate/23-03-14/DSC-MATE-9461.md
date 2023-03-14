@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9461
+Description: DSC-MATE-9461 is a male human, appearing to be in his mid-40s with numerous spots covering his face. DSC-MATE-9461's mouth is distinctly clown-like in appearance, with red and white striped lips and a large ball-shaped nose. DSC-MATE-9461's eyes are bright blue with an oversized iris, typical of clown make-up. DSC-MATE-9461's head is cleanly shaven, resembling a monk, while a jade earring is present on his left ear.

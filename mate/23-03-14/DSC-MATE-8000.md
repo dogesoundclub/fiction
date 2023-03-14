@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8000
+Description: DSC-MATE-8000 is a male human politician with a charming smile and natural charisma, which he uses to manipulate and sway people to his own agenda. His eyes are replaced with VR Jade LED, giving the appearance of unblinking, inhuman stare. DSC-MATE-8000 always wears a red beanie and a green cross earring on one ear. He often accessorizes with a silver chain and an unlit cigarette.

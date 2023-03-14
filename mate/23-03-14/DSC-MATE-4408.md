@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4408
+Description: DSC-MATE-4408 is a humanoid entity, biologically classified as a human male. He stands at approximately 1.75 meters in height, with a medium build and short black hair. DSC-MATE-4408's most notable facial feature is a dark spot located near the corner of his mouth. This spot has been identified to not have any biological explanation for its appearance.

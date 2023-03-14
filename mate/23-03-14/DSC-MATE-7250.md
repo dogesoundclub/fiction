@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7250
+Description: DSC-MATE-7250 is a male monkey of the genus Macaca fascicularis, commonly known as the long-tailed macaque. DSC-MATE-7250 wears a purple cap with a headset, which is believed to allow it to communicate with a higher power. DSC-MATE-7250 also has a two-color band on its forehead and jade earring in its ear. Additionally, DSC-MATE-7250 carries a red scarf and a candy stick as accessories.

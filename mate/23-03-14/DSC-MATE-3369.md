@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3369
+Description: Subject 3369 is a male robot designed to appear as a news reporter. Its body is primarily made of metallic material, with LED lights embedded inside its headset as eyes. The mouth region is covered with a medical mask, presumably to mimic human speech patterns. Overall, the robot's appearance is professional and streamlined, with a red scarf as an added accessory.

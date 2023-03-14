@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6402
+Description: DSC-MATE-6402 is a male Tiger with blue clown eyes, a red beanie on its head, red victory band on its forehead, a jade earring on both its ears, a silver chain around its neck and carries a candy stick as an accessory. DSC-MATE-6402 is known to speak fluent human languages such as English, German, and French, and is considered highly intelligent.

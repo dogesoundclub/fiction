@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1937
+Description: Subject 1937 is a male monkey of an unknown species. It stands at approximately 4 feet tall and is covered in a dense layer of brown fur. The most notable feature of the subject is its blue clown eyes, which give the impression of a perpetual smile. The subject wears a police cap on its head and has a gold earring in each ear. The subject also wears a gold chain around its neck and is often seen smoking a cigarette.

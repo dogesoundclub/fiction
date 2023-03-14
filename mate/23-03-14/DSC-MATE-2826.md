@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2826
+Description: Officer 2826 is a male human being with VR Rainbow LED eyes that can be a mesmerizing sight. His face is adorned with striking orange stripes and a smile that can brighten even the gloomiest days. His hair has a conspicuous parted pink color. Officer 2826 is known for his excessive energy and enthusiasm.

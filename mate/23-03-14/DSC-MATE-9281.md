@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9281
+Description: DSC-MATE-9281 is a human male with distinct orange stripes on the face, and his head is often seen covered by a hoodie. The subject usually wears a red victory band on the forehead and a silver chain as an accessory. DSC-MATE-9281 is notable for his normal glasses and an ever-present cigarette.

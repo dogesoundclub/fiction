@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6893
+Description: DSC-MATE-6893 is a sophisticated humanoid robot standing at 5'11". DSC-MATE-6893 has a neat and tidy appearance, wearing a red scarf around the neck and sporting normal glasses. DSC-MATE-6893 has a jade earring on the left ear.

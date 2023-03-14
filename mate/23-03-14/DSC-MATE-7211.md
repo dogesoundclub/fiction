@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7211
+Description: DSC-MATE-7211 is a Female Human identified as a Security Guard. She has an unusual appearance with spots on her skin and a permanent smile. DSC-MATE-7211's eyes are blue with the appearance of clown makeup, and she has 90s-style brown hair.

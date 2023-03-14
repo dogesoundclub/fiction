@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7993
+Description: DSC-MATE-7993 appears to be a human male in his mid-30s, with distinct orange stripes on his face, a frightened mouth, and blue clown-like eyes with dilated pupils. Its head is parted pink hair, adorning a red victory band on its forehead. It wears a gold earring and a gold chain as accessories.

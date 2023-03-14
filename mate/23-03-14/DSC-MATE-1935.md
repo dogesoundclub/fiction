@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1935
+Description: DSC-MATE-1935 is a humanoid female of the species Homo sapiens, with the unique features of orange stripes on her face and a purple lip. Her head is adorned with a wing and she wears a gold earring in each ear. She is often seen wearing a choker and smoking a cigarette.

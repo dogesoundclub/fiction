@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3154
+Description: Dr. 3154 is a male, anthropomorphic tiger measuring approximately 2.5 meters in length and weighing over 300 kilograms. They exhibit ski goggle eyes, a bucket hat on their head, and a Jade Earring on each ear. Dr. 3154's most notable accessory is a whistle, usually carried around their neck.

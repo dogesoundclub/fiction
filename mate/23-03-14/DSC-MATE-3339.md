@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3339
+Description: DSC-MATE-3339 appears to be a Human female of 36 years old with a unique set of physical features. They possess purple lips, orange eyebrows, and a metal blue forehead with a two-color band. They don a medical mask and a gold chain as additional accessories. DSC-MATE-3339 also wears gold earrings on both ears.

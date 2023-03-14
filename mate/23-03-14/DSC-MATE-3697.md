@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3697
+Description: 3697 is a humanoid entity resembling a male of the human species. It stands at approximately 1.8 meters in height and appears to be in his mid-30s. It is often seen wearing a Doge hat on its head, a red scarf around its neck, and a two-color band on its forehead. These items do not appear to have any anomalous properties.

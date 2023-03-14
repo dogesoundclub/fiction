@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4066
+Description: DSC-MATE-4066 is a male robotic security guard, standing at approximately 6 feet tall with a non-arranged green head. He wears a pair of horned rim glasses over his eyes, and a set of goggles is affixed to his forehead. DSC-MATE-4066 also wears a jade earring, a gold chain, and is often seen with a cigarette in his mouth. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3667
+Description: DSC-MATE-3667 is a 31-year old female of average height and weight, with marked spots on her face that extend down her neck and upper torso. Her hair color and style vary, but she tends to wear eccentric and colorful outfits that reflect her profession as a fashion designer.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3229
+Description: DSC-MATE-3229 is a female human veterinarian whose notable feature is her bright smile and pigtail hairstyle. DSC-MATE-3229 is never seen without her LED gas mask, which she claims protects her from allergic reactions to various chemicals and odors in the facility. DSC-MATE-3229 is a bubbly and sociable individual, whose playful demeanor often endears her to her patients and colleagues.

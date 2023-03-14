@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7708
+Description: Subject 7708 is a human male of average height and weight. Their most peculiar feature is a small, dark spot on the corner of their mouth, which has no known origin or significance. Subject 7708 appears to be constantly frightened, with a perpetually open mouth that adds to their uneasy demeanor. This may be related to their constant wearing of a doge hat, which is adorned with a gold earring on each side. Their two-color band on the forehead may be associated with some form of significance known only to them.

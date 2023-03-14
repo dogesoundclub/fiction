@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2057
+Description: DSC-MATE-2057 is a human female in her late twenties, standing at 5'7" and weighing approximately 136 lbs. DSC-MATE-2057 possesses red lips and orange eyebrows, with green cross earrings adorning her ears. DSC-MATE-2057's head is of a short and witch-like appearance, with a two-color band on her forehead and goggles resting on top.

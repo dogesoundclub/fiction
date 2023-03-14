@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9474
+Description: DSC-MATE-9474 is a male robot resembling a news anchor, with its face featuring one green cyclops eye and a visibly frightened mouth. Its eyes are composed of a virtual reality rainbow LED display and its head is adorned with a doge hat. DSC-MATE-9474's ears bear a red cross earring and it carries a silver chain and whistle as accessories. DSC-MATE-9474 is highly efficient and organized, often taking charge of group projects and delegating tasks to others in an assertive manner. 

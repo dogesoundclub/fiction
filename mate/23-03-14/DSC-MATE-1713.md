@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1713
+Description: Subject 1713 is a female human with distinctive orange stripes on her face, giving the impression of tiger markings. She has a friendly smile that puts those around her at ease. Her affliction appears to be limited to her face only. Subject 1713 has shoulder length brown hair in a 90s style, and wears a pair of goggles on her forehead as a fashion statement.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6123
+Description: DSC-MATE-6123 appears to be a humanoid robot, standing at 5'7" in height and weighing 167 pounds. It has one green cyclops eye and a frightened mouth on its silver face, with ski goggle lenses functioning as the secondary eyes. DSC-MATE-6123 wears a police cap and has a single gold earring that adorns its ear. It also wears a gold chain around its neck and often carries a cigarette in its right hand.

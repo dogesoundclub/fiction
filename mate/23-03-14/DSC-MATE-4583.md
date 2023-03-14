@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4583
+Description: DSC-MATE-4583 is a male primate of unknown species, physically resembling a monkey. Its most recognizable characteristics are its gold chain and a distinctive mohawk hairstyle covering its elongated head. The eyes of DSC-MATE-4583 are also unknown due to physical limitations.

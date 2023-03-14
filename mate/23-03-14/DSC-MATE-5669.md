@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5669
+Description: DSC-MATE-5669 is a sapient humanoid resembling a tiger. DSC-MATE-5669 is capable of shapeshifting into a near-perfect copy of any person or animal within its line of sight. DSC-MATE-5669 is also capable of limited regeneration of its own body, healing from injuries that would prove fatal to most organisms, albeit temporally impairing its current form.

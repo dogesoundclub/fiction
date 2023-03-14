@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8055
+Description: DSC-MATE-8055 is a male rabbit with horned-rim glasses and a hoodie that obscures its face. DSC-MATE-8055 is frequently seen wearing a silver chain as an accessory. Despite its small size, DSC-MATE-8055 has shown to possess anomalous abilities that allow it to take physical risks and seemingly survive significant harm, such as jumping off a cliff into a lake or river without visible injury. DSC-MATE-8055's reasons for taking these risks are still unknown.

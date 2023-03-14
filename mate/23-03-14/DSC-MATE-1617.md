@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1617
+Description: DSC-MATE-1617 appears to be a human male, aged ██, with a distinctive mohawk hairstyle and gold earring on the left ear. DSC-MATE-1617 wears normal glasses and a red scarf around its neck. DSC-MATE-1617 is a mechanic by trade and has a strong knowledge of various mechanical systems.

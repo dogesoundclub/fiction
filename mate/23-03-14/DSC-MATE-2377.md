@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2377
+Description: DSC-MATE-2377 is a human male with a penchant for humor. He is easily recognized by his blue clown eyes, bucket hat, and gold earring. He has several spots on his face and is often seen wearing a gold chain around his neck. In addition to his normal outfit, DSC-MATE-2377 also wears a gas mask for protection.

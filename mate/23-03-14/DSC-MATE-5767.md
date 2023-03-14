@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5767
+Description: DSC-MATE-5767 is a human female train driver, identified with identification number 5767. DSC-MATE-5767 has unique features such as spots on her face and red lips. Their eyes are a piercing VR jade LED and they can always be seen wearing a retro cap along with a green cross earring. DSC-MATE-5767 also carries a cigarette as an accessory.

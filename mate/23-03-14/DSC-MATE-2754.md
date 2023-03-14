@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2754
+Description: DSC-MATE-2754 is a humanoid of the Homo sapiens species, identified as a male, with orange stripes on his face. DSC-MATE-2754 has red clown eyes and wears a blue bandana on his head. On his forehead, DSC-MATE-2754 wears a set of goggles. DSC-MATE-2754 also has a gold earring on his left ear and wears a red scarf and candy stick as accessories.

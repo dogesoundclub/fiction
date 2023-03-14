@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2741
+Description: DSC-MATE-2741 is a male human identified as a Traffic Officer in the urban area. DSC-MATE-2741's face has distinctive orange stripes and frightened mouth, a purple cap with a headset, a red victory band on the forehead, and jade earring. DSC-MATE-2741 always wears a gold chain and carries a candy stick. DSC-MATE-2741 possess no known anomalous abilities or traits other than the aforementioned physical features.

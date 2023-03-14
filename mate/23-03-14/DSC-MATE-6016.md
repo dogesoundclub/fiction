@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6016
+Description: DSC-MATE-6016 is a male Bengal tiger, measuring approximately 2.5 meters in length and weighing 272 kg. DSC-MATE-6016 is distinguishable from other Bengal tigers by its strikingly rainbow-colored virtual-reality LED eyes and police cap covering its head. DSC-MATE-6016 also wears a silver chain and a red cross earring on its left ear, as well as carrying a whistle on its belt.

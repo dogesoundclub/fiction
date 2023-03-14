@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6380
+Description: Item 6380 appears to be a female human, with distinctive spots on their face and a bright red lip. They wear normal glasses and sport a two-color band on their forehead. They are often seen with a single jade earring in one ear. 

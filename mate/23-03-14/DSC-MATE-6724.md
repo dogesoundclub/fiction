@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6724
+Description: DSC-MATE-6724 is a male rabbit with a red beanie on its head, whose eyes resemble ski goggles. On its forehead, it sports another set of goggles. Additionally, DSC-MATE-6724 has a turquoise jade earring on its left ear and a gold chain around its neck. It carries a whistle on a chain, which it uses extensively to signal attention.

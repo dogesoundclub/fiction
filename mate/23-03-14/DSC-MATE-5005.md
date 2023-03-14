@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5005
+Description: DSC-MATE-5005 is a male rabbit approximately 1.2 meters in height when standing upright, with a frightened mouth and eyes that have not yet been identified. DSC-MATE-5005 wears a bucket hat on its head, a jade earring in each ear, and a red victory band on its forehead. DSC-MATE-5005 is also commonly seen wearing a red scarf around its neck and carrying a candy stick in its right hand.

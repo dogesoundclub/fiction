@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4536
+Description: DSC-MATE-4536 is a male, humanoid rabbit species standing at an average height of 165 cm. It is characterized by the retro cap worn atop its head, normal glasses upon its eyes, and the gold earring that it wears on its left ear. Its forehead features a two-color band, which is assumed to be a family crest of some kind.

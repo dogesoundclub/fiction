@@ -1,0 +1,2 @@
+ID # : DSC-MATE-513
+Description: Object 513 appears as a male Rabbit standing at a height of 4 feet. They possess a unique set of Ski Goggle eyes and are often seen sporting a green hair within a purple cap, a red scarf around their neck, and a cigarette in their mouth. The Rabbit exhibits a distinguished sense of humor and enjoys sharing tales and jokes from family traditions, leading to situations of levity among their friends and colleagues.

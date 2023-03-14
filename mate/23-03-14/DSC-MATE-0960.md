@@ -1,0 +1,2 @@
+ID # : DSC-MATE-960
+Description: Subject 960 is a human female in her mid-thirties known for her exquisite and avant-garde designs. Subject 960's most striking feature is her blue clown-like eyes, which, while unusual, are borderline anomalous in their effect. Her head has not been arranged in its natural colour and is dyed green, a cross earring completing her ensemble. The subject can be forgetful, easily distracted and prone to losing track of time.

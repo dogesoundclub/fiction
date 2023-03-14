@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8188
+Description: DSC-MATE-8188 is a male human with a peculiar facial feature identified as a "Mouth Spot." DSC-MATE-8188's other facial feature, a "Frightened Mouth," appears when he feels threatened or is in a high-stress environment. DSC-MATE-8188 is commonly seen wearing normal glasses, sporting peak spikes on his head, and has a jade earring on his right ear. He also wears a gold chain and is often seen smoking a cigarette.

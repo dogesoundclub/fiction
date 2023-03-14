@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2618
+Description: DSC-MATE-2618 is a female human politician, with defining features including a constant smile, VR Jade LED eyes, an orange side head, jade earring ears, and a medical mask covering their mouth. DSC-MATE-2618 possesses a strong and decisive personality, often coming across as bossy or intimidating. These traits are attributed to DSC-MATE-2618's desire to ensure that everything is completed efficiently and effectively.

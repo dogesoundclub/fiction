@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7389
+Description: Item 7389 is a male monkey banker of an unknown species with an unidentified eye color. Its most notable features are a hoodie and a gold chain. It displays no atypical connection to its hoodie and chain. The species of the monkey is unknown therefore, all personnel must remain aware of the potential danger it may possess.

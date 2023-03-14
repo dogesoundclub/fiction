@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2886
+Description: DSC-MATE-2886 is a human male with an unusual physical appearance. They have green layers covering their head, which appear to be some form of organic material. They also wear normal glasses and a medical mask covering their mouth. 

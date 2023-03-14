@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3676
+Description: DSC-MATE-3676 is a human male with blue clown eyes, green hair in a purple cap, and a smile that seems to be permanently affixed to his face. The subject has a gold earring in each ear and wears a gold chain around his neck. DSC-MATE-3676's forehead bears a two-color band that appears to have been painted on with makeup.

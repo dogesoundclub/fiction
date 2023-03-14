@@ -1,0 +1,2 @@
+ID # : DSC-MATE-311
+Description: DSC-MATE-311 is a highly intelligent monkey of the genus known as the capuchin monkey. DSC-MATE-311 is bipedal and possesses the ability to speak fluently in several different languages. DSC-MATE-311 appears to take pleasure in social interaction with humans and can often be heard engaging in playful banter and telling jokes. The monkey also appears to have a fondness for train driving.

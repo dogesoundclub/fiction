@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2346
+Description: DSC-MATE-2346 is a humanoid of the female sex, with unusual facial features. The subject bears bright orange stripes across their face, with their lips colored a deep red. DSC-MATE-2346 is frequently observed wearing a bucket hat and medical mask, alongside a gold chain accessory.

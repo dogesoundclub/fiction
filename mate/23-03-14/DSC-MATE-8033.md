@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8033
+Description: DSC-MATE-8033 is a male rabbit in the guise of a human. It measures approximately 1.5 meters in height and weighs approximately 40 kilos. DSC-MATE-8033 wears a red beanie on its head and jade earrings on its long, floppy ears. Its eyes are equipped with advanced VR jade LED technology capable of analyzing and processing vast amounts of data in real time.

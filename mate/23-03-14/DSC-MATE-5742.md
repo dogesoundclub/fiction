@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5742
+Description: DSC-MATE-5742 is a humanoid female identified as a real estate agent, with the appearance of blonde hair worn in a Ushanka, wearing green cross earrings, choker, and carrying a cigarette. The most notable feature of DSC-MATE-5742 is a series of orange stripes across her face, which is the origin of her nickname "Tabby."

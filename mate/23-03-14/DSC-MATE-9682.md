@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9682
+Description: DSC-MATE-9682 is a male rabbit measuring 28 centimeters in height and 35 centimeters in length. Their eyes are a bright blue, featuring a clown-like appearance. DSC-MATE-9682's head is adorned with green hair in a purple cap, with a dual-color band on their forehead. One notable feature of DSC-MATE-9682 is a jade earring in their left ear.

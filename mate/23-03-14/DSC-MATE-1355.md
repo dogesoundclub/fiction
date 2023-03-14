@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1355
+Description: DSC-MATE-1355 is a female human of average height and weight, with orange stripes on her face and purple lipstick. Her eyebrows are also orange, and she has not arranged green hair. She wears a gold earring and a silver chain as accessories. DSC-MATE-1355's most unusual feature is her ability to manipulate her facial features at will, creating a variety of expressions and altering her appearance as desired.

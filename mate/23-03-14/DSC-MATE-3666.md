@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3666
+Description: DSC-MATE-3666 is a male member of the Cercopithecidae family, classified as a monkey of the Macaca fascicularis species. DSC-MATE-3666 stands 1.3 meters tall and weighs 20 kilograms. DSC-MATE-3666 is easily recognized by his horned rim glasses and mohawk hairstyle. He is often seen with a cigarette in his hand, which he smokes continuously.

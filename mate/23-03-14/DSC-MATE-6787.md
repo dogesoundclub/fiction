@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6787
+Description: The Politician is a female human with an unusual appearance, featuring orange stripes and purple lips. Her eyes are bright red, reminiscent of clown eyes, and her head appears to be adorned with decorations commonly seen at a rainbow festival. She often carries a cigarette with her.

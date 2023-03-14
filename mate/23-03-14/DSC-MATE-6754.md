@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6754
+Description: DSC-MATE-6754 is a humanoid male of average height and weight, with blue clown-like eyes and a distinctive mouth spot. The subject wears a retro cap and a goggle on his forehead, along with a jade earring and a gold chain. DSC-MATE-6754's personality is that of a fast food worker, with a strong sense of empathy and a keen understanding of societal humor.

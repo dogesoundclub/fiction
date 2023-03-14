@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3585
+Description: Subject 3585 appears to be a human female with unusual physical features. She has orange stripes on her face and a metal blue head, with a two-color band across her forehead. Her eyes are hidden behind normal glasses and she wears a medical mask over her mouth at all times. 

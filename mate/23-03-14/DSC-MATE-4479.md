@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4479
+Description: DSC-MATE-4479 is a male rabbit measuring at approximately 1.8 feet tall, weighing around 12.5 pounds with a bucket hat and gold earring adorning its ears. DSC-MATE-4479 appears to possess higher cognitive abilities, exhibiting abstract thinking and problem-solving skills on par with humans.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-86
+Description: Subject 86 appears to be a male tiger with distinctive green fur and a frightened mouth. They wear a medical mask, nerd glasses, and a red scarf. Perhaps the most intriguing part of the subject's appearance is the jade earring they wear in their left ear.

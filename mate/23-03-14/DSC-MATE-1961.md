@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1961
+Description: DSC-MATE-1961 is a male human of average height and build. He is notable for the presence of a dark spot on his upper lip, which he refers to as his "mouth spot". This feature is of unknown origin and appears to be benign. DSC-MATE-1961 typically wears a red scarf, which he claims is a family heirloom.

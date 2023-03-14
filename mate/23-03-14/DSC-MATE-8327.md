@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8327
+Description: DSC-MATE-8327 is a female humanoid with striking facial features. Her most notable characteristic is the orange stripes that adorn her face, which are believed to have been caused by an anomalous reaction to a cosmetic product. Additionally, she has orange eyebrows and is often seen wearing a medical mask to obscure her mouth. Despite her distinctive appearance, DSC-MATE-8327 has been able to maintain a high-profile political career, working as a legislator and holding influence over various governmental organizations.

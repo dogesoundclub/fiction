@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9040
+Description: DSC-MATE-9040 is a male monkey, approximately 50 cm tall and weighing 9 kg. It has green fur that is not arranged in any significant pattern, horned rim glasses, and a 2 color band on its forehead. DSC-MATE-9040 also has a pair of goggles on its forehead, a silver chain around its neck, a jade earring on its right ear, and a whistle around its neck.

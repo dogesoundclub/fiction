@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6364
+Description: 6364 appears to be a typical grey and white rabbit with glasses that give off the appearance of a nerd-like personality. The rabbit also has a 2 color band on its forehead and is often seen wearing a gold earring and a silver chain. Despite its seemingly innocent appearance, 6364 is capable of speaking fluent English with impeccable grammar, leading researchers to conclude that it is highly intelligent.

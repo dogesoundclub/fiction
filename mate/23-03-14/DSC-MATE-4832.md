@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4832
+Description: 4832 is a male human train driver with blue clown eyes that emit an unknown energy field when they come into direct contact with any technology. Even the slightest touch from the subject can cause mechanical devices to malfunction and appear to be eerily sentient. This effect, however, does not appear to have any adverse effect on organic life.

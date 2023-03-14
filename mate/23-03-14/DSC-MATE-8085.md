@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8085
+Description: DSC-MATE-8085 is a female human with distinctive appearance features. DSC-MATE-8085 has orange stripes on their face and red lips. They have pig-tails on their head and always wear a choker. DSC-MATE-8085's most notable accessory is a LED gas mask, which they wear at all times.

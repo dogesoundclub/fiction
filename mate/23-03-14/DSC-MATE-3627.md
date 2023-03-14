@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3627
+Description: Subject 3627 is a human male in his early forties with spots visible on his face. He can commonly be seen wearing a bucket hat with a two-color band accent on his forehead. A pair of goggles sits atop his hat, and he wears a jade earring in each ear. He also sports a gold chain as an accessory.

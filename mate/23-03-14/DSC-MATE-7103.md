@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7103
+Description: Item #7103 is a male human of average height with a disarming smile. His eyes are replaced with Jade VR LED implants, and he is always seen wearing a Doge hat and a jade earring. Item #7103 is fond of wearing a gold chain and carrying a candy stick with him at all times. 

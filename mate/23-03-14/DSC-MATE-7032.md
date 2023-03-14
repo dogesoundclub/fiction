@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7032
+Description: DSC-MATE-7032 is a human female identified as a fast food worker, with blonde hair and blue clown eyes. The subject has distinct spots on her face and a constant smile, providing an appearance of cheery demeanor. DSC-MATE-7032 has a wing protruding from the right side of her head, and a two-color band above her forehead with goggles resting atop.

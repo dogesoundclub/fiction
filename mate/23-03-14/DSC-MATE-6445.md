@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6445
+Description: DSC-MATE-6445 is a human female who works as a beautician. It possesses orange stripes on its face and has blue clown eyes that appear to be permanently painted on. DSC-MATE-6445 also wears a tiara on its head and has a two-color band on its forehead, which glows intermittently. It further complements its appearance with a choker around its neck.

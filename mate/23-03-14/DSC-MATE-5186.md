@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5186
+Description: DSC-MATE-5186 is a male monkey of unknown species that stands approximately 1.2 meters tall. Its most distinctive feature is its mohawk, which is dyed black with blue tips. DSC-MATE-5186's eyes resemble those of a human, and it wears normal glasses that appear to be corrective. DSC-MATE-5186 typically displays a frightened expression and often chews on a candy stick.

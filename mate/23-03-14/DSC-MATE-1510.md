@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1510
+Description: DSC-MATE-1510 is a human female who identifies herself as a Mafia Boss. She possesses striking facial features with orange stripes and a permanent smile. DSC-MATE-1510's eyes are red with a clown-like appearance. DSC-MATE-1510's head often adorns a tiara, while her ears are adorned with green cross earrings. DSC-MATE-1510 is frequently seen wearing a gold chain as an accessory.

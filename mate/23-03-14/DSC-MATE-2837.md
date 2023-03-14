@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2837
+Description: DSC-MATE-2837 is a rabbit of undetermined breed with a habit of dressing in formal attire, often including a gold chain and jade earring. DSC-MATE-2837's most striking feature is a pair of nerd glasses it wears on occasion. Despite its diminutive size, DSC-MATE-2837 exudes a sense of professionalism and confidence to those it interacts with. 

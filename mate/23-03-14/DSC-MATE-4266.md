@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4266
+Description: DSC-MATE-4266, referred to by their associates as the "Boss," is a robot of unknown origin, resembling a male humanoid with a hood covering its head. DSC-MATE-4266 wears a red scarf and carries a whistle at all times. The most notable feature of DSC-MATE-4266's appearance is their frightened mouth.

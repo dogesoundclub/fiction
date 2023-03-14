@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9901
+Description: Identification Number 9901 is a female human with blonde hair, always seen wearing an ushanka and silver chain. She has a red cross earring and normal glasses. The subject's most prominent feature is her smile, which seems to brighten up any room she enters. She also carries a normal gas mask with her at all times.

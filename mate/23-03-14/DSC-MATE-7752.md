@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7752
+Description: 7752 is a rabbit humanoid, standing at approximately 1.2 meters in height. Its most notable feature is its blue clown eyes, which are known to hypnotize and disorient those who look into them for extended periods of time. 7752 also has green hair which it keeps in a purple cap, along with a two-color band on its forehead and a silver chain as an accessory.

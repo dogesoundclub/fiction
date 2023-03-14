@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2784
+Description: DSC-MATE-2784 is a humanoid robot of unknown origin, standing at 1.8 meters tall and weighing approximately 100 kilograms. Its body is composed of various metals and alloys, with a green Cyclops eye situated in the center of its head. DSC-MATE-2784 has a gold earring ornament piercing through its left ear.

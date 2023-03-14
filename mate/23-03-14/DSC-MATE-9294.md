@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9294
+Description:  Subject 9294 is a female human with a unique appearance. They possess purple lips, spots on their face, and blue clown eyes. Their forehead is adorned with a two-color band that matches the choker accessory they always wear. 9294 has a strong sense of independence and is often seen as stubborn. They insist on doing things themselves, even when it may not be the most effective option. 

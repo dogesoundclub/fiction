@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3919
+Description: DSC-MATE-3919 is a human male with distinctive orange stripes on their face. They wear normal glasses and a red scarf around their neck at all times. DSC-MATE-3919's head has been replaced with a metal prosthetic, colored purple, and features a green cross earring on their left ear.

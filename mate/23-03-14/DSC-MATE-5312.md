@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5312
+Description: DSC-MATE-5312 is a human female of indeterminate age and origin, standing at approximately 1.6 meters in height and weighing approximately 61 kilograms. DSC-MATE-5312's most notable physical features are its blue clown eyes and a pink rabbit head which it is unwilling or unable to remove. DSC-MATE-5312 is known to always wear a medical mask over its mouth, making it difficult to assess its facial expressions or emotional state.

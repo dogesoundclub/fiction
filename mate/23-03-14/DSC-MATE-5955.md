@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5955
+Description: 5955 appears as a male monkey with red clown eyes and a frightful mouth. His head is adorned with a police cap, and he wears an oversized gold chain and a cigarette. Despite being a primate, 5955 has exhibited proficiency in car salesmanship, and has been known to sell vehicles of varying makes and models to unsuspecting customers. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9035
+Description: Subject 9035, known to the public as a reporter for the local news station, has been identified as a human female with distinctive orange stripes on her face and purple lips, along with orange eyebrows. She is known to wear a green headpiece and a choker. Additionally, subject 9035 is often seen wearing an LED gas mask as an accessory. 

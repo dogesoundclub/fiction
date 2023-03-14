@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6630
+Description: DSC-MATE-6630 appears as a rabbit with blue clown eyes. It possesses a purple cap with a headset, has a goggle on its forehead, wears a gold earring and is frequently seen carrying a candy stick.

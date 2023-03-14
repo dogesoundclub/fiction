@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8543
+Description: DSC-MATE-8543 was a humanoid robot, approximately 1.8 meters in height, constructed primarily of metal and electronics. DSC-MATE-8543 resembled a fast food worker, featuring a frightened expression and a Doge hat atop its head. DSC-MATE-8543's eyes were adorned with normal glasses, and it was frequently seen with a cigarette in its mouth.

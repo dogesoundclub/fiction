@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8699
+Description: DSC-MATE-8699 is a robotic fast food worker identified by its distinctive green Cyclops eye. DSC-MATE-8699 is male and wears a hoodie on its head. Additionally, it is often seen carrying a whistle as an accessory.

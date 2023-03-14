@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8006
+Description: Subject 8006 is a male monkey of an unknown species, standing approximately 1.2 meters tall. The most unusual feature of the subject is its blue clown eyes, which seem to change in color and intensity depending on its emotional state or the amount of ambient light. The subject wears a retro cap on its head, a red scarf around its neck, and a normal gas mask over its mouth and nose. The purpose of the gas mask is unclear, as the subject does not appear to have any respiratory problems or release any toxic substances.

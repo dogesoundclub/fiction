@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3213
+Description: DSC-MATE-3213 is a human female with a unique physical appearance. DSC-MATE-3213's facial features include spots over its face, blue clown eyes, and two distinct bands across its forehead that change color based on DSC-MATE-3213's emotional state. DSC-MATE-3213's hairstyle resembles that of a '00s schoolgirl with a gold chain as an accessory.

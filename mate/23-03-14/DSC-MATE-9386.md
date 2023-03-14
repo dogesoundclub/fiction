@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9386
+Description: The Advocate is a female human with distinctive spots on her face and red clown eyes, paired with a set of luscious red lips. She often adorns herself with a silver chain accessory and dons a bright, rainbow-colored festival-inspired headpiece.

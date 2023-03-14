@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5072
+Description: DSC-MATE-5072 is a rabbit humanoid resembling a male farmer, standing approximately 1 meter tall. DSC-MATE-5072 possesses green hair in a purple cap, horned rim glasses, and sports a red scarf and candy stick as accessories. DSC-MATE-5072 is a skilled farmer, capable of cultivating various kinds of produce in a short period of time.

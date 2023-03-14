@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1825
+Description: DSC-MATE-1825 is a human male with spots across his face. Of particular note are the subject's blue clown-like eyes and jade earring. DSC-MATE-1825 wears a short peak cap and displays a 2 color band on their forehead. When outside of containment, DSC-MATE-1825 appears to be a normal individual, save for the aforementioned features. 

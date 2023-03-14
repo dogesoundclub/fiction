@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1468
+Description: DSC-MATE-1468 appears to be a humanoid robot standing approximately 6 feet tall, with various accessories and modifications attributed to its fashion designer occupation. Notable features include a green cyclops eye and VR jade LED eye lenses. DSC-MATE-1468 also wears a single gold earring and is often observed with a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6805
+Description: DSC-MATE-6805 appears as an average human male with orange stripes on his face and a red victory band on his forehead. He wears normal glasses and a gold earring on both ears. His most notable feature is his constant smiling expression. DSC-MATE-6805 is usually seen wearing a gold chain and smoking a cigarette.

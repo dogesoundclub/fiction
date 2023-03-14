@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2706
+Description: DSC-MATE-2706 is a female human of undetermined age, currently working as a delivery driver for a major shipping company. DSC-MATE-2706's most distinctive feature is her orange-striped facial pattern, which has elicited interest from various researchers in the field of human genetics.

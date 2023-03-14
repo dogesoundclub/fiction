@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5168
+Description: Dr. 5168 is a male human with a distinctive mouth spot and eyes resembling ski goggles. The subject's head is covered by a hoodie, which conceals much of his face. Dr. 5168 is often seen smoking a cigarette, which he claims helps him to focus.

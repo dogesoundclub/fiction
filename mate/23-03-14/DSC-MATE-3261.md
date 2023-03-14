@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3261
+Description: Item #3261 is a male human, aged 26, with spots on his face and a frightened mouth. His eyes are protected with normal glasses, and he often wears a retro cap, medical mask and silver chain. Item #3261's unique features consist of a two-color band on his forehead with goggles on top. 

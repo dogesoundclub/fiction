@@ -1,0 +1,2 @@
+ID # : DSC-MATE-540
+Description: Subject 540 is a female human, possessing a distinctive purple lip and orange eyebrow. Their head resembles that of a 00s school girl, with gold earrings occupying both of their ears. They sport an LED gas mask that covers their nose and mouth. While in public, 540 has been observed to maintain a reserved and quiet demeanor, carrying out their work tasks with the utmost diligence.

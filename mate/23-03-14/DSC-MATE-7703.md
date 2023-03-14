@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7703
+Description: Subject 7703 appears to be an average human male in his mid-thirties, with green layers for hair and a jade earring in each ear. Their most distinctive feature is the candy stick they carry with them at all times, which they often suck on absent-mindedly while deep in thought. 7703 has a unique thirst for knowledge, and spends much of their free time reading, researching, and collecting books and documentaries on a wide range of subjects.

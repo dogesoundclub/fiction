@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7164
+Description: 7164 appears to be a male humanoid rabbit equipped with a red beanie and peculiar forehead features, including a two-color band and goggles. The subject bears a gold earring highlighting its right ear, while a red scarf and cigarette serve as its accessories. 7164's eyes are yet to be confirmed.

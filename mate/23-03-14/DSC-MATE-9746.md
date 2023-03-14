@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9746
+Description: DSC-MATE-9746 appears as a female human, with orange stripes on their face, and red clown-like eyes. DSC-MATE-9746 has a smile on their face almost constantly, and is usually found wearing a bucket hat with goggles on their forehead, a gold chain necklace, and often seen smoking a cigarette. Despite their somewhat comical appearance, DSC-MATE-9746 should be considered highly dangerous.

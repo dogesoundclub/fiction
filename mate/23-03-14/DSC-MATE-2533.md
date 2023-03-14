@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2533
+Description: Item #2533 appears to be a male tiger, measuring approximately 8 feet in length and weighing around 400 pounds. Its fur is a vibrant shade of orange with black stripes, and its eyes have not been observed as of yet. Item #2533 often wears a distinctive Doge Hat on its head, as well as a 2 Color Band across its forehead and Gold Earring on one ear. It also carries a Gold Chain around its neck and has been observed smoking a Cigarette on multiple occasions.

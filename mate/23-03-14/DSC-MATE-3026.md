@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3026
+Description: DSC-MATE-3026 appears to be a male Bengal Tiger, approximately 2.5 meters long and weighing 180 kg. The subject displays some unusual physical features, such as a frightened mouth and eyes protected by a horned-rimmed glasses. DSC-MATE-3026 typically wears a hoodie, hiding any further physical abnormalities. The subject is usually seen smoking a cigarette.

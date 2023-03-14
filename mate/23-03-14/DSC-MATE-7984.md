@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7984
+Description: Subject 7984 is a humanoid robot of unknown origin, initially discovered in a car dealership in downtown Los Angeles. The DSC is a male model with a permanent frightened expression on its mouth and ski goggle eyes. The robot has a short peak cap on its head, and a jade earring on each earlobe. DSC-MATE-7984 is adorned with a red scarf and whistle as accessory items. Its primary objective is to sell cars to humans, and it engages in humanlike behavior to accomplish this task.

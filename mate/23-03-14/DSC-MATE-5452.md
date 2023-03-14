@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5452
+Description: DSC-MATE-5452 is a female human with a unique appearance. Their face features include orange stripes and a smile, with eyes that emit rainbow LED lights. DSC-MATE-5452's head is reminiscent of a pink rabbit. On their forehead, DSC-MATE-5452 usually wears a pair of goggles.

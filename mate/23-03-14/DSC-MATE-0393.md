@@ -1,0 +1,2 @@
+ID # : DSC-MATE-393
+Description: DSC-MATE-393 is a human female of average height and weight, with distinctive facial features. Their face is marked with orange stripes, and they wear red lipstick. DSC-MATE-393's eyes are blue, with a makeup design that resembles that of a clown. DSC-MATE-393 has short, witch-like hair and wears a medical mask over their mouth. 

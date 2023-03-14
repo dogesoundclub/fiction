@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9546
+Description: DSC-MATE-9546 is a veterinarian robot with a single green cyclops eye and a frightened mouth on its face. DSC-MATE-9546 has a pair of horned rim glasses as its eyes, a retro cap on its head, and a goggle on its forehead. It has a silver chain and a whistle as its accessories. DSC-MATE-9546 is capable of moving and conversing like a human, though its voice has a mild robotic inflection.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9866
+Description: Subject 9866 appears as a male Bengal Tiger with black and orange fur. His frightened mouth gives off an expression of nervousness or fear. The subject also exhibits a two-color band on his forehead and wears a silver chain around his neck, which is attached to a candy stick. The significance of this candy stick is currently unknown.

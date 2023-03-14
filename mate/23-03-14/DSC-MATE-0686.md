@@ -1,0 +1,2 @@
+ID # : DSC-MATE-686
+Description: DSC-MATE-686 appears as a human male with distinctive orange stripes on his face and a constant smile. The subject's head features not arranged green hair, with two color bands on his forehead, and gold earrings on his ears. DSC-MATE-686 also wears a medical mask and a silver chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1031
+Description: DSC-MATE-1031 is a human male of average height and weight, with the notable facial feature of a dark spot located above the upper lip. The eyes are replaced with VR Jade LEDs, and the head is encased in an LED headset. DSC-MATE-1031 primarily communicates through gestures and written notes, although it is capable of speech. DSC-MATE-1031 is employed at a local fast-food establishment and is indicative of a strong work ethic and sense of duty.

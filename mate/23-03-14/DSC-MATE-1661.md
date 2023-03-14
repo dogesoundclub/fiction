@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1661
+Description: Subject 1661 was a male human of average height and weight, employed as a beautician at a local salon. They had distinctive nerd glasses and a gold earring in their ear, as well as a silver chain around their neck. Subject 1661 often wore a normal gas mask as an accessory, possibly due to their job involving chemical exposure.

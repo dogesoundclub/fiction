@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8963
+Description: DSC-MATE-8963 appears to be a human male with spots on their face and a constantly frightened mouth. Its eyes resemble ski goggles and its head is adorned with green hair in a purple cap. DSC-MATE-8963 sports a green cross earring and is often seen wearing a silver chain and smoking a cigarette. Despite its unusual appearance, DSC-MATE-8963 has a natural charm and charisma that can make it the life of the party.

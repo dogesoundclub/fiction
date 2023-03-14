@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9252
+Description: 9252 is a fully autonomous robot designed to mimic human behavior and speech. The subject is male, with a retro cap covering its head and gold earring attached to its ears. Its mouth is concealed by a medical mask, which is thought to serve as a filter or to obscure an alternative method of communication. 9252 is often seen wearing a red scarf draped around its neck.

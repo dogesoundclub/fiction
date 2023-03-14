@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3169
+Description: DSC-MATE-3169 is a human female with spotted facial features and a notable smile. Their hair is styled in a vibrant orange color on one side of their head, and they wear a red cross earring in one ear. DSC-MATE-3169 is often seen wearing a choker and a gas mask as accessories.

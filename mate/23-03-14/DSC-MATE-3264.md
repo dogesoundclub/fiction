@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3264
+Description: DSC-MATE-3264 is a middle-aged human male, standing at 1.85 meters tall and weighing approximately 72 kilograms. DSC-MATE-3264's most notable physical features include a spot on its mouth and a frightened expression, both of which are present at all times regardless of its emotional state. DSC-MATE-3264's eyes resemble those of a clown, with the pupils and irises appearing as red circles.

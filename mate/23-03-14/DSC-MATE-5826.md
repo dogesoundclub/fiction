@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5826
+Description: DSC-MATE-5826 is a human male with distinct orange stripes located on his face, a permanent smile, and red clown eyes. The subject typically wears a police cap and a silver chain around his neck, and is often seen sporting a green cross earring. DSC-MATE-5826 identifies as a villain, and his demeanor is indicative of this. They value tradition and have a no-nonsense attitude, but they also have a playful side which can lead to humorous and dangerous situations.

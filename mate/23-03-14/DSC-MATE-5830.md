@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5830
+Description: DSC-MATE-5830 is a human female of unknown age with peculiar physical features. DSC-MATE-5830 has orange stripes on their face, wears a tiara on their head, has surgically implanted VR rainbow LED eyes, jade earrings on their ears, and a choker around their neck. DSC-MATE-5830's anomalous abilities manifest as seemingly spontaneous acts of physical prowess and danger-seeking behavior. DSC-MATE-5830 appears to derive great pleasure from taking risks and engaging in activities on a whim, regardless of any potential dangers.

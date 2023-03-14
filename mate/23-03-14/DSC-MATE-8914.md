@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8914
+Description: Subject 8914 is a male tiger that manifests human-like features including the ability to wear clothing, utilize tools, and speak fluently in human languages. The subject works as a banker in a prominent financial firm and is covered by a red scarf and a normal gas mask. The subject has horned rim glasses, gold earrings, and a frightened mouth.

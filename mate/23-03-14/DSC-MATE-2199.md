@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2199
+Description: DSC-MATE-2199 appears to be a typical human, a female banker with a dazzling smile. However, she possesses unique traits that have never been observed in any human before. DSC-MATE-2199's eyes are LED screens that glow in VR jade, making it difficult for others to maintain eye contact with her. She has a head covered in a rainbow festival hat, indicating a flamboyant personality. Additionally, DSC-MATE-2199 wears green cross earrings and a silver chain.

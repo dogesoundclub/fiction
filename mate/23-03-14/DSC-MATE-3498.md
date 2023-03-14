@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3498
+Description: DSC-MATE-3498 is a human male of average height and weight. The subject exhibits several unique physical characteristics, such as orange stripes on their facial features, VR jade LED eyes, a goggle on their forehead, jade earrings, a medical mask on their mouth, and a gold chain around their neck.

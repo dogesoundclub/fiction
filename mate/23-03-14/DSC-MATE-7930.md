@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7930
+Description: DSC-MATE-7930 is a humanoid robotic entity designed to resemble a doctor. Its head comprises a dark-colored hoodie complete with built-in aviator goggles for eyes and a medical mask for a mouth. Its body is primarily made of metal, with its arms and legs designed to mimic those of a human. DSC-MATE-7930 also has a red scarf as its accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3133
+Description: DSC-MATE-3133 is a male monkey of the genus Macaca, standing at 60cm tall and weighing approximately 5kg. Its head is covered by a brown hoodie, concealing its eyes from view. DSC-MATE-3133 is often seen wearing a red scarf and an LED gas mask, which appear to be purely decorative.

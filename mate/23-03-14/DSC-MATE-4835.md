@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4835
+Description: Subject 4835 is an adult male of the Homo sapiens species. He is often seen wearing a red victory band around his forehead, and a jade earring in his left earlobe. 4835 requires the use of normal glasses for visual enhancement, and is consistently seen wearing a medical mask over his mouth.

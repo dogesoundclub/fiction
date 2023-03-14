@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7222
+Description: Subject 7222 is a male news anchor with an unusual appearance. He has a distinct mouth spot on his face, along with a constant smile. He is often seen wearing nerd glasses over his parted pink hair and a jade earring in each ear. He also frequently wears a gold chain around his neck.

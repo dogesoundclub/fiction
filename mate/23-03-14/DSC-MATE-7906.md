@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7906
+Description: 7906 is a human female with striking features. She is often seen wearing a gas mask and has a distinctive red cross earring on her left ear. Her blonde hair is often seen falling out of a Russian ushanka hat. Her mouth is adorned by red lipstick and her eyebrows are a striking orange hue.

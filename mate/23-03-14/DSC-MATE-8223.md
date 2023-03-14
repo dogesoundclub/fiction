@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8223
+Description: DSC-MATE-8223 is a female human with distinct facial features. Orange stripes are present on her cheeks, and her eyebrows are naturally orange. DSC-MATE-8223 typically wears her hair in pig tails that also have the same orange stripes. She has a cheerful demeanor and is often seen smiling.

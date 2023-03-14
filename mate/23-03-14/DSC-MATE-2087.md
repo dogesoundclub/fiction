@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2087
+Description: DSC-MATE-2087 is an anthropomorphic rabbit of male gender. DSC-MATE-2087 appears to be a doctor and sometimes responds to the name "Doctor Hare." DSC-MATE-2087 is generally cooperative and complies with all instructions from Foundation personnel.

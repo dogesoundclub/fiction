@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8940
+Description: DSC-MATE-8940 is a humanoid individual of female gender, measuring 1.7 meters in height and possessing distinctive orange stripes on their face. The subject also has purple lips and orange eyebrows, as well as a purple cap with a headset covering their head. DSC-MATE-8940 is often observed smoking a cigarette and wearing a jade earring and a choker.

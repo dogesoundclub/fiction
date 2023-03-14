@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5876
+Description: DSC-MATE-5876 is a human male with unusual facial features. The subject's face is covered in orange stripes and a cartoonish clown mouth. They have blue clown eyes and wear a medical mask over their mouth.

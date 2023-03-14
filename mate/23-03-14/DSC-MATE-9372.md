@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9372
+Description: DSC-MATE-9372 is a male rabbit of unknown age and origin. It is distinguishable by its frightened mouth and VR rainbow LED eyes. It wears a blue bandana on its head, which it claims to be a symbol of its mechanics profession. DSC-MATE-9372 also wears goggles on its forehead and a jade earring in its left ear. It is often seen carrying a red scarf and a candy stick, both of which it considers important to its well-being.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4760
+Description: 4760 is a female human, aged approximately 30 years old. Their pale skin is spotted with moles and freckles, giving the subject a unique and memorable appearance. Their purple lips immediately draw attention, and their bright red cross earring contrasts against their skin. The subject constantly wears a choker necklace and a normal gas mask, which is said to cause a level of anxiety when in contact with outsiders.

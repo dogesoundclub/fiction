@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8201
+Description: Item 8201 appears to be an adult male Bengal Tiger with red clown eyes matching its reddish-orange fur and a prominent green head. It stands approximately six feet tall and weighs upwards of 500 pounds. Two distinguishing features include a cross earring on its right ear and goggles resting on its forehead. Additionally, Item 8201 has been known to wear a gold chain and whistle around its neck.

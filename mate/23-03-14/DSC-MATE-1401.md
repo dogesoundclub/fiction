@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1401
+Description: Subject 1401 is a male human of average height and weight, with orange stripes on their face serving as their most prominent distinguishing feature. The subject's face also features a smile, and they wear normal glasses. A police cap adorns the top of the subject's head, and they wear a jade earring in one ear. Subject 1401 is often seen wearing an LED gas mask.

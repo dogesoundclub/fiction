@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4613
+Description: Subject 4613 is an adult male human standing at 6'3" with a prominent facial feature of spots and a frightened mouth. They are often seen wearing a purple cap with a headset attached to it, and to complete their outfit, a silver chain around their neck that is accompanied by a cigarette in their right hand as a nervous habit. DSC-MATE-4613 is identified as a security guard of the highest caliber, knowledgeable in various security techniques, and always eager to help.

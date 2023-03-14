@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9620
+Description: DSC-MATE-9620 is a male tiger with blue clown eyes, green hair in a purple cap, and a medical mask covering its mouth. It wears a goggle on its forehead and a gold earring on each ear. It is often observed wearing a gold chain, but this accessory is not considered to be a part of its biology. DSC-MATE-9620 also possesses a strong sense of intuition that is often mistaken for psychic powers. It can predict future events and sense the emotions of those around it, which can be both impressive and unnerving.

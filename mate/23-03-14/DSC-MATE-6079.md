@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6079
+Description: Subject 6079 is a human female of average height and weight, with orange stripes as the recognizable facial feature. She has a loud rainbow festival styled hair that seems to change shade frequently. The subject’s left ear carries a green cross earring, and a silver chain around the neck. DNA profiling shows no apparent genetic anomaly.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7359
+Description: 7359 is a female human with orange stripes on their cheeks and a constant smile on their face. They wear a medical mask over their mouth, making communication difficult at times. Their tiara, silver chain and jade earrings are worn at all times. In addition to their striking features, they also have a two-color band across their forehead and goggles resting atop their head. 

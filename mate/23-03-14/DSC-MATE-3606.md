@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3606
+Description: DSC-MATE-3606 is a human male identified as a theater manager. DSC-MATE-3606 presents with several unique physical features including a mouth spot, frightened mouth, and glasses with green cross earrings.

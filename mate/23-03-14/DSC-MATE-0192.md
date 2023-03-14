@@ -1,0 +1,2 @@
+ID # : DSC-MATE-192
+Description: DSC-MATE-192 is a female human with visible spots on her face. Her eyes are modified with VR Rainbow LED technology, causing them to change colors rapidly. DSC-MATE-192's blonde hair has an unusual wing-shaped feature, and she wears a red cross earring. She is often seen wearing a silver chain and smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3058
+Description: DSC-MATE-3058 appears to be a female human with distinctive spots on her face, and red clown eyes. Its hair is short and of a witch-like style, and it has a pair of jade earrings. DSC-MATE-3058 wears a choker around its neck and a normal gas mask at all times.

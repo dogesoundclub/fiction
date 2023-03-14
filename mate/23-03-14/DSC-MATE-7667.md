@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7667
+Description: DSC-MATE-7667 is a human female with distinctive facial features consisting of orange stripes on their cheeks and a two-color band running across their forehead. Additionally, the subject wears a jade earring on their right ear as an accessory. 

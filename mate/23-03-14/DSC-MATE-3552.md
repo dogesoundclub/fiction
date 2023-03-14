@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3552
+Description: Item 3552 is a male tiger with features unique to his species. His fur is a stark orange with black stripes, and his eyes appear to have been replaced with VR Jade LED technology. Item 3552 accessorizes with a red beanie and jade earring, along with a whistle.

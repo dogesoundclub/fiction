@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7688
+Description: DSC-MATE-7688 is a human female with orange stripes present on their face, leading to red lips. DSC-MATE-7688's eyes are VR Rainbow LED and her head has short hair. DSC-MATE-7688 wears red cross earrings, and a medical mask. She commonly wears a choker accessory.

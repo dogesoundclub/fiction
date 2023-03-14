@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2490
+Description: DSC-MATE-2490 is a human male identified as a fashion designer who possesses a unique appearance. His face features a perpetual smile, while his eyes are blue clown eyes, and he has a metal purple head. His ears are adorned with a green cross earring, and his mouth is covered by a medical mask. Additionally, he wears a gold chain around his neck at all times.

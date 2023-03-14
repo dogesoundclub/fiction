@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6191
+Description: Subject 6191 is a human male in his mid-30s. He stands at approximately 6 feet tall, weighing around 190 pounds, with a muscular build. He has a distinct feature on his mouth area that resembles a dark spot, which is usually accompanied by a red clown mouth. His eyes are also unnerving as they reflect a sinister red color. Subject's head is covered by a blue bandana, which usually engulfs his shaved head. He also sports a goggle on his forehead, which he claims helps him see things that others cannot.

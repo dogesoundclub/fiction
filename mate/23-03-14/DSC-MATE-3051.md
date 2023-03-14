@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3051
+Description: DSC-MATE-3051 is a male human of average build and height with unusual physical characteristics. DSC-MATE-3051's face features a peculiar pattern of orange stripes that run diagonally across his face, and his mouth orifice appears to be in a constant state of fear. DSC-MATE-3051's eyes are a bright red, resembling that of clowns, and his head is adorned with a mohawk of black hair. DSC-MATE-3051 possesses two band patterns in different colors across his forehead, with goggles fixed atop them.

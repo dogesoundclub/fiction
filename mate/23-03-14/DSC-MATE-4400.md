@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4400
+Description: Subject 4400 is a male rabbit, standing at approximately 3 feet tall. His eyes are almost constantly obscured by normal glasses which he wears. His head is covered by a blue bandana, and he wears a goggle on his forehead. The subject has both ears pierced, with one sporting a jade earring.  He is always seen carrying a whistle with him, which he is known to blow frequently. 

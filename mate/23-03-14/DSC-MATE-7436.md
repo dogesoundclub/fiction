@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7436
+Description: DSC-MATE-7436 is a human female with the ability to manipulate visual stimuli to project a rainbow-like LED display in place of eyes. These "VR Rainbow LED" eyes are reported to be particularly disturbing to those who make eye contact, causing intense and often debilitating hallucinations. DSC-MATE-7436's head is metal blue and their ears are adorned with a red cross earring.

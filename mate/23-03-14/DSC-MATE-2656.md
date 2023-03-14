@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2656
+Description: DSC-MATE-2656 (formerly known as the "Farmer") was a human male of average height and weight, with a distinctive Mouth Spot located on the upper lip area. The subject was often seen wearing a red beanie and a red scarf, with a normal gas mask covering his face.

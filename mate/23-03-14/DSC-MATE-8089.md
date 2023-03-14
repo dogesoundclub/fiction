@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8089
+Description: DSC-MATE-8089 is a male rabbit with eyes that emit a rainbow-like spectrum of light when activated. DSC-MATE-8089's head is covered by a bucket hat, usually adorned with various decorations. DSC-MATE-8089 is often seen wearing a red scarf and carrying a candy stick in its hand.

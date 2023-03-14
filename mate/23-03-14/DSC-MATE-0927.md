@@ -1,0 +1,2 @@
+ID # : DSC-MATE-927
+Description: DSC-MATE-927 is a male monkey of unknown species, with green hair and purple cap. In addition to a gold earring, DSC-MATE-927 also wears a silver chain and an LED gas mask, which has been observed to emit a low glow when activated. Despite its unusual appearance, DSC-MATE-927 seems to possess a remarkable intelligence and can communicate with humans via sign language.

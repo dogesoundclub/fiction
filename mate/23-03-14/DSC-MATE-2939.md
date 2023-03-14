@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2939
+Description: DSC-MATE-2939 is a female human who works as a fast food worker. DSC-MATE-2939 has blue clown eyes and a broad smile, which are quite unusual features for a human. DSC-MATE-2939's green hair is not arranged and is commonly tied back in a ponytail. DSC-MATE-2939 is often seen wearing a medical mask to protect herself from microscopic bacteria and other contaminants.

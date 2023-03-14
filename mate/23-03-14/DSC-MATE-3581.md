@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3581
+Description: DSC-MATE-3581 is a human male, identified as a security guard by occupation. DSC-MATE-3581's appearance is notable for its parted pink hair and crossed green earing. DSC-MATE-3581 usually adorns a medical mask, nerd glasses, and a red scarf as accessories.

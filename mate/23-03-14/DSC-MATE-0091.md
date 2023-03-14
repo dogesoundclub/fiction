@@ -1,0 +1,2 @@
+ID # : DSC-MATE-91
+Description: Subject 91 is a male tiger of unknown origin, exhibiting non-anomalous tigroid features. The subject often adorns a police cap and a red victory band on its forehead. A gold earring is visible on each of its ears, above the level of shoulders. Subject 91 wears a medical mask over its snout area and can frequently be seen with a red scarf around its neck. Despite its physical appearance, it displays a peaceful demeanor and a strong sense of humor.

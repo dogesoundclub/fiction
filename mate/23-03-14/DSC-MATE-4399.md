@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4399
+Description: DSC-MATE-4399 is a human male of average height and weight. However, its physical appearance is notable for its complete integration of technology. Its head is composed of a purple metal material and possesses a VR rainbow LED for eyes. It has green cross earrings located in both ears. Subject is always seen wearing a standard gas mask.

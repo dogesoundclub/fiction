@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1626
+Description: DSC-MATE-1626 is a human male with distinctive orange stripes running along his face. He possesses ski goggle eyes, a blue bandana on his head, and a jade earring on each ear. DSC-MATE-1626 wears a gold chain but often covers its face with a normal gas mask to prevent inhaling contaminants. Despite DSC-MATE-1626's seemingly anomalous features, it is currently believed that DSC-MATE-1626 is merely a human with a unique aesthetic.

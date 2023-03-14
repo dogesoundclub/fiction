@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2054
+Description: DSC-MATE-2054 is a human female with distinctive facial features including spots on the skin and red lips. Her eyes are replaced with VR jade LED displays and she wears a headset with an LED display on her head. DSC-MATE-2054 also has a goggle on her forehead and frequently wears a medical mask over her mouth. She is often seen wearing a gold chain as an accessory.

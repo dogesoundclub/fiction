@@ -1,0 +1,2 @@
+ID # : DSC-MATE-275
+Description: DSC-MATE-275 appears as a bipedal primate with brown fur and normal glasses worn over its large, expressive eyes. It is frequently seen wearing a bright red beanie on its head and a jade earring in one ear. DSC-MATE-275 is often seen carrying a candy stick, which it consumes during periods of stress or excitement.

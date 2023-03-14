@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8603
+Description: DSC-MATE-8603, the Real Estate Agent Rabbit, is a male rabbit of domestic breed. It measures approximately 30 cm in length and weighs around 1.5 kg. What makes DSC-MATE-8603 remarkable, however, is its bright red clown-like eyes and a blue bandana across its head. DSC-MATE-8603 also carries a whistle around its neck as it was commonly used to summon attention during real estate auctions.

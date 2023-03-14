@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3643
+Description: Subject 3643 is a female human with distinct physical features. The most noticeable feature is the occurrence of spots covering the entirety of their face. The exact cause of these spots and their effect on the subject are unknown. 3643 often wears normal glasses that conceal their eyes. When wearing a tiara on their head, considerable changes occur in their behavior, becoming more hostile and dangerous.

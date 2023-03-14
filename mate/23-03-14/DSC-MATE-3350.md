@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3350
+Description: Subject 3350 is a female human with distinct orange stripes on their face, reminiscent of a tiger. They have a permanent smile and a head similar to 00s school girls, along with a goggle on their forehead. They are often seen wearing a choker and an LED gas mask.

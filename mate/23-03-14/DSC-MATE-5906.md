@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5906
+Description: Subject 5906 is a male robotic organism, standing at approximately six feet tall. Its most notable feature is a single green cyclops eye that sits above a perpetually frightened mouth. Upon its head, the subject wears a red beanie, as well as a red cross earring on its right ear. The subject's usual appearance is completed with the addition of horn-rimmed glasses and a medical mask.

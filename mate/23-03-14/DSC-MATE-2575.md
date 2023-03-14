@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2575
+Description: DSC-MATE-2575 is a humanoid male of average height and build, with blemishes covering his facial features. DSC-MATE-2575's most notable feature is his VR Rainbow LED eyes which emit various colors and patterns. DSC-MATE-2575's head is typically covered by a hooded sweatshirt, and his mouth is always concealed by a medical mask. DSC-MATE-2575 is commonly seen wearing a gold chain around his neck.

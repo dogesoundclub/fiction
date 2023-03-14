@@ -1,0 +1,2 @@
+ID # : DSC-MATE-567
+Description: Subject appears to be a robotic humanoid, identified as a male, commonly known as "Doctor". Its head is not arranged green, possessing a pair of nerd glasses that cover its eyes. A gold earring can be seen on its ears while a gold chain accentuates its metallic neck area. 

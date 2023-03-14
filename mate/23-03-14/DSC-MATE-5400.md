@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5400
+Description: DSC-MATE-5400 is a human female in her mid-30s with distinctive face features, including orange stripes on her cheeks and red lips. She has been observed to have an obsession with rainbow-colored clothing and accessories, often wearing a vibrant headpiece and gold earrings as well as a choker.

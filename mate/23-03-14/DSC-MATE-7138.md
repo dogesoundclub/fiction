@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7138
+Description: DSC-MATE-7138 is a human male of average height and build, with a distinguishing mohawk hairstyle and a two-color band on his forehead. He is often seen with a smile on his face and the jade earring in his left ear.

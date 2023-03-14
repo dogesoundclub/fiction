@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2094
+Description: 2094 is a human female with striking physical features, including purple lips and VR jade LED eyes. The subject's head is an iridescent metal blue, with a unique green cross earring on each ear. 2094 also wears a gold chain as an accessory.

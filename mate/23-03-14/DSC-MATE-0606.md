@@ -1,0 +1,2 @@
+ID # : DSC-MATE-606
+Description: DSC-MATE-606 appears to be a Bengal tiger in their late twenties. DSC-MATE-606 is a male and stands approximately 6 feet tall when standing on their hind legs. DSC-MATE-606's eyes are an unusual bright VR jade LED color, which sparkles in certain lighting. They have a standard set of feline ears and sport a gold earring on their left ear. DSC-MATE-606 can often be seen wearing a goggle on their forehead, a silver chain around their neck, and a LED gas mask.

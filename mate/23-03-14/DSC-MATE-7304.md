@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7304
+Description: Item 7304 is a female human of average height and build, sporting spots on her face that resemble freckles, and an ever-present smile that is both welcoming and unsettling. Her blue clown eyes are a sight to behold, often making it difficult to differentiate whether she is happy or sad, amused or angry.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3621
+Description: 3621 is a male humanoid of indeterminate age and origin, with a characteristic Mouth Spot on its otherwise ordinary-looking face. Its head is covered in layers of green hued skin, while the bulk of its outfit is a large gas mask, equipped with a series of LED lights. It has demonstrated no extraordinary physical abilities.

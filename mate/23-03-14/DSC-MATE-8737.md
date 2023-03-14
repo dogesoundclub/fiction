@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8737
+Description: Subject 8737, also known as "The Vetbot," is a humanoid robot designed to function as a veterinarian. The subject stands at 5'11" tall and weighs approximately 230 pounds. The body of the subject is made of a sturdy metal alloy with intricate circuitry and mechanical components that allow for complex movements.

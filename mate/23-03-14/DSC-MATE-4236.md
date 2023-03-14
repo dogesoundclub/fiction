@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4236
+Description: Subject 4236 is a male tiger of indeterminate age, standing at approximately 9 feet tall and weighing an estimated 800 pounds. Its physical appearance is striking, with jade LED eyes and a blue bandana wrapped around its head. A single jade earring adorns one ear, while a gold chain hangs loosely around its neck. Despite its imposing size, Subject 4236 is capable of stealth and agility that rivals even the most skilled ninjas.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1310
+Description: DSC-MATE-1310 is a human male of average height and build, with distinctive spotted skin. It is often seen wearing a red beanie with a two-color band on its forehead, and normal glasses over its eyes. DSC-MATE-1310 also wears a green cross earring, a gold chain around its neck, and carries a candy stick as a form of stress relief. It is employed as a fast-food worker.

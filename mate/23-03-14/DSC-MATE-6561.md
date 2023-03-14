@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6561
+Description: DSC-MATE-6561 appears to be a humanoid security robot, standing approximately 6 feet tall. Its exterior is predominantly black and gray, with a red alarm for a head and a single green Cyclops eye. The eye contains a sophisticated camera with a wide range of vision capabilities. DSC-MATE-6561 also sports a pair of nerdy glasses, a medical mask, a gold earring in its left ear, and a gold chain around its neck.

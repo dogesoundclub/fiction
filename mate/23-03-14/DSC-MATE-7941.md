@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7941
+Description: DSC-MATE-7941 is a male tiger with red clown eyes. Its head is adorned with a police cap and its ears bear a red cross earring. DSC-MATE-7941 wears a silver chain as an accessory and is often seen with a candy stick in its mouth. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-546
+Description: Subject 546 is a female human with distinctive orange stripes on its face. It has VR Jade LED eyes and a not-arranged green head. The subject wears a medical mask to cover its mouth and has a silver chain as an accessory. Its most notable feature is the red cross earring on its left ear.

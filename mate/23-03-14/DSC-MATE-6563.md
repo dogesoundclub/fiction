@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6563
+Description: DSC-MATE-6563 was a human male of caucasian ethnicity, identified as a Lawyer by profession. DSC-MATE-6563 possessed several notable physical features, including a series of spots across his face and a blue bandana worn atop his head. In place of what would normally be human eyes, DSC-MATE-6563's face was outfitted with a set of Virtual Reality Jade LED's, allowing for advanced augmented reality capabilities.

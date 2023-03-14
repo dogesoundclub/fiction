@@ -1,0 +1,2 @@
+ID # : DSC-MATE-782
+Description: Item 782 is a male robot of unknown origin. It stands at approximately 6 feet tall and has a green cyclops eye as its most notable facial feature. The mouth of Item 782 is in a constant state of fear, but it has the ability to move and speak. Its eyes are ski goggles, and it has a jade earring on each ear. The head of Item 782 is not arranged and appears to be made from green metals. The mouth of Item 782 is always covered by a medical mask, and it wears a gold chain around its neck.

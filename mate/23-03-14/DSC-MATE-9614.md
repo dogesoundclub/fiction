@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9614
+Description: DSC-MATE-9614 is a male rabbit identified by the 2 color band on its forehead. It wears a purple cap with a headset over its blue clown eyes, which allows it to control the audio and visual aspects of theatrical productions.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-459
+Description: DSC-MATE-459 is a male Bengal tiger that has been known to exhibit seemingly psychic abilities. He appears to be capable of predicting certain events, even hours, or days beforehand. He has a distinctive appearance, with skiing goggles substituting his eyes, a purple cap adorned with a headset, and a gold earring.

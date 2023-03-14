@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2061
+Description: DSC-MATE-2061 is a human female with an unusual appearance, sporting orange stripes on its face, a purple lip, and a 00s schoolgirl head feature. The subject possesses a two-color band on its forehead and wears a red cross earring on each ear.

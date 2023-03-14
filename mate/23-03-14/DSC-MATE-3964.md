@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3964
+Description: Subject 3964 is a male rabbit anthropomorph. The subject stands at 4 feet tall and weighs approximately 62 pounds. Its fur is a light brown with a hint of red undertones, except for its eyes which are disguised as ski goggles with green tinted lenses. The subject also wears a purple cap with a headset, jade earrings, a red scarf, and a LED gas mask.

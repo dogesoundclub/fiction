@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1775
+Description: Subject 1775 is a rabbit of the male sex with a frightened mouth, often seen trembling even when not afraid. The subject wears a distinct Doge hat on his head and nerd glasses on his eyes. A gold earring can be seen on each ear, and a red scarf complements his attire.

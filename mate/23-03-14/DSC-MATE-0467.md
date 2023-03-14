@@ -1,0 +1,2 @@
+ID # : DSC-MATE-467
+Description: "The Beautician" is a unique robot with a retro aesthetic that reflects his love for the old days. His head is adorned with a retro cap and his ears with gold earrings. One of his most striking features is his bright green Cyclops eye that dominates his face. He is often seen wearing a gold chain, a reflection of his personal style.

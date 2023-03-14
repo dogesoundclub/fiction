@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9871
+Description: DSC-MATE-9871 is a male human of indeterminate age, standing at 5'10" and weighing approximately 170 pounds. DSC-MATE-9871 possesses a distinctive spot on his mouth, and often appears to be frightened or anxious. DSC-MATE-9871 wears a short peak cap and glasses, along with a red scarf and a candy stick.

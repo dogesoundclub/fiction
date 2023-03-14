@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5540
+Description: Subject 5540 is a human male employed as a real estate agent. The subject has blue clown eyes and a mouth spot that may appear humorous to onlookers, but is otherwise unremarkable. The subject often wears a short peak cap and has a green cross earring attached to his ears. The subject is highly outgoing, social, and enjoys being the center of attention at all times.

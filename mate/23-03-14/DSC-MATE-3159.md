@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3159
+Description: DSC-MATE-3159 is a humanoid male with spotted facial features and green layered hair on their head. They frequently wear a gold chain and normal glasses. DSC-MATE-3159 also possesses an LED gas mask that is worn over their face in situations that they deem hazardous.

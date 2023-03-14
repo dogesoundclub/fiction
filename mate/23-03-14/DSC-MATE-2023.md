@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2023
+Description: DSC-MATE-2023 appears, at first glance, to be an average human male with striking green hair and a purple cap. Upon closer inspection, DSC-MATE-2023's unique features become apparent. He has orange stripes on his face, and a pair of nerd glasses over his eyes. A pair of goggles is positioned on his forehead, and he wears a green cross earring on his left ear. In addition, he is often seen sporting a red scarf.

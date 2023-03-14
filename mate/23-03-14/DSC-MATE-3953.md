@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3953
+Description: DSC-MATE-3953 is a female human of average height and weight. It has green hair and wears a purple cap. DSC-MATE-3953's eyes are obscured by normal glasses, and it wears a red cross earring on its left ear.

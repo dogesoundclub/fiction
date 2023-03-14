@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3449
+Description: DSC-MATE-3449 is a male human of Caucasian descent, approximately 33 years of age. DSC-MATE-3449 is 1.75m tall and weighs 73 kg. DSC-MATE-3449 has a frightened mouth and wears normal glasses. DSC-MATE-3449's head is not arranged green in any way. DSC-MATE-3449 exhibits a strong sense of duty and responsibility, often taking on more tasks than necessary. DSC-MATE-3449's strong work ethic is matched only by his love of dancing and having fun.

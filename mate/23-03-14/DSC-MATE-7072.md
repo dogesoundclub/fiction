@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7072
+Description: DSC-MATE-7072 appears to be a male human of average height and build, with distinctive orange stripes on his face. He is often seen sporting a wide smile, along with blue clown eyes that are visually striking, but seemingly harmless. The subject's head is typically adorned with goggles and a two-color band, with a normal gas mask acting as an accessory. Based on observations, DSC-MATE-7072 appears to have an affinity for green hoodie apparel that they wear on a regular basis.

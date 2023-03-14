@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7696
+Description: DSC-MATE-7696 appears to be a human female in their late 30s. Their most notable feature is their orange eyebrow eyes, which seem to glow in low light conditions. DSC-MATE-7696 wears a purple cap with a headset and a medical mask covering their mouth. They also have a green cross earring on their right earlobe.

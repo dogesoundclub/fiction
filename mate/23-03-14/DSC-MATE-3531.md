@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3531
+Description: DSC-MATE-3531 is a humanoid robot designed to operate as a train driver. Its head is adorned with a retro cap complete with a jade earring and horn-rimmed glasses. DSC-MATE-3531 is often seen wearing a gold chain and smoking a cigarette.

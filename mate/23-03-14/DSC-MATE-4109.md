@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4109
+Description: Item #4109 is a male rabbit, measuring approximately 50 centimeters long and weighing around 2 kilograms. It possesses a unique appearance, with green hair styled in a purple cap and a set of normal glasses covering its eyes. Its ears are adorned with a gold earring. On its forehead, there are two bands of different colors. Item #4109 is known to have a frightened mouth expression constantly.

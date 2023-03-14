@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1512
+Description: DSC-MATE-1512 is a female human identified as a car salesman. She stands at approximately 170 cm tall and weighs approximately 58 kg. She is of African descent and has red lips and spots on her face. She wears normal glasses, a retro cap, and gold earrings.

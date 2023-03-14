@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3510
+Description: 3510 appears to be a typical tiger, possessing distinctive blue clown eyes and a green, unarranged head. His left ear is adorned with a red cross earring while the right is without. The subjects' mouth is concealed by a medical mask, and he is known to be associated with a silver chain. Subject 3510, however, is an anomaly in that he has taken up the job of a fashion designer.

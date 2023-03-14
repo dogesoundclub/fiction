@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1711
+Description: DSC-MATE-1711 is a male Bengal Tiger who displays anomalous attributes. DSC-MATE-1711 has a pattern of blue stripes, and its eyes resemble blue clown eyes. DSC-MATE-1711 is known to wear a blue bandana and a red cross earring. Additionally, DSC-MATE-1711 wears a gold chain around its neck and an LED gas mask on its face.

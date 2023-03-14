@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6469
+Description: DSC-MATE-6469 appears to be a humanoid rabbit whose face exhibits constant fear, with its mouth open in a jaw-dropping expression. It wears a red beanie on its head and ski goggles on its eyes. The ears have a gold earring pierced through the right earlobe. DSC-MATE-6469 frequently carries a candy stick in its hand.

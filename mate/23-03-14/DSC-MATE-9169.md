@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9169
+Description: DSC-MATE-9169 is a human female identified by the anomalous features exhibited in their physical appearance. DSC-MATE-9169 sports purple lips, vibrant red clown eyes, and a jade earring in each ear. DSC-MATE-9169 also wears a bucket hat as a part of their security uniform. DSC-MATE-9169 is highly skilled in hand-to-hand combat and marksmanship, with an innate sense of duty and responsibility that makes them an invaluable asset to the Foundation's security force.

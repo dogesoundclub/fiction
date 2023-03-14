@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8362
+Description: Subject 8362 is a human female electrician with unique physical features, including orange stripes across their face, purple lips, and orange eyebrows. Their head resembles that of a pink rabbit and features a two-color band on their forehead with goggles resting on top. Their ears are adorned with a red cross earring and they wear a gold chain as an accessory.

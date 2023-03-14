@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8415
+Description: DSC-MATE-8415 is a male monkey, identified as a Capuchin monkey (Cebinae spp.). It is often seen wearing a red beanie and horn-rimmed glasses. DSC-MATE-8415 is also known to wear  a jade earring on its left ear, as well as a silver chain around its neck.

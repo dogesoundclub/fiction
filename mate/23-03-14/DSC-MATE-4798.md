@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4798
+Description: DSC-MATE-4798 is a male tiger in his early 30s, standing at 6 feet tall and weighing approximately 700 pounds. DSC-MATE-4798's face feature includes a permanent state of a frightened mouth, which contrasts with the blue clown-like eyes that gaze at all visitors with playful curiosity. DSC-MATE-4798's head is adorned with a blue bandana, which is believed to be a remnant of its time living as a member of a biker gang. DSC-MATE-4798 also maintains a jade earring, possibly a souvenir from its past life.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2893
+Description: DSC-MATE-2893 is a female humanoid who was formerly employed as a train driver. DSC-MATE-2893 appears to be a humanoid with a pink rabbit head and red cross earring ears. The subject's most striking feature is their purple lip, which is genetically different from that of any known human. DSC-MATE-2893's eyes are always covered with normal glasses.

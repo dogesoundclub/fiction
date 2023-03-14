@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6478
+Description: Item 6478 appears to be a male human of average build and height. It has orange stripes on its face, a frightened mouth, and wears normal glasses. The creature wears a doge hat adorned with jade earrings and a medical mask over its mouth, as well as a gold chain.

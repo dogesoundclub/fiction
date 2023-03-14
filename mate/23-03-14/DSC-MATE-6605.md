@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6605
+Description: Item #6605 appears to be a traffic officer robot, standing at 6 feet tall. It wears a red alarm as its head, and has a singular green cyclops eye for a facial feature. Its eyes are equipped with horned rim glasses, while its mouth is covered with a medical mask. Item #6605 also sports a single gold earring and a silver chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3594
+Description: DSC-MATE-3594 is a female human of Caucasian descent, measuring approximately 5'7" in height and weighing approximately 120 pounds. DSC-MATE-3594 wears a black suit with a purple lip, an ushanka hat, goggles on her forehead, and an earring of a red cross on her left ear.

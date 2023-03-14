@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7066
+Description: DSC-MATE-7066 is a male robot that has taken up the persona of a Mafia Boss, often seen wearing a hoodie and ski goggles. An onlooker may not immediately perceive the danger of this robot due to its unconventional appearance. However, caution is advised when interacting with the subject as it is equipped with unknown weaponry and is known to be extremely hostile to all who cross its path.

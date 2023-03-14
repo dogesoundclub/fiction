@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2182
+Description: Subject 2182 appears to be a human male of average height and weight, characterized by spots on his face and distinctive ski goggle-shaped eyes. He is often seen wearing a retro cap and carrying a candy stick, which he tends to use as a stress reliever.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3239
+Description: DSC-MATE-3239 is a human male, identified as a banker, with several distinctive features. The subject has spotted skin on its face and a frequently frightened mouth, which may indicate a history of anxiety or trauma. DSC-MATE-3239 also has a mohawk hairstyle that appears to be a deliberate fashion statement.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8190
+Description: DSC-MATE-8190 is a male rabbit with distinctive red clown eyes that emit an unknown energy field. The subject dons a red beanie and a pair of goggles on the forehead as well as a jade earring on the right ear. DSC-MATE-8190 also wears a gold chain around the neck and is frequently seen smoking a cigarette.

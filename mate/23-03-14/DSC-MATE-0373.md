@@ -1,0 +1,2 @@
+ID # : DSC-MATE-373
+Description: Subject 373 is a male human with distinctive spots on their face, coupled with a perpetual frightened expression on their mouth. The subject's most notable feature is their red clown eyes, which are highly unusual and appear to hold an inexplicable power over those who meet their gaze. The subject wears a hoodie and is often seen with a silver chain around their neck and a cigarette in their hand.

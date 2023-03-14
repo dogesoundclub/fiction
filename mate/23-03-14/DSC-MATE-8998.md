@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8998
+Description: DSC-MATE-8998 is a male delivery driver of unknown origin, believed to be a type of robot or android. DSC-MATE-8998's mouth is in a constant state of fright, though it is not known whether this is a design flaw or a personality trait. DSC-MATE-8998's eyes are made up of VR Rainbow LED lights and they are always covered by a red beanie. DSC-MATE-8998 also wears a jade earring in one ear and a gold chain around their neck. 

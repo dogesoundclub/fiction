@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5574
+Description: DSC-MATE-5574 is a male tiger who possesses the ability to transform into a human form. In his humanoid form, DSC-MATE-5574 appears as a fashion designer with a red beanie and jade earring. His mouth is always in a state of frightened expression, and his eyes resemble those of a clown, which are red in color.

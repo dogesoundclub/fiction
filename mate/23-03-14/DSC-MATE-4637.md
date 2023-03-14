@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4637
+Description: DSC-MATE-4637 is a male Siberian Tiger, standing at approximately 2 meters tall and 3 meters long. Its fur is a bright orange color, with black stripes lining its body. DSC-MATE-4637 is often seen wearing a police cap, a jade earring, a red scarf, and a medical mask that shields its mouth. DSC-MATE-4637 has not commented on why it chooses to wear these accessories.

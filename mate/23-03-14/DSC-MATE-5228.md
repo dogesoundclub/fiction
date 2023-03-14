@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5228
+Description: Subject 5228 is a female human with distinctive facial features. Their face exhibits orange stripes, contrasting with a striking purple lip. They often adorn a purple cap atop their head, which complements their vibrant green hair. They wear a cross-shaped green earring on their right ear, as an additional accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2954
+Description: DSC-MATE-2954 is a human male identified as a delivery driver. They are easily identifiable by their red beanie and gold earring. However, DSC-MATE-2954's most striking feature is their LED gas mask, which they are never seen without.

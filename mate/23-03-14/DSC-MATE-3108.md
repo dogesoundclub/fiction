@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3108
+Description: DSC-MATE-3108 is a human female of average height with unusual features that set them apart from other humans. Of note are their orange striped facial markings and purple lips. Their VR Rainbow LED eyes are consistently present and have been determined to be non-anomalous in nature. DSC-MATE-3108 wears their hair in two pigtail braids and is often seen wearing a gold chain around their neck and gold earrings in pierced ears.

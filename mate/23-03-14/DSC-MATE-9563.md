@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9563
+Description: DSC-MATE-9563 is a male monkey, standing approximately 1.2 meters tall, wearing a retro cap, and a red scarf. DSC-MATE-9563's most notable feature is its nerdy glasses, while his other accessory, a green jade earring, is suspected to only be for aesthetic purposes. His frightened mannerisms are evident in DSC-MATE-9563's facial expression and body language.

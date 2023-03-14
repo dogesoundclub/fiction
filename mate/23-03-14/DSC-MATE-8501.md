@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8501
+Description: DSC-MATE-8501 appears to be a humanoid robot of unknown origin, with green hair, a purple cap, and horned rim glasses. Its head also features a goggle attached to its forehead, and it wears a gold earring, gold chain, and carries a whistle as accessories.

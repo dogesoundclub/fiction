@@ -1,0 +1,2 @@
+ID # : DSC-MATE-216
+Description: DSC-MATE-216 is a humanoid entity with the appearance of a female car salesman. The subject has a well-maintained smile and is known to wear a medical mask over their mouth. A goggle is frequently seen on the subject's forehead. Further examination indicates that the subject possesses unique augmented reality capabilities through their jade LED eyes, allowing them to identify the most suitable means of persuasion for any given circumstance.

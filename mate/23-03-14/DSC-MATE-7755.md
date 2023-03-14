@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7755
+Description: DSC-MATE-7755, physically appears to be a normal rabbit with unspecified eyes. DSC-MATE-7755 can communicate verbally with humans and has demonstrated a cooperative and calm demeanor. It is uncommon for a rabbit to possess communication abilities, thus warranting further research.

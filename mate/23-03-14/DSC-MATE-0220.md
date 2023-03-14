@@ -1,0 +1,2 @@
+ID # : DSC-MATE-220
+Description: DSC-MATE-220 is a human male identified as a fashion designer by profession. He stands at approximately 175 cm in height and weighs 70 kg. His most notable physical feature is his permanently wide smile, which extends from ear to ear. DSC-MATE-220's eyes are blue in color and resemble those of a clown. He has green hair that he often wears in a purple cap, and a jade earring adorns his left ear. His choice of accessories includes a silver chain and a candy stick, which he often chews on.

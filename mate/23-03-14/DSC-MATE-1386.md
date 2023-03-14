@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1386
+Description: 1386 is a female human of average height and build. The subject's most distinct feature is their orange striped hair, which has caused them to stand out in their profession as a train driver. They wear a retro cap, a gold earring in their left ear, and a silver chain around their neck. Additionally, they often carry a cigarette as a stress reliever.

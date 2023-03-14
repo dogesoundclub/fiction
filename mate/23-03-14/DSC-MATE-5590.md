@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5590
+Description: 5590 appears to be a robot designed to resemble a firefighter, standing at 6ft tall with a silver and yellow chassis. The most notable feature is its single, green cycloptic eye that glows menacingly. Its mouth appears to be in a constant state of fear, with its teeth gritted and perpetually quivering.

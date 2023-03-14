@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9666
+Description: DSC-MATE-9666 appears to be a robot of humanoid shape, with a red beanie on its head, a pair of goggles on its forehead, and a jade earring on each ear. It is also commonly found wearing a silver chain and holding a cigarette in its hand, both of which are believed to be part of its personal style rather than a necessary function.

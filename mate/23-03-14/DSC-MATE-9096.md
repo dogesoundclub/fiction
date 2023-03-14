@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9096
+Description: DSC-MATE-9096 is a female human who appears to be a veterinarian by profession. DSC-MATE-9096 has blue clown eyes, green hair under a purple cap, and a set of purple lips. On the forehead, DSC-MATE-9096 wears a two-color band and goggles. Around DSC-MATE-9096's neck is a choker.

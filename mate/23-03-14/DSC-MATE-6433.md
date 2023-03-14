@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6433
+Description: DSC-MATE-6433 is a male human of average height and weight. His most distinguishable feature is a set of spots on his face, which give him a unique appearance. He is often seen with a smile on his face, and wears normal glasses to aid his vision.

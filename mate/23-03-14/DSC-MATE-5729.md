@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5729
+Description: DSC-MATE-5729 is a male monkey who appears to be a train driver, often found operating various locomotives throughout the country. Despite its small size and limited intelligence, DSC-MATE-5729 is able to expertly operate these machines, often with a calm and collected demeanor.

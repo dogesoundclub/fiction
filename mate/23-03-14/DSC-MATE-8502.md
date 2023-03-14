@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8502
+Description: DSC-MATE-8502 is a male Siberian Tiger with a unique appearance. DSC-MATE-8502 is often seen wearing a hoodie and a red scarf. The tiger is known to have an indulging curiosity for unusual topics and can occasionally blurt out random facts and trivia.

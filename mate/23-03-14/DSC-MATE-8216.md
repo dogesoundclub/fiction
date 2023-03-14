@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8216
+Description: DSC-MATE-8216 is a traffic officer robot, measuring approximately 1.9 meters in height and weighing around 450 kg. DSC-MATE-8216's body features a single green cyclops eye on its head, with two ski goggles serving as its eyes, and a red cross earring as its ears. It also possesses an LED gas mask as an accessory, which it uses when alerted by potential gas leakages.

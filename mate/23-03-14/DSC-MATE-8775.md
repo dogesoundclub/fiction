@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8775
+Description: DSC-MATE-8775 is a male rabbit standing at 1 meter in height with red clown eyes. DSC-MATE-8775 regularly wears a blue bandana on its head and a gold earring in its left ear. DSC-MATE-8775 has also been observed to wear a gold chain around its neck. Despite its small stature, DSC-MATE-8775 possesses surprising strength and agility, making it a quick and efficient delivery driver.

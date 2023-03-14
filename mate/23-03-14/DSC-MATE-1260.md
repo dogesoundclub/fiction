@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1260
+Description: Subject 1260 appears to be a male human in his late 50s with various distinctive features. His face is adorned with numerous spots, but his wide, welcoming smile is constant. He wears normal glasses that enhance his vision and a bucket hat that shields his face from the sun. A jade earring decorates his left ear, and he wears a silver chain around his neck. Most notably, he frequently wears a custom-made LED gas mask that glows in the dark.

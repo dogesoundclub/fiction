@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3527
+Description: 3527 is a human male with orange stripes running along the length of his face. He also possesses a pair of goggles positioned atop his forehead, and a jade earring in his left ear. When not on air, he is often seen wearing a red scarf around his neck and smoking a cigarette.

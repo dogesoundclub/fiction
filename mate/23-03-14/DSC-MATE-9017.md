@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9017
+Description: Subject 9017 is a human female with distinctive orange stripes adorning her facial features. Her eyes are a bright blue with an almost clown-like appearance, causing distress among some onlookers. The subject has a collection of rainbow-themed headwear that she is seen wearing regularly while on the job. She also sports a pair of jade earrings, which have been noted to glow faintly when she's emotionally excited.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2854
+Description: Subject 2854 is a male humanoid identified as a fashion designer. The subject possesses blue clown eyes, which seem to be part of his natural appearance. It wears a retro cap on its head, and a gold earring on its left ear. A candy stick is always present on the subject's right hand, a personal object of identification. 

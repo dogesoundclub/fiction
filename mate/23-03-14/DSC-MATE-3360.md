@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3360
+Description: DSC-MATE-3360 is a humanoid entity identified as a female human politician, known for her humorous personality and ability to make others laugh. DSC-MATE-3360 possesses several distinct physical features, including orange stripes and purple lips, as well as red clown eyes and pig tails. DSC-MATE-3360 is also frequently seen wearing a choker and a medical mask.

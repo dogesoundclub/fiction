@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4221
+Description: DSC-MATE-4221 is a male robot with a green, unarranged head and VR Rainbow LED eyes. DSC-MATE-4221 has gold earrings attached to its ears, a red scarf around its neck, and a normal gas mask as its other accessory. DSC-MATE-4221 stands at approximately 6 ft tall and is designed to resemble a humanoid entity.

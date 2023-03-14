@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3179
+Description: DSC-MATE-3179 is a human male, with a distinctive appearance that includes thick, nerd glasses, a police cap, green cross earring, and silver chain as accessories. He is also known to wear an LED gas mask when operating the trains, which is not part of his required uniform. DSC-MATE-3179 works as a train driver, and he is known to have a rebellious streak that can lead to unpredictable and potentially dangerous behavior.

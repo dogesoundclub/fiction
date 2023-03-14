@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9849
+Description: Subject 9849 is a humanoid male of average height and build. The most notable features of the subject are the orange stripes that run down the sides of his face and the exaggerated clown mouth that sits beneath his red, bulbous eyes. The subject's attire is typically that of a banker, complete with a short peak cap and a jade earring in his right ear.

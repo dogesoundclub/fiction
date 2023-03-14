@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9618
+Description: DSC-MATE-9618 is a male Bengal tiger, measuring 3.5 meters in length and weighing approximately 700 kilograms. DSC-MATE-9618 wears a doge hat on his head and a red cross earring on his left ear. He also has a silver chain around his neck. The materialization of these accessories is currently unknown. Despite DSC-MATE-9618’s unexpected appearance, he has proven to be friendly and cooperative during interactions. 

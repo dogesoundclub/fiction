@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9725
+Description: DSC-MATE-9725 is a male Siberian Tiger with red clown eyes, exhibiting behavior consistent with a highly trained physician of human medicine. DSC-MATE-9725's physical condition is consistent with that of a human doctor, with notable features including green hair in a purple cap with a goggle on the forehead, an earring, and a silver chain with a whistle. DSC-MATE-9725 insists that it has no memory of its past as a wild animal and claims that it has always been a doctor, although its origins and how it became a doctor remain unknown.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7369
+Description: Item #7369 is a female human species with blonde hair, adorned with an Ushanka cap. It has two prominent features; bright orange stripes that stretch from the forehead to the cheekbones, and a set of red, luscious lips. Additionally, it has a gold earring on each ear and a silver chain around the neck.

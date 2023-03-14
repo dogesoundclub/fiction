@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5644
+Description: DSC-MATE-5644 is a monkey that wears horned rim glasses and has a 2-color band on its forehead. DSC-MATE-5644 also has a jade earring and a gold chain as additional accessories. Despite its anomalous qualities, DSC-MATE-5644 appears to be a normal monkey in all other aspects. DSC-MATE-5644 is male and possesses the ability to manipulate those around him to dance or sing along to his favorite songs. This ability is activated by DSC-MATE-5644 wearing its gold chain and can only be triggered by DSC-MATE-5644 itself.

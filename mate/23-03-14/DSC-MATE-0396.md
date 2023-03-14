@@ -1,0 +1,2 @@
+ID # : DSC-MATE-396
+Description: DSC-MATE-396 appears to be a human male of middle age, with a distinctive spot on their mouth. Their head is shaved bald in a traditional monk's style, and they wear a medical mask at all times. DSC-MATE-396 is always seen with a silver chain around their neck, which they often fidget with when nervous.

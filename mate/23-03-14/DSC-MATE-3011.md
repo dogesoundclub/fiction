@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3011
+Description: DSC-MATE-3011 is a humanoid male, roughly 5'10" in height and weighing approximately 90kg. It has blue clown eyes, a doge hat on its head, and a gold earring on each ear. DSC-MATE-3011 has also been seen wearing a silver chain necklace and carrying a candy stick. These accessories are not believed to be part of DSC-MATE-3011's anomalous effects, but their significance remains unknown.

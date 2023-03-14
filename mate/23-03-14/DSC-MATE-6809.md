@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6809
+Description: Subject 6809 is a male tiger species, appearing with green hair in purple cap and red cross earring, adorns two color bands on his forehead and horned rim glasses to cover his eyes. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9823
+Description: DSC-MATE-9823 is a sentient robot with a green cyclops eye located in the center of its metallic face. DSC-MATE-9823 has one additional face feature that appears to show a frightened mouth. DSC-MATE-9823 is generally passive in demeanor, but it has been observed to become agitated when faced with complicated or unexpected situations.

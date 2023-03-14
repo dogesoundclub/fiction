@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4880
+Description: 4880 is a small humanoid robot with a green Cyclops eye and a frightened mouth. Its head is adorned with a police cap, and its ears are pierced with a gold earring. It wears a red scarf as its only accessory. 

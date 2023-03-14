@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1353
+Description: DSC-MATE-1353 appears to be a male rabbit, with ski goggle eyes and a red scarf. Despite its appearance, DSC-MATE-1353 is not a normal rabbit, and has proven to possess several anomalous abilities.

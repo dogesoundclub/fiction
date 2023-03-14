@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9342
+Description: Subject 9342 is a female human who identifies herself as a doctor. Her physical appearance is highly anomalous, with vivid orange stripes on her face, blue clown-like eyes, and rainbow-colored hair. Her ears are adorned with jade earrings and she wears an LED gas mask as a precautionary measure.

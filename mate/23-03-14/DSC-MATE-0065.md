@@ -1,0 +1,2 @@
+ID # : DSC-MATE-65
+Description: DSC-MATE-65 is a human male of average build, standing 1.78m tall. DSC-MATE-65 is easily recognizable by his spots and smile, along with his gold earring and silver chain. DSC-MATE-65 also wears a purple cap with a headset, and a pair of goggles on his forehead for unknown purposes. DSC-MATE-65's eyes are normal, but he wears prescription glasses.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8567
+Description: DSC-MATE-8567 is a male human with orange tiger stripes on its face, giving the impression of a permanent mask. Its hair is white and is styled in a manner similar to that of a monk, which is further accentuated by a pair of goggles resting on its forehead. DSC-MATE-8567 is required to wear a silver chain as part of its uniform.

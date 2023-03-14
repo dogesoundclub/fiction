@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1738
+Description: DSC-MATE-1738 is a human female electrician with red clown eyes and metal blue skin. DSC-MATE-1738 has spots on her face and a permanent smile that seems to never leave her face. DSC-MATE-1738 also possesses gold earrings, silver chains, and wears a normal gas mask as an accessory. DSC-MATE-1738's personality is defined by their quick wit and love of debate, which can sometimes lead to playful arguments with friends and family.

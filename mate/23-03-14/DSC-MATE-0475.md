@@ -1,0 +1,2 @@
+ID # : DSC-MATE-475
+Description: DSC-MATE-475, a human female, has two distinct facial features, including spots on her cheeks and a purple lip. Her eyes are obscured by nondescript glasses, and she wears a pink rabbit head with green cross earrings attached to the ears. DSC-MATE-475 wears a medical mask at all times, making communication difficult. Despite this, she displays a strong sense of independence, often refusing help and insisting on doing things herself. 

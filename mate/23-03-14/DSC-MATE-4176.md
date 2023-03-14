@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4176
+Description: 4176 is a male monkey, standing approximately 3 feet in height, with brown fur and brown eyes behind normal glasses. They have a distinctive two-color band on their forehead, and often wear a doge hat and a gold earring in one of their ears.

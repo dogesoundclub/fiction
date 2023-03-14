@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7623
+Description: DSC-MATE-7623 is a male human of average height and build, with orange stripes on his face and a clown mouth. Their distinctive feature is their blue clown eyes and mohawk. DSC-MATE-7623 wears a red scarf as an accessory. DSC-MATE-7623 works as a real estate agent, primarily targeting properties that are rumored or known to be haunted or otherwise associated with paranormal activity.

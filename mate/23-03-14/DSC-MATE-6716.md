@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6716
+Description: Subject 6716 appears as a human male in his late 30s with distinctive orange stripes across his face. The subject is always seen wearing a peculiar “Doge” hat on his head and a medical mask across his frightened mouth. His eyes are covered by normal glasses to correct vision impairment. On colder days, he wears a red scarf to keep his neck warm.

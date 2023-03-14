@@ -1,0 +1,2 @@
+ID # : DSC-MATE-392
+Description: Subject 392 appears to be a human female of average build with distinctive spots on her face as one of her distinct facial features. Her eyes are covered by normal glasses, and she often wears a gold chain around her neck. She typically sports a beaming smile on her face, exuding pleasantness and cheerfulness to everyone she interacts with. However, some of her more unusual behavior includes the heavy use of cigarettes as an accessory and her unusual hairstyle of a 00s schoolgirl.

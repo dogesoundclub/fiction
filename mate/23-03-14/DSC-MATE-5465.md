@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5465
+Description: DSC-MATE-5465 is a male Tiger who manifests himself as a train driver. With its distinctive set of ski goggle eyes and a hooded head resembling a hoodie, DSC-MATE-5465 is easily identified. The entity always wears a red scarf and can often be spotted smoking a cigarette outside the train stations.

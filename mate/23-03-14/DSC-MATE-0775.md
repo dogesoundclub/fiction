@@ -1,0 +1,2 @@
+ID # : DSC-MATE-775
+Description: Subject #775 is a male rabbit of unknown age and origins. Its physical appearance is typical of a common domesticated rabbit, except for the addition of a unique jade earring on the left ear and a vibrant red scarf. Despite its appearance, the subject has demonstrated a natural charm and charisma that can draw individuals towards it in social settings, often acting as the life of the party. However, these characteristics may mask the subject's true intentions and motives.

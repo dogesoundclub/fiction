@@ -1,0 +1,2 @@
+ID # : DSC-MATE-586
+Description: Item #586 is a male human of unknown age that identifies itself as a train driver. It stands at approximately 1.85 meters tall and weighs around 80 kilograms. Item #586's most notable feature is the orange stripes present on its face. Its eyes are bright jade-colored LED lights that exhibit a Virtual Reality display. It identifies as part of the human species and wears a monk's hat covered in a goggle and a red scarf around its neck. It always carries a candy stick in its pocket.

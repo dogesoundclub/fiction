@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1944
+Description: DSC-MATE-1944 is a tiger male with a gold earring on his left ear and a silver chain around his neck, carrying a candy stick as a personal accessory. DSC-MATE-1944 appears to be a humanoid tiger with the ability to speak fluently in English and is capable of transforming into a regular tiger.

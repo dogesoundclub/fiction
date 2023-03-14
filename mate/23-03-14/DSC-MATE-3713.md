@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3713
+Description: Subject 3713 is a human female approximately 35 years of age. Her striking facial features include orange stripes and purple lips, with matching orange eyebrows. Additionally, 3713 wears a medical mask at all times, and sports a green cross earring in her right ear. 3713 frequently wears a retro cap and a silver chain around her neck.

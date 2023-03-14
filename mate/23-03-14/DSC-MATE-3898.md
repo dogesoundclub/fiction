@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3898
+Description: DSC-MATE-3898 is a male monkey of an unknown species with an interest in human news broadcasting. DSC-MATE-3898 appears to be no different from a typical monkey, except for a pair of goggles it wears on its forehead and a gold earring in one ear. Its behavior is akin to that of a human news anchor, with a deep interest in the world and a tendency to search for obscure and unusual topics to cover during its broadcast.

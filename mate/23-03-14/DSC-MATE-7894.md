@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7894
+Description: Subject 7894 is a female of human origin with striking orange stripes on her face as a unique feature. She often wears a choker around her neck and has a smile that lights up any room she walks into. Her eyes are a matching shade of orange, with a faint orange eyebrow above them. Her hair is unkempt and is a vibrant shade of green.

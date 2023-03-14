@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9387
+Description: DSC-MATE-9387 is a female human with a number of distinct physical anomalies. Their face bears orange stripes and has red lipstick applied to their lips. DSC-MATE-9387's eyes are blue with a clown-like design, and their head has the appearance of that of a pink rabbit. A pair of goggles is worn on DSC-MATE-9387's forehead, and they possess a red cross earring in each ear. DSC-MATE-9387 is often seen with a cigarette, which they are known to light and smoke regularly.

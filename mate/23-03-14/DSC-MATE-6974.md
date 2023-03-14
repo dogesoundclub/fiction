@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6974
+Description: Subject 6974 is a human male of average height and build. He has numerous spots that cover his face, giving him a distinct appearance. He can often be seen wearing nerd glasses and a jade earring in his left ear. 6974 is rarely seen without his LED gas mask, which is believed to be for both aesthetic and protective reasons.

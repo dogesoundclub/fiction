@@ -1,0 +1,2 @@
+ID # : DSC-MATE-492
+Description: Subject 492 is a female human of average height and build. She has distinct spots on her face that are accompanied by a bright smile, which makes her appear friendly and approachable at first glance. Her orange eyebrows and 90s brown hair add to her unique and noticeable appearance. However, she is often seen wearing a medical mask on her face, which makes it hard to discern her facial expressions.

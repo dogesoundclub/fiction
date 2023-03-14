@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2430
+Description: DSC-MATE-2430 is a male monkey of unknown species often seen wearing a green helmet and a pair of goggles above the forehead. DSC-MATE-2430 stands at 1.2 meters tall and weighs approximately 30 Kg. DSC-MATE-2430 has two bands of different colors on its forehead which is speculated to be camouflage markings. The monkey is fond of wearing a gold chain and likes to keep candy sticks in its pockets.

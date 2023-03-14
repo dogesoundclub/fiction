@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8589
+Description: Subject 8589 is a human female with distinct facial features, including orange stripes on their cheeks and purple lips. Their head is unarranged green with a two-color band across their forehead, and they wear a red cross earring. They wear a silver chain and normal gas mask as accessories.

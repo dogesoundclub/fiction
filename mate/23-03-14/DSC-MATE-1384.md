@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1384
+Description: DSC-MATE-1384 is a female human of unknown age, with spots covering its face and a constant smile. DSC-MATE-1384's eyes are red in color, resembling those of a clown. DSC-MATE-1384's forehead features a two-color band, and its ears have a green cross earring. DSC-MATE-1384 frequently wears a medical mask over its mouth and a choker around its neck.

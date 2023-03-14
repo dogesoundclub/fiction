@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6477
+Description: DSC-MATE-6477 appears to be a male Siberian tiger of approximately 2 meters in height when standing upright. Its face features a frightened mouth, complemented by a pair of normal glasses. DSC-MATE-6477 wears a police cap on its head, with a two-color band across its forehead. The tiger's ears bear a jade earring, and it wears a gold chain around its neck. Furthermore, DSC-MATE-6477 wears an LED gas mask over its face, connected to a portable oxygen supply.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9127
+Description: DSC-MATE-9127 is a human male, with a unique appearance that separates it from other members of its species. The most notable trait of DSC-MATE-9127 is the VR Rainbow LED eyes that constantly emit multicolored lights. It has spots on its face and a smile on its lips, giving it a friendly, approachable appearance. DSC-MATE-9127 prefers to wear a blue bandana around its head, and a jade earring in one of its ears. It also adorns a golden chain and carries a candy stick at all times.

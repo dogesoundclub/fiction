@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9224
+Description: DSC-MATE-9224 is a male human identified as a reporter for a local news station. Its face exhibits multiple spots and a frightened mouth. It wears normal glasses, a bucket hat on its head, a two-color band on its forehead, and goggles on its forehead. Its ears have a green cross earring, and it often wears a red scarf as an accessory.

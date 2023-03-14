@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3232
+Description: DSC-MATE-3232 is a male human identified as a reporter. DSC-MATE-3232 is known for always wearing a red beanie on its head and sporting a green cross earring in its left ear. Its most notable feature is its constant smile which seems to never wane. DSC-MATE-3232 has typical human eyesight, thus needing to wear normal glasses, however, it frequently adorns an LED gas mask which it claims is for protection and style purposes.

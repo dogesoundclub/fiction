@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5001
+Description: DSC-MATE-5001 is a humanoid female with orange stripes on her face and an orange eyebrow, though her origins and genetic makeup are otherwise identical to that of a standard human. DSC-MATE-5001 sports a choker and a bucket hat, but the most notable aspect of her appearance is the LED gas mask worn over her face.

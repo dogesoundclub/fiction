@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9657
+Description: DSC-MATE-9657 appears to be a female human of unknown origin. They stand at 5'8" tall and have orange stripes on their face. The face is constantly in a smiling expression with blue clown eyes. DSC-MATE-9657's head is not arranged in green, with a 2 color band on the forehead and red cross earrings on both ears. They are often seen wearing a silver chain as an accessory.

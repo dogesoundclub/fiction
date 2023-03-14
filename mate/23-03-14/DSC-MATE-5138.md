@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5138
+Description: DSC-MATE-5138 is a human male with a unique appearance. They possess a distinctive mouth spot on their face, which appears to be in the shape of a smiley face. Additionally, they wear a medical mask at all times, making any other facial features impossible to discern.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8443
+Description: DSC-MATE-8443 is a male human that works as a delivery driver for a private company. DSC-MATE-8443 possesses a unique appearance that is distinctive and easily recognizable. DSC-MATE-8443 has a mouth spot on the right side of his mouth, and a blue bandana on his head. He also sports a pair of red clown eyes and a goggle on his forehead. DSC-MATE-8443 has a jade earring on its left ear, and a silver chain around his neck. DSC-MATE-8443 wears an LED gas mask that obscures its face.

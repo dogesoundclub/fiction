@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5039
+Description: Subject 5039 is a human male with red clown eyes and a distinct mouth spot. They often wear a short peak cap with a goggle on the forehead and show off a gold earring in the left ear. Subject 5039 is often seen wearing a red scarf as an accessory. One unique characteristic of Subject 5039 is the two-color band on their forehead, which appears to have no medical significance.

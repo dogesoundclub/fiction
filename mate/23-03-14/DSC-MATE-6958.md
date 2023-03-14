@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6958
+Description: DSC-MATE-6958 appears to be a female human of average height with spots on her face and purple lipstick. She wears normal glasses and a medical mask to cover her mouth, and sports a 00s school girl hairstyle. DSC-MATE-6958 has a green cross earring on one ear and a choker around her neck.

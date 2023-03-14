@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7599
+Description: DSC-MATE-7599 is a female human electrician with unusual physical features. They have red clown eyes, a green head with edge curls, green cross earrings, and red lips. DSC-MATE-7599 wears a silver chain as their accessory and a medical mask over their mouth.

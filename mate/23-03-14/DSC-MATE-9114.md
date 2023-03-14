@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9114
+Description: DSC-MATE-9114 is a human female with orange stripes on their face and orange hair on the side of their head. They have a two-color band on their forehead and jade earrings on their ears. DSC-MATE-9114 wears a medical mask over their mouth and a silver chain as an accessory. 

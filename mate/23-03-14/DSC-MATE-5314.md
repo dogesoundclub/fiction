@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5314
+Description: DSC-MATE-5314 is a female human of Italian descent, aged approximately 35 years old. It stands at 5'8" and weighs approximately 145 lbs. DSC-MATE-5314's most notable physical features are orange stripes on its face, red lips, and orange eyebrows. It sports a green hairdo, topped off with a purple cap, and a pair of jade earrings. DSC-MATE-5314 is also commonly seen wearing a choker and smoking a cigarette.

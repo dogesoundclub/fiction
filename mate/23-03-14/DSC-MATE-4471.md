@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4471
+Description: Subject 4471 is a human male with distinct physical features such as pink parted hair, a pair of glasses with normal lenses, gold earrings, gold chain, and a normal gas mask. One of the most noticeable facial features is the presence of spots around the skin, which covers the cheeks and forehead area. However, the most striking feature is the perpetually frightened mouth.

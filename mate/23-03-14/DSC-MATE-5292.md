@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5292
+Description: DSC-MATE-5292 is a human male with distinct orange stripes on his face. DSC-MATE-5292's eyes appear to be normal glasses, and a pair of goggles are constantly resting on his forehead. DSC-MATE-5292 can often be seen wearing a silver chain and a jade earring on one ear.

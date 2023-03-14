@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3117
+Description: DSC-MATE-3117 is a human male with a jovial and outgoing personality. DSC-MATE-3117 is typically seen wearing a police cap and a gold chain necklace. The subject's face is often characterized with a large and genuine smile. The subject wears glasses that are of the nerd variety.

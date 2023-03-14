@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6247
+Description: DSC-MATE-6247 is a male tiger with a frightened mouth, horned rim glasses, and a gold earring. DSC-MATE-6247 is highly intelligent, has excellent organizational skills, and is ambitious and goal-oriented. DSC-MATE-6247 works as a real estate agent, using his skills and expertise to sell properties to his clients. He is also known for taking on more than he can handle, leading him to take great risks to achieve his goals.

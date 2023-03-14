@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3756
+Description: Subject 3756 appears to be a monkey of the male sex with the unusual ability to communicate through speech. The subject often wears a purple cap with a headset and sports a pair of nerd glasses over his piercing gaze. The monkey also wears an LED gas mask, which amplifies his ability to observe and detect even the most minute of differences.

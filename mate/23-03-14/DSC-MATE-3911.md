@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3911
+Description: DSC-MATE-3911 appears to be a monkey of the genus Macaca, standing approximately 1.5 meters tall. DSC-MATE-3911 displays an unusual affinity for clothing and accessorizing, often seen wearing a purple cap with a headset, nerd glasses, and a gold chain. DSC-MATE-3911 displays a preference for a normal gas mask, which it is seen wearing at all times.

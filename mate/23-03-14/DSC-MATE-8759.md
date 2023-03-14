@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8759
+Description: DSC-MATE-8759 is a male human police officer with several distinct physical features. DSC-MATE-8759's most notable feature is their red clown eyes, which give the appearance of permanent eye makeup. DSC-MATE-8759 also wears a bucket hat and sports a silver chain as an accessory. DSC-MATE-8759 has a two-color band on their forehead, which is believed to be symbolic of a certain group or organization.

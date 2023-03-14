@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6359
+Description: DSC-MATE-6359 is a female human of average height and weight. Their most prominent physical features include orange stripes on their face, red clown eyes, and blonde hair with a single wing. They also wear a red cross earring and a gold chain as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9841
+Description: 9841 is an anomalous individual that appears as a male rabbit, of normal size and with a frightened mouth. The subject is known to wear a blue bandana on its head and accessorizes with a red scarf and a gas mask.

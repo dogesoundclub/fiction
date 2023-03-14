@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9742
+Description: Subject 9742, known to many as the "Mafia Boss", is a human female with spotted facial features and a distinct purple lip. Their eyes are a bright red, seemingly clown-like in nature, presenting an eerie and unsettling appearance. Subject 9742 is rarely seen without their signature bucket hat and jade earring. They often smoke cigarettes, which adds to their already intimidating demeanor.

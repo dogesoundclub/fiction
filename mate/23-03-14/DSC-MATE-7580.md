@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7580
+Description: DSC-MATE-7580 appears to be a male fashion designer, approximately 177cm in height, with robotic components in his body. DSC-MATE-7580's head is adorned with a retro cap, while a green cyclops eye serves as his facial feature. He has ski goggle-like eyes and wears a silver chain as an accessory.

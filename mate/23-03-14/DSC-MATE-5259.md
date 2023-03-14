@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5259
+Description: DSC-MATE-5259 is a male rabbit of average proportions, measuring 60 cm in length and weighing approximately 4 kg. DSC-MATE-5259 possesses red clown eyes, which glow in low light conditions and can cause minor visual hallucinations in those who make direct eye contact. DSC-MATE-5259 is typically seen wearing a red beanie on its head, a gold earring on its left ear, and a gold chain around its neck. DSC-MATE-5259 also carries a whistle at all times and may use it to issue commands to those around it.

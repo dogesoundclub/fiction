@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3566
+Description: DSC-MATE-3566 is a human female with green hair that has a curl at the edge. She has orange stripes on her face, and green cross earrings on her ears. DSC-MATE-3566 identifies herself as a theater manager and possesses a deep understanding of theatre arts. She also smokes cigarettes frequently and refuses to quit.

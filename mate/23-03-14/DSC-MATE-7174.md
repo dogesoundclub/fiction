@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7174
+Description: DSC-MATE-7174 appears to be a middle-aged male of human origin with a thick coat of spots on his face. An unusual feature is his blue clown eyes that have been reported to be disorienting to individuals making direct eye contact. The subject frequently wears a silver chain around his neck and is often seen smoking a cigarette.

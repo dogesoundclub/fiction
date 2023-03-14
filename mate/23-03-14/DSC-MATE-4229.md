@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4229
+Description: DSC-MATE-4229 is a male monkey believed to have escaped from a nearby circus or zoo. Upon discovery, DSC-MATE-4229 was found working as a reporter for a local news organisation. DSC-MATE-4229 is roughly 1.2 metres in height and has green hair with a purple cap. DSC-MATE-4229 also has a gold earring and wears a gold chain around its neck.

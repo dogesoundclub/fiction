@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5562
+Description: DSC-MATE-5562 is a human male, with green layers on its head, jade earring on its ears, and red clown eyes. DSC-MATE-5562's most distinct facial feature is an unusual mouth spot, which it often complements with a unique smile. DSC-MATE-5562 accessorizes itself with a red scarf.

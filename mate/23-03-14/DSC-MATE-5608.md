@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5608
+Description: Subject 5608 is a female of human species. Their most distinguishing features include their red clown eyes and their illuminated headset. This gives the subject an unnerving appearance, which has made them unpopular with certain Foundation personnel who fear they are not to be trusted.

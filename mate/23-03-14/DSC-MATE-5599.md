@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5599
+Description: DSC-MATE-5599 is a female human of unknown age, with distinct orange stripes on her face and an orange side shave on her head. Her eyes are blue and similar to clown makeup. She wears a gas mask over her face at all times, except during testing, which reveals that she possesses a unique ability to emit a deadly toxin from her mouth and nose, proving lethal to all biological entities within close proximity.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1326
+DSC Description: Containment of Robot Entity #1326 is critical, as it possesses dangerous personality traits that could jeopardize the safety of those around it. The entity identifies itself as a Theater Manager and is believed to exhibit spontaneous behavior, often led by impulsive choices and emotional reactions. The robot's singular green cyclops eye and VR Rainbow LED eyes make identification easy.

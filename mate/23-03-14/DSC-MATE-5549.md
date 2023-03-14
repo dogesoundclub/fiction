@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5549
+Description: DSC-MATE-5549 appears to be a human female with orange eyebrows and pigtails. She wears a gold chain and a red cross earring in her ears. While her appearance is not abnormal, her personality has been observed to include a tendency to fix things in unconventional ways. This may include the use of duct tape or paper clips to repair broken objects or the creation of makeshift solutions to complex problems.

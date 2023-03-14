@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3500
+Description: DSC-MATE-3500 appears to be a human male in his early thirties. DSC-MATE-3500's most prominent feature is his orange-striped face, which is often accompanied by a smile. DSC-MATE-3500's eyes resemble ski goggles, and he wears a green cross earring on his left ear. He is often seen wearing a monk's hood, a gold chain around his neck, and carrying a candy stick.

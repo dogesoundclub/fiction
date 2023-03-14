@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4772
+Description: Item 4772 is a robotic male identified as a firefighter. The subject has a green Cyclops eye and a medical mask covering its mouth. Its head is not arranged with a green finish, and it has a single jade earring visible on its right ear. The subject also dons a red scarf as an accessory.

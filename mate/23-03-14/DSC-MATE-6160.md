@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6160
+Description: 6160 is a humanoid robot standing at 1.85 meters tall, resembling a typical middle-aged man. It has a retro cap on its head, and a pair of goggles rests on its forehead, which assist in tactical analysis. Its ears are adorned with a red cross earring, and a gold chain is wrapped around its neck.

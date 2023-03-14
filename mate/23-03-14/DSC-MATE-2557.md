@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2557
+Description: 2557 was a human female with noticeable spots on her face and a constant smile. Her eyes were replaced with VR Rainbow LED, and she often wore silver chains and an LED gas mask as accessories. She kept her hair in pig-tails and adorned jade earrings.

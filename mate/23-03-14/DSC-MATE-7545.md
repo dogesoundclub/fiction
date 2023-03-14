@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7545
+Description: DSC-MATE-7545 is a male robot of unknown origin, designed to resemble a journalist or reporter. Its one eye is a green cyclops-like feature, with lenses resembling those of ski goggles covering its lower face. DSC-MATE-7545 also wears a bucket hat on its head and a red cross earring on its left ear. When activated, DSC-MATE-7545 communicates through a synthesized voice, and its mouth is obscured by a medical mask.

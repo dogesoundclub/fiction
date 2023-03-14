@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4723
+Description: DSC-MATE-4723 appears to be a typical human female, with the exception of orange stripes on its face and green edges on its hair. Its eyes are VR Jade LED, and it wears a medical mask over its mouth. It also sports a gold earring and a gold chain around its neck.

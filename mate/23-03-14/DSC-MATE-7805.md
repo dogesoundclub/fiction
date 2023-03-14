@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7805
+Description: DSC-MATE-7805 is a male tiger with normal glasses and a goggle on his forehead. DSC-MATE-7805 is noted for having a jade earring on his left ear, a gold chain necklace around his neck, and a whistle on his person at all times. DSC-MATE-7805 exhibits the ability to speak fluently in English and has demonstrated a charming and outgoing personality.

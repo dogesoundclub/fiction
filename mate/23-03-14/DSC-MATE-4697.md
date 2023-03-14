@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4697
+Description: DSC-MATE-4697 is a male robot with a distinctive appearance, featuring an eye-catching Doge hat on top of its head, and a pair of horned rim glasses resting on its eyes. In addition, DSC-MATE-4697 is usually seen with a grey medical mask covering its mouth, and a gold earring on its left ear. It is also known to wear a silver chain as an accessory.

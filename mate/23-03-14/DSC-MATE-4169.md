@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4169
+Description: Subject 4169 is a female human, with a unique physical appearance that features spots on her face and a perpetual smile. Her unmistakeable orange eyebrows and colorful forehead band showcase her individualistic style, which our researchers trace back to 00s school girl aesthetics. The subject also wears jade earrings and is constant seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9577
+Description: Subject 9577 is a male Bengal tiger standing at 6'3" when standing upright. It is distinguishable by the blue bandana tied around its forehead with a pair of goggles perched atop. A gold earring adorns the subject's right ear. Its eyes are concealed behind a pair of glasses, which it relies on for clear vision.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7553
+Description: DSC-MATE-7553 is a male humanoid of the human species, identified as a mechanic by trade. He displays several unique physical features including orange stripes on his face, a two-tone band on his forehead, and an earring made of jade. Perhaps most notably, DSC-MATE-7553 is often seen wearing goggles on his forehead and normal glasses over his eyes. He also wears a silver chain accessory around his neck.

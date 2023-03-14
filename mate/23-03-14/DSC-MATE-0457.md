@@ -1,0 +1,2 @@
+ID # : DSC-MATE-457
+Description: DSC-MATE-457 is a female human identified as a delivery driver. The subject possesses several unique physical characteristics, including spots and a red lip on their face, as well as red clown eyes. DSC-MATE-457's head has an unusual appearance, featuring a wing on the side. Their ears are pierced with a jade earring, and they wear a choker as an accessory.

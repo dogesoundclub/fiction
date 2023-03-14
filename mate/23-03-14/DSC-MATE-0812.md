@@ -1,0 +1,2 @@
+ID # : DSC-MATE-812
+Description: DSC-MATE-812 is a humanoid robot that identifies itself as a car salesman. It stands at 1.8 meters tall and weighs approximately 90 kilograms. DSC-MATE-812's head is covered by a purple cap with a headset and it sports a gold earring on the left ear lobe. Its face has a single green cyclops eye and a frightened mouth. Its eyes consist of VR rainbow LED lights that change color depending on its mood.

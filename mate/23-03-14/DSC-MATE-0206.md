@@ -1,0 +1,2 @@
+ID # : DSC-MATE-206
+Description: DSC-MATE-206 is a human male of unknown age, employed as a fast food worker at a popular chain restaurant. DSC-MATE-206's physical appearance is notable for the presence of a doge hat on their head and a jade earring in each ear. DSC-MATE-206 also wears a silver chain around their neck and is frequently observed smoking a lit cigarette.

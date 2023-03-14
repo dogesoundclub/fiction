@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4746
+Description: DSC-MATE-4746 is a male human of average height and weight with a unique set of facial features. The most notable feature is a mouth spot located on the lower left side of the subject's face. DSC-MATE-4746 also dons a medical mask, a metal purple head, VR rainbow LED eyes, and a gold earring on the left ear. The subject frequently wears a red scarf as an accessory.

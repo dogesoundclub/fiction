@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4315
+Description: DSC-MATE-4315 is a male rabbit that was previously employed as a banker prior to containment. DSC-MATE-4315 stands at approximately 1 meter tall and weighs roughly 15 kilograms. Its body is covered in white fur, and it has a frightened mouth, making it appear as though it is in a constant state of fear. DSC-MATE-4315's eyes are currently unknown as they are always kept closed.

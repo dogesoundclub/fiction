@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2461
+Description: Subject 2461 is a male humanoid who works as a car salesman by profession. This subject has no known anomalous abilities or weaknesses; however, his physical appearance and personal characteristics may indicate an anomalous influence causing his behavior patterns.

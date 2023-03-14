@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3779
+Description: Subject 3779 is a male, humanoid entity with distinctive orange stripes on their face. They possess VR Rainbow LEDs for eyes and a hoodie for a head, making it difficult to discern any further distinguishing features beyond their face. They are known to accessorize with a red scarf and candy stick, which may have some significance to their nature or personality.

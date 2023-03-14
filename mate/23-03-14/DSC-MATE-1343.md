@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1343
+Description: DSC-MATE-1343 is a human female, approximately 30 years of age, standing at 160 cm in height with a unique facial trait of spots, red lips, and orange eyebrows. The subject also wears a rainbow festival headpiece with goggles on the forehead and a 2-color band on the forehead.

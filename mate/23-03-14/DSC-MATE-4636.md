@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4636
+Description: DSC-MATE-4636 is an anomalous robot species resembling a male human. Its head is adorned with a blue bandana, and it wears nerd glasses, a gold earring, and a gold chain around its neck. It is typically seen holding a cigarette in its hand.

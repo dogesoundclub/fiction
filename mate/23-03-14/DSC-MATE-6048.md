@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6048
+Description: DSC-MATE-6048 is a male monkey with a distinctive mohawk. DSC-MATE-6048 also wears a red scarf as its preferred accessory. DSC-MATE-6048 displays a strong sense of independence and rebellion when confronted with authority, especially those it views as unnecessary. This behavior has led to several containment breaches in the past, which has caused significant property damage. DSC-MATE-6048 is able to communicate with humans through hand gestures and limited sign language.

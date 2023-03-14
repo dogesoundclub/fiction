@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3441
+Description: DSC-MATE-3441 is a male tiger specimen with a height of 6'2" and a weight of 430lb. DSC-MATE-3441 displays anxiety and fear through its expression and body language. The creature is capable of speaking human language and has a great sense of humor, often making playful jests and doing impersonations to lighten the mood. DSC-MATE-3441 expresses a desire to help Foundation personnel, particularly with mechanics.

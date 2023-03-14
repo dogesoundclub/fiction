@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5922
+Description: DSC-MATE-5922 is a human male of unknown age, appearing to be in his early thirties. He wears a purple cap with a headset and a silver chain around his neck. DSC-MATE-5922's eyes are obscured by normal glasses, while his most striking feature is his constant smile.

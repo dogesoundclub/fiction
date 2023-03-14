@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8518
+Description: DSC-MATE-8518 is a male human, approximately 36 years of age, and working as a traffic officer. The subject's most notable feature is a spot on their mouth that resembles a clown's red nose. The eyes of DSC-MATE-8518 are a bright red color and emit a slight glow, making them appear to be clown eyes. DSC-MATE-8518's head is parted pink and has one gold earring worn in their right ear. They wear a red scarf and a standard gas mask that doesn't appear to have any anomalous properties. 

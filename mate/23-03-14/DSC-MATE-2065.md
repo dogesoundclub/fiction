@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2065
+Description: DSC-MATE-2065 is a robot that identifies itself as a mechanic. DSC-MATE-2065 has a green cyclops eye and ski goggle lenses for eyes, a bucket hat for its head, and a red cross earring in one ear. DSC-MATE-2065 always carries a whistle as an accessory.

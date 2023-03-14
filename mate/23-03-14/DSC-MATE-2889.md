@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2889
+Description: DSC-MATE-2889 is a male robot of unknown origin that possesses a very curious and absent-minded personality. Its body appears to be made out of various scrap metals and electronics, with ski goggle lenses serving as its eyes. DSC-MATE-2889 is often seen wearing a silver chain necklace, which is believed to hold some sort of sentimental value to it.

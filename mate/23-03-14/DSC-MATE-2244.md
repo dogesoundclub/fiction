@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2244
+Description: DSC-MATE-2244 appears to be a tiger specimen, standing at 1.8m in height, with a tiger's distinctive striped fur. Its head is covered with a blue bandana, and its ears are adorned with a red cross earring. DSC-MATE-2244's eyes are covered with what appears to be nerd glasses, which it refuses to remove. DSC-MATE-2244 is also known to wear a silver chain around its neck and smoke cigarettes.

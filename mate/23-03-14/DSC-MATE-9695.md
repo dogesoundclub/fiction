@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9695
+Description: Item 9695 appears to be a sentient rabbit with a male anatomy. It seems to have the ability to understand and communicate in human languages unknown to our species, and his voice can be heard through any electronic device within a 10-meter radius. The rabbit has a purple cap on his head, containing an electronic headset with an unknown purpose. Its blue clown eyes are also visible, and it wears a red scarf around its neck. It has a candy stick in one of its paws, and a goggle is placed on its forehead.

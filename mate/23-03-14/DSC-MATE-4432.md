@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4432
+Description: DSC-MATE-4432 is a human female of average height and build, with distinctive spots covering her face and a purple lip. Her eyes are replaced with VR rainbow LED technology, and her head features two pig tails. She wears a medical mask on her mouth and a gold earring in each ear, as well as a silver chain as an accessory.

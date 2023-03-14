@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6081
+Description: DSC-MATE-6081, also known as "The Don," is a female humanoid of the species Homo sapiens. DSC-MATE-6081's appearance is distinct, featuring spots on the skin and a purple lip. DSC-MATE-6081's head is adorned with green hair in a purple cap, and they have jade LED eyes and jade earrings.

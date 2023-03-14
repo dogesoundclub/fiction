@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1615
+Description: DSC-MATE-1615 is a humanoid entity, appearing to be a male in his late thirties. DSC-MATE-1615 is approximately 185 cm tall and weighs 72 kg. DSC-MATE-1615 has distinctive facial features, including multiple spots on its face and a parted pink hairstyle. DSC-MATE-1615 wears nerd glasses and a red victory band on its forehead, as well as a goggle atop its forehead to keep its hair out of its eyes. DSC-MATE-1615 has one gold earring in its left ear and often wears a red scarf.

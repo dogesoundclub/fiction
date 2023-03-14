@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7212
+Description: DSC-MATE-7212 appears to be a human female in her late 20s-early 30s, with red lips and orange eyebrows. She has blonde hair that is often seen in an ushanka, and a double-color band on her forehead. She wears a medical mask over her mouth and has been seen wearing a green cross earring on both ears. DSC-MATE-7212 always sports a gold chain, which seems to be of sentimental value to her.

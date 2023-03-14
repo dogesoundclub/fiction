@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7194
+Description: Subject 7194 appears to be a female human with distinct anthropomorphic features. The subject has spots on their face and purple lips, which are possibly the result of a rare genetic abnormality. The subject's eyes are blue and resemble those of a clown, which may indicate some form of mutation. Additionally, the subject has blonde hair with a wing and a gold earring on each ear.

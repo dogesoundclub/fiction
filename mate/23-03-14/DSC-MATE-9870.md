@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9870
+Description: DSC-MATE-9870 is a human male of average height and weight, with green layers covering their head and blue clown eyes. DSC-MATE-9870 also possesses a unique physical feature, a mouth spot of unknown origin. The subject's ears are adorned with a cross earring that also appears in a shade of green. The humanoid also ties a red scarf around his neck as an accessory.

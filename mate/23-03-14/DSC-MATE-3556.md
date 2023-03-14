@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3556
+Description: Item 3556 appears to be a male rabbit, sporting a doge hat on its head and a gold chain around its neck. Its eyes are adorned with a pair of nerd glasses and it can often be seen with a cigarette hanging from its mouth. Item 3556's forehead is marked with a two-color band, and it is frequently observed with a frightened expression on its mouth.

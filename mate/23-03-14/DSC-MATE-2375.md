@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2375
+Description: Officer 2375, a male tiger with horned rim glasses and a red beanie, stands at 6'4" and weighs approximately 250 pounds. His forehead is adorned with a two-color band and a jade earring dangling from each ear. When on duty, Officer 2375 can be seen wearing a medical mask over his mouth.

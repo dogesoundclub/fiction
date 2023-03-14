@@ -1,0 +1,2 @@
+ID # : DSC-MATE-818
+Description: DSC-MATE-818 is a human male with spotted facial features, and normal glasses over his eyes. DSC-MATE-818 has hair that appears to be made up of several overlapping green layers, and is often seen wearing a gold earring in one ear. Additionally, DSC-MATE-818 is often seen wearing a red scarf and smoking a cigarette.

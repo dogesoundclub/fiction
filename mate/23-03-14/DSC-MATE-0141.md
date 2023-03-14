@@ -1,0 +1,2 @@
+ID # : DSC-MATE-141
+Description: DSC-MATE-141 is a humanoid robot standing at approximately 1.9 meters in height. Its face features a constantly frightened expression with a wide-open mouth. It possesses a pair of glasses commonly worn by individuals with poor eyesight, as well as a single gold earring on its left earlobe. It also wears a silver chain around its neck, and a regular gas mask that covers its nose and mouth. DSC-MATE-141 has a distinct personality, characterized by a great sense of humor and the ability to make others laugh.

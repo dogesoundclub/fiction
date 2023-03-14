@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9183
+Description: Subject 9183 is a female human of average height and weight with distinct orange stripes on their face and purple lipstick. Their eyebrows are also orange, contrasting with their medical mask that they wear over their mouth. They are rarely seen without a glimmering gold chain around their neck.

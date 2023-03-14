@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8458
+Description: Subject 8458 is a human male, roughly 40 years old, with unusual facial features. The subject bears a prominent mouth spot and clownish mouth, which he accentuates with a red and white striped candy stick. His eyes are a bright shade of red and are reminiscent of a clown's. His hair is worn in a peak spike, and he often wears a gold chain to complement his eccentric look.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9877
+Description: Subject 9877 is a human female with spots on her face and purple lips. She wears normal glasses and has a two-color band on her forehead, with goggles on her forehead. She also wears a gold earring and a silver chain around her neck, and is often seen smoking a cigarette.

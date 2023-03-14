@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5703
+Description: Agent 5703 appears to be a male Bengal tiger with red clown eyes. The head of the tiger sports a purple cap with a headset, along with a red victory band on the forehead. An embellished gold chain is also worn across the chest along with a whistle. Despite their physical appearance, they have shown exceptional dexterity and skill with their beauty work, being able to complete haircuts, facials, and pedicures with ease. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3792
+Description: DSC-MATE-3792 appears to be a humanoid tiger with blue clown eyes. It wears a Doge hat on its head, and a red victory band around its forehead. The tiger has a red cross earring on each ear and carries a whistle as an accessory.

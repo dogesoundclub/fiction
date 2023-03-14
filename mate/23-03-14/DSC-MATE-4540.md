@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4540
+Description: Item 4540 is a robotic being, standing approximately six feet tall, with a single green Cyclops eye at the center of its face. Its head is adorned with a “Doge” hat, and a medical mask covers its mouth. The eyes of Item 4540 are made of VR jade LED, and it wears a gold earring and a gold chain around its neck.

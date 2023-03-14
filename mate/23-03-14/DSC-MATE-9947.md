@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9947
+Description: Subject 9947 is a female human of unknown age, designated as a security guard in the urban fantasy world. The subject is marked by distinct orange stripes and a red lip that is striking in appearance. Subject 9947's eyes are modified with VR (Virtual Reality) rainbow LED, and a goggle on their forehead. Additionally, the subject wears a jade earring in their left ear and a medical mask over the bottom portion of their face.

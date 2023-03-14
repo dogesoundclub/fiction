@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3044
+Description: DSC 3044 is a rabbit that stands at 1.2 meters in height. They possess a peculiar addiction for candy sticks which are often seen poking out of their mouth. It is important to note that the candy sticks do not possess any anomalous traits in themselves. However, subject 3044 is seen often to refuse any help, even when clearly required. The subject may resort to trying to move heavy objects alone, and show some reluctance to use maps when lost.

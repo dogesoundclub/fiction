@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8564
+Description: DSC-MATE-8564 is a robotic entity appearing to have been custom-made by an unknown manufacturer. DSC-MATE-8564's body is composed of a durable metal alloy, covered in various gold accessories such as earrings and chains, and wears a purple cap with a headset. DSC-MATE-8564's facial anatomy consists of a single green cyclops eye and a frightened mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1737
+Description: DSC-MATE-1737 is a male robot designed to look like a human lawyer. It stands at approximately 6 feet tall and wears a red beanie on its head with goggles resting on its forehead. DSC-MATE-1737's mouth is always in a state of terror, as if it is in a constant state of fear. It further accessorizes its appearance with a red scarf.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5440
+Description: DSC-MATE-5440 is a male human of average height and build. They have short brown hair styled in a retro cap and are often seen wearing large, gold hoop earrings. DSC-MATE-5440 is commonly seen with a smile on their face and a lit cigarette in their hand. They have been identified as a news anchor for a local television station.

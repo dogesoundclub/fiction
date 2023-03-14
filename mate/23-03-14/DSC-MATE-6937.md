@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6937
+Description: 6937 is a male rabbit specimen standing at approximately 1 foot tall. It has striking blue clown eyes, paired with green hair in a purple cap, attached with goggles resting on its forehead. The rabbit also sports a Jade earring in one of its ears and a silver chain as an accessory. It presents no anomalous abilities at this time, but some caution is still advised.

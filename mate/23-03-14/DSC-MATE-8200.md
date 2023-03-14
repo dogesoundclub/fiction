@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8200
+Description: DSC-MATE-8200 is a human female of ambiguous age with striking facial features. DSC-MATE-8200's face is marked with orange stripes and red lip color. Their eyes have orange eyebrows and they wear a tiara on their head along with gold earrings. DSC-MATE-8200's mouth is often covered by a medical mask.

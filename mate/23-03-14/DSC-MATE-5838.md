@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5838
+Description: DSC-MATE-5838 is a male human in his early fifties with the appearance of a Monk. His face is always adorned with a gentle smile, and he wears nerd glasses on his eyes while sporting a goggle on his forehead. He has a simple chain made of silver wrapped around his wrist and wears a gold earring on his right ear. He also wears a medical mask on his mouth, which may be either a measure of hygiene or a precaution taken to keep his abilities under control.

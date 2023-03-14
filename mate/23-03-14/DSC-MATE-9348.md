@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9348
+Description: DSC-MATE-9348 is a human male, currently employed as a train driver. DSC-MATE-9348's most notable feature is his constant smile. They accessorize with a purple cap with a headset and a gold chain. DSC-MATE-9348 wears normal glasses, and no anomalous properties have been identified in their eyes.

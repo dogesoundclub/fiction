@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4268
+Description: DSC-MATE-4268 is a male human identified as a firefighter by profession. DSC-MATE-4268's physical features include spots on the face, forehead with a two-color band, parted pink hair, and green cross earrings. DSC-MATE-4268 wears nerdy glasses and a gold chain as accessories.

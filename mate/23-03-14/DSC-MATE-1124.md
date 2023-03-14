@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1124
+Description: DSC-MATE-1124 is a male human, standing approximately 6 feet tall. Their most notable feature is a dark spot on their mouth, resembling a birthmark. They often wear a hooded jacket and regularly wear normal glasses. DSC-MATE-1124's forehead is adorned with a red band with the word "Victory" written on it. They also wear a red scarf and are commonly seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8370
+Description: Subject 8370 is a human male with red clown eyes and a metal purple head. He is currently employed as a theater manager, but has exhibited behavior indicative of a more sinister underlying condition.

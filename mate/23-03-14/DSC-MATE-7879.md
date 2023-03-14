@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7879
+Description: DSC-MATE-7879 is a male Capuchin monkey, standing approximately 60cm tall, clad in a red scarf and wearing normal glasses, with a distinctive mohawk on top of its head. DSC-MATE-7879 is highly intelligent, with advanced cognitive abilities and is fluent in several languages, including sign language.

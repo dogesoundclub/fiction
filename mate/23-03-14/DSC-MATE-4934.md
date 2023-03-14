@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4934
+Description: DSC-MATE-4934 is a male human with orange stripes on its face and an ever-present smile. Its eyes are obscured by normal glasses, and it wears a medical mask over its mouth. DSC-MATE-4934 also wears a silver chain around its neck.

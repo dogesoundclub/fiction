@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9867
+Description: DSC-MATE-9867 is a male humanoid with the appearance of a Bengal Tiger (Panthera tigris tigris). DSC-MATE-9867 is approximately 1.8 meters (5'11") tall and weighs approximately 150 kilograms (330 pounds). DSC-MATE-9867 exhibits a natural fear response, as evidenced by its constantly frightened mouth feature.

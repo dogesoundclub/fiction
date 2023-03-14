@@ -1,0 +1,2 @@
+ID # : DSC-MATE-851
+Description: DSC-MATE-851 appears as a human female in her late 20s to early 30s, with short black hair that is often styled into a witchy bob. She is often seen wearing a medical mask, hiding her mouth from view. Her most distinct facial feature is her purple lips, which contrast with her pale skin. Her eyes are a unique VR Rainbow LED that glows brightly in low light. DSC-MATE-851 also wears a silver chain around her neck and a pair of jade earrings in her ears.

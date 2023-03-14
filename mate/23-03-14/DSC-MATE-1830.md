@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1830
+Description: DSC-MATE-1830 is a Female Human with several distinguishing physical features. Her face is covered in numerous spots, and she wears bright red lipstick. DSC-MATE-1830 has blue clown eyes that have been observed to produce a mild hypnotic effect on certain individuals. Her head is covered in blonde hair, usually worn under an Ushanka. DSC-MATE-1830's most prominent ear is adorned with a gold earring. DSC-MATE-1830 is constantly seen with a cigarette in her hand or mouth.

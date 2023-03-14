@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8342
+Description: Object 8342 is a male robot of advanced design and construction, bearing significant resemblance to a human doctor. The robot stands at approximately 5'8" in height and weighs approximately 150 lbs. Its head is adorned with a short peak cap, which is typically worn by doctors, and a jade earring in one ear. Its face bears a single, green cyclops eye, and it wears normal glasses over the other eye. The robot also wears a medical mask to cover its mouth and a red scarf around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5619
+Description: DSC-MATE-5619 is a male human with orange stripes on his face, along with a perpetually frightened mouth. He wears a retro cap with a two-color band on his forehead along with a jade earring and a silver chain. He is often seen wearing a normal gas mask, most likely to disguise himself.

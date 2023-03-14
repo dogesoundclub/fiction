@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5865
+Description: DSC-MATE-5865 appears to be a human male in his late 20s to early 30s, approximately 178cm in height and weighing 87.5kg. DSC-MATE-5865 has multiple spots on his face and red clown eyes, which are believed to be a result of anomalous means. DSC-MATE-5865 is typically seen wearing a purple cap with a headset and a jade earring, as well as a gold chain.

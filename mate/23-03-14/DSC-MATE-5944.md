@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5944
+Description: Subject 5944 is a human female with distinctive orange eyebrows, green unkempt hair that is never styled, spots on their face, and a bright red lip. They are often seen wearing a choker and a gold earring in their right ear. They are also often found smoking cigarettes, and this appears to have a calming effect on them.

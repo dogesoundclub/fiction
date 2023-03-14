@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3991
+Description: DSC-MATE-3991 is a male humanoid robot designed primarily as an electrician. It stands approximately 1.8 meters tall and weighs approximately 150 kilograms. Its face features a permanent expression of fear with an open mouth. Its eyes are VR Rainbow LED displays capable of changing colors and patterns. DSC-MATE-3991 wears a red cross earring on its left ear and a red scarf around its neck. It also smokes a cigarette, despite lacking a need for sustenance or oxygen.

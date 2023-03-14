@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6755
+Description: DSC-MATE-6755 is a human female, with notable spots on her face as a distinguishing feature. She typically keeps her head covered with a Retro Cap, and wears a Medical Mask over her mouth for unknown reasons. Despite her mundane appearance, DSC-MATE-6755's personality can be unpredictable, due to her tendency to be introspective for extended periods.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3102
+Description: Object 3102 is a machine being, resembling a humanoid robot of indeterminate origin. Its body is mostly metallic, with a retro cap on its head and a gold chain hanging around its robotic neck. The entity also bears a red cross earring, worn on one of its metallic ears. Its most prominent feature, however, is its singular green cyclops eye.

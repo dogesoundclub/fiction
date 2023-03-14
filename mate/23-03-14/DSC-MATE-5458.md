@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5458
+Description: DSC-MATE-5458 is a delivery driver robot with one large green cyclops eye mounted on its head. The robot's face is further adorned with a pair of normal glasses. DSC-MATE-5458 typically wears a hoodie and a red scarf. It appears to be anatomically male in form and design.

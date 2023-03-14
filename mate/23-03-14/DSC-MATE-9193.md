@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9193
+Description: Subject 9193 is a male European rabbit of average size, measuring about 38 centimeters in length and weighing about 1.5 kilograms. The eyes of Subject 9193 are unique and abnormal, resembling horned-rim glasses. They consistently wear a red scarf and a normal gas mask that is too big for their face. The origin of these items is currently unknown, but they are believed to be essential for their daily routine.

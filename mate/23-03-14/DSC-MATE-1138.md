@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1138
+Description: DSC-MATE-1138 is a human female of average height and weight. She has red clown eyes and a distinctive purple lip, which she accentuates with purple lipstick. DSC-MATE-1138 has green hair with a purple cap and wears a red cross earring in her ears. She often carries a cigarette with her at all times.

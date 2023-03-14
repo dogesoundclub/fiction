@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2730
+Description: Subject 2730 is a male monkey standing at 1.2 meters tall, weighing 40 kilograms, and possessing blue clown eyes and a parted pink head. One of its unique features is its jade earring, which adorns its left ear. Subject 2730's access to art supplies and lack of interest in grooming itself have led to a ruffled and unkempt appearance. When frightened or distressed, the subject's mouth may open to an exaggerated degree.

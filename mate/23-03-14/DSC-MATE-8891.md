@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8891
+Description: DSC-MATE-8891 is a male robot with a green head that is not arranged in a typical humanoid fashion. It wears horned rim glasses and a gold earring in one ear. DSC-MATE-8891's primary task is that of a banker, and it has access to extensive financial records and databases.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7395
+Description: DSC-MATE-7395 is a female human politician who stands approximately 5'5" in height. DSC-MATE-7395 is known for wearing a retro cap, a medical mask, and a 2-color band on their forehead. DSC-MATE-7395 also wears jade earrings and a gold chain around their neck.

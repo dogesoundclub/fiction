@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8077
+Description: DSC-MATE-8077 is a male Siberian tiger, standing at approximately 2.25 meters tall when on all fours. Its fur is mainly orange with black stripes, and it often wears a red scarf around its neck. DSC-MATE-8077 has a frightened mouth and wears a medical mask over its face. Its eyes are replaced by VR Rainbow LED implants, and it wears a Doge hat on its head and a red cross earring on its left ear.

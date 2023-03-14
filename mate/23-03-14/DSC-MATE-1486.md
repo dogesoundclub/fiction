@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1486
+Description: Item 1486 is a male rabbit of average size and weight. Item 1486's eyes are comprised of VR Jade LED lights, and its head is adorned with a bucket hat. A silver chain is also worn around its neck, and a candy stick is often seen in its mouth. Item 1486 also wears a jade earring on one of its ears and has a goggle on its forehead.

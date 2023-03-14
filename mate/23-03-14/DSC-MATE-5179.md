@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5179
+Description: Subject 5179 is a male monkey standing at 5 feet tall with bright blue clown eyes. His unique appearance is accentuated by his mohawk hairstyle and gold earring. Of note, he also wears a goggle on his forehead and is often seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6413
+Description: DSC-MATE-6413 is a human male of indeterminate age, standing at approximately 5'8" tall and weighing approximately 160 lbs. DSC-MATE-6413 has several distinct facial features, including numerous spots on their face, a medical mask worn over their mouth, and a hooded sweater pulled up over their head. DSC-MATE-6413 also wears a gold chain around their neck.

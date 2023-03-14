@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1802
+Description: Item 1802 is a female human with distinctive purple lips and spots adorning her face. Most notably, Item 1802's head is covered in unkempt green hair, with goggles perched atop her forehead. She is known to wear gold earrings and a silver chain. Item 1802's most remarkable trait is her highly organized and efficient personality, often coming across as bossy or controlling in group settings.

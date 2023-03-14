@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3282
+Description: DSC-MATE-3282 is a human male of unknown age, approximately 1.8 meters in height, weighing around 90 kilograms. DSC-MATE-3282 is a notorious mafia boss, known for his charisma and for being able to connect with others on a deep level. DSC-MATE-3282 has a distinct appearance, including spots on his face and normal glasses. He is often seen wearing a red beanie, a jade earring, a red scarf, and carrying a candy stick.

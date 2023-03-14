@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2266
+Description: DSC-MATE-2266 is a male tiger with noticeable features such as nerdy glasses, a blue bandana around its head, and a gold earring on its right ear. Unlike other tigers, DSC-MATE-2266 possesses a humanoid physical form and the ability to speak fluently with those around it. DSC-MATE-2266 had worked as a train driver before being captured by Foundation personnel. Further investigation revealed that DSC-MATE-2266 has superior train driving skills compared to any human.

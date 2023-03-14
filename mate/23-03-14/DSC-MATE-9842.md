@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9842
+Description: DSC-MATE-9842 is a male human identified as a fashion designer. DSC-MATE-9842's physical appearance includes a mouth spot, VR jade LED eyes, a peak spike head, gold earrings, a medical mask worn on the mouth, and a red scarf. DSC-MATE-9842's empathetic abilities make them highly attuned to the emotions of others, and they have a reputation for being able to make people feel better in difficult situations.

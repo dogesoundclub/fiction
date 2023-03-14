@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4913
+Description: Subject 4913 is a human male in his mid-twenties, standing at a height of 6'1" and weighing approximately 190lbs. His most distinctive feature is the orange stripes adorning the sides of his face, which he claims are a part of his natural appearance. The subject's eyes are unusual- resembling ski goggles, complete with tinted lenses- and he sports a mohawk on his head. For added protection, he often obscures his mouth and nose with a medical mask, and wears a silver chain on his neck.

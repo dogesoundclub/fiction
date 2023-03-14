@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9245
+Description: Subject appears to be a human female, identified as a Beautician and seen frequently wearing a medical face mask. Her most noticeable feature is a series of spots on her face, which are considered to be benign. Additionally, subject's head is noted as being witch short, further adding to her peculiar appearance. The subject frequently accessorizes with a choker, for unknown reasons.

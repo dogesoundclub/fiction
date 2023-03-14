@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2999
+Description: DSC-MATE-2999 is a human female with distinctive features including spots on the face and a wide smile. The subject's eyes are orange eyebrow-coloured and the head is witch short. There is a pair of goggles attached to the forehead and a green cross earring on each ear.

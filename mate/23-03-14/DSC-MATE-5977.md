@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5977
+Description: Subject 5977 appears to be a male Tiger (Panthera tigris) standing at approximately 6 feet tall. Its most notable features include normal glasses, a red beanie, and a medical mask covering its mouth. On its forehead, there is a set of goggles and a red cross earring adorning both ears. The subject is also often seen wearing a gold chain around its neck.

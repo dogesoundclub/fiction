@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8983
+Description: DSC-MATE-8983 is a male tiger identified as a news anchor. DSC-MATE-8983 possesses the ability to exhale various gasses and toxins, including but not limited to carbon monoxide, hydrogen cyanide, and sulfur dioxide. DSC-MATE-8983's glasses appear to be designed to increase the clarity of its vision and its bucket hat and red scarf are often seen as fashion accessories.

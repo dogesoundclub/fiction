@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5306
+Description: DSC-MATE-5306 appears to be a male human of average height and weight. He has spotted skin on his face and a frightened mouth that gives him a constant look of distress. DSC-MATE-5306's most prominent facial feature is a pair of nerdy glasses that he wears, seemingly for aesthetic purposes only. Other notable features on his face include a pair of jade earrings and a cigarette that he is usually seen smoking.

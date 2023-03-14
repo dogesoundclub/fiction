@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3533
+Description: 3533 is a male robot with a unique appearance. Its head is a red alarm, with a single green cyclops eye in the center. The robot's eyes are covered by nerd glasses, giving it a distinct scholarly appearance. It is typically observed wearing a silver chain and smoking a cigarette -- though the latter is not required for its operational functionality.

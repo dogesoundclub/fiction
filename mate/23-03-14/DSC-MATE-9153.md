@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9153
+Description: DSC-MATE-9153 is a human female of average height and weight. She has dyed green hair styled in a short bob and wears a purple cap with a golden star embroidered on the front. Her eyes are a bright red and resemble clown makeup. DSC-MATE-9153 has a gold earring on her left ear and a pair of goggles on her forehead. She also wears a silver chain necklace.

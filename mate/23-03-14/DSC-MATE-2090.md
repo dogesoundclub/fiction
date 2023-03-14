@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2090
+Description: Subject 2090 is a human female who works as a delivery driver. They possess a distinctive purple lip and have blue clown eyes. The subject sports a retro cap on their head and wears a gold chain as an accessory. They have a two-color band that runs across their forehead and a green cross earring on their ear. A pair of goggles is also found on the subject's forehead.

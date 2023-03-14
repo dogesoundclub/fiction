@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2588
+Description: Agent 2588, also known as the Real Estate Agent, is a human female with VR Rainbow LED eyes and a pink rabbit head. Agent 2588 dons a choker accessory that is believed to enhance her natural abilities. Her personality is characterized by a logical and analytical mindset which is balanced by her quirky sense of humor. She is known for making witty observations and often teases her colleagues and friends in a dry, deadpan way.

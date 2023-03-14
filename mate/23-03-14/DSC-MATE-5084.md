@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5084
+Description: DSC-MATE-5084 is a human female of average height and build. Its face is notable for the presence of a number of dark spots, distributed prominently across the cheeks and forehead. It displays a distinctive style of makeup, featuring bright red lipstick and glasses with rectangular frames. DSC-MATE-5084's hair is dyed green and styled in a manner that emphasizes the edges and curls.

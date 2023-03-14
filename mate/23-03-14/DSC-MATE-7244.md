@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7244
+Description: Item 7244 was a female human of average height and build, with distinctive spots on her face and bright red clown eyes. She was often seen wearing a black hoodie, a silver chain, and an LED gas mask, which she claimed was for protection from pollution during delivery runs.

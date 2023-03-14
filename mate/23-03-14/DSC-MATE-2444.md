@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2444
+Description: DSC-MATE-2444 is a human female identified as a security guard. DSC-MATE-2444 displays distinctive orange stripes on her face and purple lips. The eyes of DSC-MATE-2444 possess unique orange eyebrows, and the subject is frequently observed wearing a hoodie with a two-color band on her forehead.

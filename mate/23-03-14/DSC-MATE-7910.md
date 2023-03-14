@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7910
+Description: DSC-MATE-7910 is a male human of average height, with orange stripes on its face, which are believed to be tattoos. Its most striking feature is its smile, which is always present, even in the most stressful or dangerous situations. Its eyes are replaced with VR Rainbow LED, which are capable of displaying a wide range of emotions, including happiness, sadness, anger, and fear.

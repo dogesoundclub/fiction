@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4599
+Description: DSC-MATE-4599 is a human female with distinctive facial features: spotted skin and purple lips. DSC-MATE-4599's eyes are cybernetic and glow jade green with the words "VR" displayed on them. DSC-MATE-4599's hairstyle and accessories resemble that of a 2000s schoolgirl, complete with green cross earrings, a choker, and an LED gas mask.

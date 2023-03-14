@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8433
+Description: Subject 8433 appears as a male rabbit standing at approximately 1 meter tall. The subject has a distinct retro cap on its head, gold earrings on its ears, and normal glasses covering its eyes. It is often seen wearing a red scarf around its neck and carrying a whistle on a lanyard.

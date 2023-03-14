@@ -1,0 +1,2 @@
+ID # : DSC-MATE-267
+Description: DSC-MATE-267 is a male human of average height and build. His most notable feature is a small blue spot near the corner of his mouth, which he claims is a birthmark. DSC-MATE-267 also has a second mouth overlaid onto his primary one, which opens and closes at random intervals. This is believed to be a manifestation of his anomalous properties.

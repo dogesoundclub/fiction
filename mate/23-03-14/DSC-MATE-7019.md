@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7019
+Description: DSC-MATE-7019 is a female politician with distinct orange stripes on their face and a permanent smile. They are frequently seen wearing a bucket hat and an LED gas mask, as well as a gold chain and a green cross earring on each ear. DSC-MATE-7019's forehead displays a 2 color band pattern that is constantly shifting.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9687
+Description: Subject 9687 is a humanoid female who appears to be in her mid-thirties. Her face features orange stripes that run along her cheeks and forehead, and she wears a pair of regular glasses. Her blonde hair is styled with an elegant wing, and she wears a green cross earring in one ear.

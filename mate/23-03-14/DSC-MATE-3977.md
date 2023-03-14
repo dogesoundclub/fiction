@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3977
+Description: Officer 3977 is a human female with 90s-style brown hair and normal glasses. She has a distinctive feature in the form of a set of purple lips. Adding to her ensemble is a silver chain worn as an accessory. Her empathetic and compassionate nature towards others has contributed to her success as a police officer. Officer 3977 is dedicated to her job and tends to take on other people's problems as her own. This has resulted in her feeling responsible for fixing every person and everything around her, both admirably but also exhaustingly.

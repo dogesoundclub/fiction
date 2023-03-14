@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2878
+Description: Subject 2878 is a male human with a distinct mouth spot and ski goggle eyes. The subject often wears a short peak cap and silver chain, as well as a normal gas mask. Despite these peculiarities, subject 2878 presents no anomalous properties.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6573
+Description: Subject 6573 is a male rabbit, measuring approximately 40cm in height when standing upright, with a frightened opening at the mouth and a pair of blue clown's eyes. The subject is frequently seen wearing a bucket hat and silver chain around his neck.

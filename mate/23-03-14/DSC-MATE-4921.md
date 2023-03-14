@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4921
+Description: DSC-MATE-4921 is a 35-year-old male fashion designer of Afro-Caribbean descent. DSC-MATE-4921's facial features include spots on the cheeks and a wide, infectious smile. DSC-MATE-4921's eyes resemble ski goggles, and he sports a brightly colored mohawk with a gold earring on his right ear. DSC-MATE-4921 often wears a gold chain around his neck and an LED gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3763
+Description: DSC-MATE-3763 is a female human of average height and build, with distinctive orange stripes and a purple lip on her face. However, the most notable feature of DSC-MATE-3763 is her eyes, which have been modified to appear as VR jade LED lights.

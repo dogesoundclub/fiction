@@ -1,0 +1,2 @@
+ID # : DSC-MATE-909
+Description: DSC-MATE-909 is a male rabbit with a green head and blue clown eyes. DSC-MATE-909 has a pair of jade earrings and is often seen wearing a gold chain and smoking a cigarette. DSC-MATE-909’s most notable feature is its frightened mouth.

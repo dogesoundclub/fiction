@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5000
+Description: DSC-MATE-5000 is a human male in his mid-twenties who works as a delivery driver for a local courier service. DSC-MATE-5000's most distinctive physical features are his red beanie and green cross earring. DSC-MATE-5000 is generally pleasant and affable, often sporting a friendly smile. DSC-MATE-5000 wears normal glasses and displays no other abnormal physical attributes.

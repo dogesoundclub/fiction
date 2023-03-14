@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2818
+Description: Subject 2818 is a human female of average height and build. The subject appears to have brown hair from the 90s and is usually seen wearing a silver chain. Its most notable characteristic is the orange stripes on its face. These stripes have not been observed to be a result of any known disease or medical condition.

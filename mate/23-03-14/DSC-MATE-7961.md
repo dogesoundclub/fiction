@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7961
+Description: DSC-MATE-7961 is a police robot with a green cyclops eye for a primary camera, normal glasses for a secondary camera, and a frightened mouth. DSC-MATE-7961 stands at 5'10" tall and wears a doge hat, a medical mask, a red scarf, and a jade earring on its right ear.

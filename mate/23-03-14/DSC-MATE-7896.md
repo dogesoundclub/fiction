@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7896
+Description: Subject 7896 is a human female train driver with orange stripes on her face, red lips, and orange eyebrows. Her head is adorned with a tiara, and she wears a red cross earring. She is often seen with a cigarette in hand.

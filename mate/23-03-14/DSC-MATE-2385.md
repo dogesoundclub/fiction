@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2385
+Description: #2385, also known as "The Empath," is a male human who appears to be in his mid-30s. He stands at 1.8 meters tall, with a medium build and short, curly brown hair. His most notable facial feature is a black spot around his mouth, which appears to grow and shrink depending on his mood. He is often seen wearing nerd glasses with green layers around his head, and a gold chain necklace hanging around his neck. He is also frequently seen smoking cigarettes, despite the warnings issued by security personnel.

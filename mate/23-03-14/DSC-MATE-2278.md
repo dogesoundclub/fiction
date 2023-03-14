@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2278
+Description: DSC-MATE-2278 is a human male identified as a traffic officer from the city of ███████. It possesses several physical anomalies which makes it easily identifiable. Notable features include a series of blue and black spots that envelop its entire body, circular nerd glasses situated over its eyes, not arranged green hair on its head, and a medical mask which it frequently wears.

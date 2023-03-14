@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8817
+Description: Subject 8817 is a human female with a wing protruding from her head. Her face contains several spotted features and red clown eyes. She possesses purple lips and a choker that serves as an accessory. Her forehead features a two color band that is yellow and white. It is unknown where the wing originates from or what its purpose is.

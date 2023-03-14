@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3716
+Description: Subject 3716 is a male rabbit of an unidentifiable species. They possess a headset with LED, a red scarf, and an LED gas mask as accessories. Subject 3716 manifests heightened senses, with a particular sensitivity to the emotions of others. This allows them to respond to and pacify individuals who may be distressed, and as such, it is hypothesized that they have a passive effect on human emotion.

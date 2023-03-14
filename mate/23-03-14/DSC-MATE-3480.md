@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3480
+Description: Subject 3480 is a humanoid entity of the female sex covered in orange stripes, donning a bucket hat on the head, gold earrings on the ears, a silver chain around the neck, and sporting a captivating smile. Of note, the eyes seem to be cybernetic in nature, featuring VR Rainbow LED lights. The subject is often seen smoking a cigarette.

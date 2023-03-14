@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1916
+Description: DSC-MATE-1916 is a female human of unknown age, working as a fast food employee at ██████ burger joint. DSC-MATE-1916 stands at an average height of 5'5" with spots on her face and clown red eyes, wearing a hooded sweatshirt and a choker around her neck. She is frequently seen smoking a cigarette.

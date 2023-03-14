@@ -1,0 +1,2 @@
+ID # : DSC-MATE-676
+Description: Item 676 is a female humanoid with spotted skin and purple lips. Its most notable features are its bright orange eyebrow eyes, as well as its pink rabbit head and jade earring ears. Item 676 usually hides its face behind a medical mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-332
+Description: DSC-MATE-332 is a humanoid of the female sex, standing at 5'7" and weighing approximately 125lbs. DSC-MATE-332's most notable physical features include orange stripes on the cheeks and red lips. DSC-MATE-332 has 90s brown hair and green cross earrings. DSC-MATE-332 is often seen wearing a gold chain necklace.

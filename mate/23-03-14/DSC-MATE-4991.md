@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4991
+Description: DSC-MATE-4991 is a human male with several distinctive facial features which include spots and a frightened mouth. DSC-MATE-4991 is often seen wearing a doge hat. DSC-MATE-4991's demeanor is generally calm and polite in nature. DSC-MATE-4991's occupation is that of a doctor.

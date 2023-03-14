@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5891
+Description: 5891 is a human male, appearing to be in his late thirties, with orange stripes on his face and a constantly frightened expression on his mouth. His large blue clown eyes are always moving erratically, and he is often seen wearing a Doge hat with a red scarf wrapped around his neck. On his forehead, he has a two-color band symbolizing his occupation as a traffic officer.

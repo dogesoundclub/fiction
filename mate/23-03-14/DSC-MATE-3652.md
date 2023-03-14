@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3652
+Description: #3652 appears to be a tiger of unknown origin, with a frightened mouth and VR rainbow LED eyes. The creature is often seen sporting a blue bandana and a jade earring, as well as a whistle.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-988
+Description: DSC-MATE-988 is a male rabbit of the species Oryctolagus cuniculus. His demeanor is generally amicable, exhibiting a great deal of humor and quick wit. DSC-MATE-988 expresses a love for practical jokes, puns, and mockery, preferring to use humor to diffuse tension in potentially hostile situations.

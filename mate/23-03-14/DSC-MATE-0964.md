@@ -1,0 +1,2 @@
+ID # : DSC-MATE-964
+Description: DSC-MATE-964 is a male rabbit of average size and weight. Its face features a frightened mouth and is fitted with VR jade LED eyes that allow DSC-MATE-964 to access virtual reality. DSC-MATE-964's head is distinctly not arranged green in color, with gold earrings adorning its ears. DSC-MATE-964 wears a red scarf and carries a candy stick as a preferred accessory.

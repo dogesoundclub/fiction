@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4955
+Description: DSC-MATE-4955 is a female human believed to be in her mid-thirties. Her appearance is unique and distinguishable. She has spots on her cheeks and a purple lip. Her eyebrow color is orange, and her hair is styled in an orange-coloured side. DSC-MATE-4955 has a red cross earring and a choker. Additionally, she wears a goggle on her forehead. 

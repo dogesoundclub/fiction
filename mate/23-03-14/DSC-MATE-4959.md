@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4959
+Description: DSC-MATE-4959 is a robotic entity designed to resemble a human male fast food worker. The robot stands approximately 172cm tall and weighs 78kg. DSC-MATE-4959 has a green cyclops eye as its main facial feature, along with ski goggles for eyes, a red alarm for a head, and red cross earrings for ears. DSC-MATE-4959 also wears a gold chain around its neck and a normal gas mask.

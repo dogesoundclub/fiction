@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9845
+Description: 9845 is a human male in his mid-20s with striking orange stripes as a face feature. He is commonly seen wearing a smile and a pair of glasses of normal size. The subject's head features green layers, while his ears possess a cross-shaped green earring. 9845 is often seen with a gold chain as his go-to accessory.

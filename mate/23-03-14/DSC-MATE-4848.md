@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4848
+Description: Officer Dreamer is a human male with a unique set of physical features. His most notable facial feature is a black spot above his bottom lip. Despite this, his smile remains one of his most significant traits. His blue clown-like eyes leave an impression on those who meet him. The parted pink hair may seem out of place, but it is nothing compared to the jade earring that can be seen as he turns his head. Furthermore, Officer Dreamer always carries a red scarf around his neck.

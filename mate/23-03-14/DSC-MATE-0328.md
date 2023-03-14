@@ -1,0 +1,2 @@
+ID # : DSC-MATE-328
+Description: DSC-MATE-328 is a male monkey of the species Cercopithecus. DSC-MATE-328 possesses various cybernetic implants and modifications, including a set of VR Rainbow LED eyes and a blue bandana worn around its head.

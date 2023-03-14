@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7121
+Description: DSC-MATE-7121 is a human male with orange stripes on its face. Its mouth is perpetually in a frightened expression, and its eyes are augmented with VR rainbow LED. DSC-MATE-7121 often wears a red beanie, a gold earring, and a red scarf. It also carries a candy stick as an accessory.

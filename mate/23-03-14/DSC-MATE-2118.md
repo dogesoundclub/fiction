@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2118
+Physical Description: DSC-MATE-2118 wears a purple cap that has a headset attached. DSC-MATE-2118 has red scarf and jade earring. While the eyes are indistinguishable, its mouth frequently exhibits signs of fear.

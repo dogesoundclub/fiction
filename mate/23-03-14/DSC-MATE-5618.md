@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5618
+Description: DSC-MATE-5618 appears to be a male monkey species with a frightened mouth feature. DSC-MATE-5618 wears horned rim glasses, a retro cap, and a jade earring, along with a red scarf and a whistle as accessories. DSC-MATE-5618 is a fast food worker, and the exact location of their workplace is currently unknown.

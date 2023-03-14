@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7840
+Description: Subject 7840 is a male robot, designed to mimic the appearance of a human male. The robot stands at approximately 6 feet and weighs approximately 200 pounds. Subject 7840 is identifiable by its signature red beanie, jade earring, and gold chain. The robot displays a notable frightened mouth expression and regularly carries a cigarette with unknown origins.

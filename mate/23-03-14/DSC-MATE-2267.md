@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2267
+Description: Subject 2267 appears to be a male rabbit, with their entire body covered in golden fur. Their retro cap and gold chain suggest a fondness for the aesthetic of the mafia. They wear an LED gas mask that glows with an eerie light, obscuring their frightened mouth.

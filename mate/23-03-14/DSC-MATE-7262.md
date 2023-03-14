@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7262
+Description: DSC-MATE-7262 is a human female of average stature with spots on their face and purple lips. The subject's hair is blonde with a wing like protrusion extending from their head, and is adorned with two color bands across their forehead. DSC-MATE-7262 is also known to wear a jade earring and a silver chain as an accessory.

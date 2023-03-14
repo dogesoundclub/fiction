@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1016
+Description: Subject 1016 is a Caucasian female with blonde hair worn in an Ushanka (Russian fur hat). She is often seen wearing a medical mask over her mouth, and a green cross earring on her left ear. Despite her seemingly unassuming appearance, subject 1016 is a notorious Mafia boss with a long history of violent crimes and ruthless tactics.

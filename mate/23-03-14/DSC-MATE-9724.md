@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9724
+Description: Subject 9724 is a male human, approximately 35 years of age, with distinctive orange stripes on his face. His striking appearance is enhanced by jade LED eyes and a frightened mouth. The subject wears a police cap and green cross earring, along with a silver chain for added ornamentation.

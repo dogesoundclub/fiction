@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4985
+Description: DSC-MATE-4985 appears to be a female human, identified as an electrician by profession. DSC-MATE-4985 is approximately 1.57 meters tall and weighs 51.7 kilograms. DSC-MATE-4985 possesses unique physical characteristics, including spots on their face and blue clown eyes. DSC-MATE-4985’s head resembles that of a 00s school girl, and a goggle can be seen attached to the forehead.

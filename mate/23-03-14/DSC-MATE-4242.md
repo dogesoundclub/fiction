@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4242
+Description: DSC-MATE-4242 is a male human with distinctive spots covering his face. He also possesses a pair of red clown eyes and wears a police cap on his head. DSC-MATE-4242 has a unique two-color band across his forehead, along with a pair of goggles resting on his forehead. Additionally, DSC-MATE-4242 has a jade earring on each ear.

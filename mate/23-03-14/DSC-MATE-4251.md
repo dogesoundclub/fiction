@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4251
+Description: DSC-MATE-4251 is a human female in her mid-thirties with blue clown eyes, and wears a purple cap with a headset. Her forehead features a two-color band, and she wears a gold earring and a silver chain as accessories. The subject works as a fashion designer, but reportedly has a strong desire to make the world a better place through activism and social justice movements.

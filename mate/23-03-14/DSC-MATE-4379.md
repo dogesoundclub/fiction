@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4379
+Description: DSC-MATE-4379 appears to be a humanoid robot constructed of various metals and alloys. It stands at approximately 6'5" in height and weighs roughly 500 lbs. Its eyes consist of thick prescription glasses, giving it the appearance of a stereotypical nerd. Its ears are adorned with a single gold hoop earring. DSC-MATE-4379 is typically seen carrying a whistle, though its purpose is unknown.

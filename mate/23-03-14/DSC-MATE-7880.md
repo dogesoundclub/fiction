@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7880
+Description: DSC-MATE-7880 appears as a male monkey, standing approximately 1.2 meters tall. Its head is covered in bright green hair, and it often wears a purple cap adorned with a gold chain. Its eyes are replaced with virtual reality rainbow LED lights, which emit a pulsing glow. DSC-MATE-7880 often carries a candy stick in its hand.

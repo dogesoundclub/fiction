@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1703
+Description: Subject 1703 is a male individual who appears to be of human species. The most notable feature of the individual is his orange stripes and blue clown eyes, which make him instantly recognizable. His head is covered in a blue bandana, which covers a small portion of his forehead that has goggles attached, and he sports a jade earring on each ear, as well as a silver chain around his neck. The individual is often seen wearing a gas mask, but no anomalous properties have been detected from the mask.

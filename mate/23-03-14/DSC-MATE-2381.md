@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2381
+Description: DSC-MATE-2381 is a humanoid female designated as a fashion designer. Her physical appearance is notable for her red lips and bright orange eyebrows. She sports a purple cap with a headset and a pair of goggles resting on her forehead.

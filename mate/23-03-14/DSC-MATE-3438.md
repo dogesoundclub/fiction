@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3438
+Description: DSC-MATE-3438 is a humanoid entity that appears to be of the human species. The subject is a female with 90s brown hair, green cross earrings on both of her ears, and a silver chain around her neck. DSC-MATE-3438 is always seen wearing a normal gas mask and has red clown eyes.

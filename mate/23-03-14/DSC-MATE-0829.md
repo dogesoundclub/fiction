@@ -1,0 +1,2 @@
+ID # : DSC-MATE-829
+Description: DSC-MATE-829 appears to be a male human in his early 40s. He has a small black spot on his lips, a blue bandana around his head, and ski goggles for eyes. DSC-MATE-829's most prominent facial feature is his perpetual smile. He also has a jade earring and a red scarf that he keeps in his pocket. It is unknown whether these items have any anomalous properties.

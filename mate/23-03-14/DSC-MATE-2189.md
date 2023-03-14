@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2189
+Description: Subject is a human male, with distinguishing features including a mouth spot and ski goggle eyes. The subject's head is often seen adorned with a blue bandana and accessorized with a silver chain. 

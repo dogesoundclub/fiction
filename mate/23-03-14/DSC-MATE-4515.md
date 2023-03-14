@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4515
+Description: DSC-MATE-4515 is a male monkey of the species Macaca fascicularis, commonly known as a long-tailed macaque. It stands approximately 45 cm tall and weighs approximately 6 kg. DSC-MATE-4515 possesses a unique appearance as it wears a purple cap with green hair, and a gold chain around its neck. DSC-MATE-4515 also wears normal glasses, which it requires to maintain its vision.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6979
+Description: DSC-MATE-6979 is a male tiger approximately 2 meters in length with distinct facial and bodily features. Despite its intimidating appearance, DSC-MATE-6979 has displayed a relatively calm disposition towards human beings, although instances of aggression have been noted during periods of distress.

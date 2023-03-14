@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2761
+Description: Subject 2761 is a human male, with a frightened mouth and normal glasses. His head is parted pink, with a red victory band and goggles on the forehead. He wears a gold earring and a gold chain, and is often seen carrying a candy stick.

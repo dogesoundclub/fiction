@@ -1,0 +1,2 @@
+ID # : DSC-MATE-395
+Description: Item 395 appears to be a human male in his late twenties. The item has a head of bright green hair that is maintained in a purple cap. The item's eyes are fitted with VR Rainbow LED's that can display a range of colors and images. The item is often seen wearing a red scarf and a jade earring.

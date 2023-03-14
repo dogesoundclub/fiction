@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7828
+Description: DSC-MATE-7828 is a robotic news anchor of unknown origin. Its appearance is that of a male with a single green cyclops eye and a frightened mouth. Its eyes are made out of virtual reality rainbow LED and wears a red cross earring on its ears. DSC-MATE-7828 is frequently seen wearing a retro cap and uses a medical mask as a mouth.

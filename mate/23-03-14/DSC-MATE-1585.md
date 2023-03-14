@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1585
+Description: Subject 1585 is a male humanoid of average build and height. He sports thick orange stripes across his face and a permanent wide smile. His eyes are covered by ski goggle lenses, and he often wears a bucket hat on his head. At all times, a gold earring adorns his left ear and a red scarf is worn around his neck, which often changes characters in winters, latest it is Jack Skeleton face.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8570
+Description: DSC-MATE-8570 is a male rabbit of unknown age and origin. The entity measures 35 centimeters in height, and weighs approximately 1.5 kilograms. DSC-MATE-8570 is capable of speaking fluently in multiple languages, primarily English and French, and possesses a quick wit and an inclination towards debate. DSC-MATE-8570 does not display any anomalous properties aside from its linguistic abilities.

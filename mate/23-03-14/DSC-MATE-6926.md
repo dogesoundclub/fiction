@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6926
+Description: DSC-MATE-6926 is a female human with orange stripes on her face and orange eyebrows. She has typical 90s brown hair and wears a red cross earring on each earlobe. DSC-MATE-6926 also wears a medical mask, primarily to hide her contagious laughter.

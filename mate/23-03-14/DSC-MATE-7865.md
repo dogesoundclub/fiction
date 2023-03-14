@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7865
+Description: Subject 7865 appears to be a typical human male in his mid-thirties with a charismatic personality. However, upon closer observation, several unusual physical features become apparent. The subject has orange stripes across his face, giving him an almost tiger-like appearance. His eyes are covered with what appears to be ski goggles, and he wears a police cap on his head. Subject 7865 also sports a jade earring and a gold chain.

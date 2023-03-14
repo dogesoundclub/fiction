@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2712
+Description: Subject 2712 is a male humanoid of the human species. 2712 is distinguishable by its orange stripes that adorn its face feature, curved upwards into a wry smile. Subject 2712 sports a purple cap with a headset, and a red victory band that rests upon its forehead. 2712's attire includes a silver chain that can be seen around its neck.

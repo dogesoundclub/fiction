@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3590
+Description: DSC-MATE-3590 is a human female veterinarian, identified as Dr. [REDACTED]. DSC-MATE-3590 has orange stripes along the left side of its head and wears a red cross earring on its right ear. DSC-MATE-3590 also has a choker around its neck. The most notable feature of DSC-MATE-3590 is its VR jade LED eyes, which emit a glow that is similar to that of a jade gemstone.

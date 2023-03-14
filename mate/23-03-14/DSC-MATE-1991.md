@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1991
+Description: DSC-MATE-1991 is a female human with prominent spots on her face and a distinct smile that is often unsettling to observers. Their eyes are a bright orange color and their head is shaved on one side, with the remaining hair dyed the same orange color as their eyebrows. DSC-MATE-1991 wears a red cross earring on their right ear and a standard gas mask on their face, which they refuse to remove under any circumstances. DSC-MATE-1991 also wears a black choker around their neck at all times.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3626
+Description: DSC-MATE-3626 appears to be a male monkey of an unknown species. It stands approximately 1 meter tall and is adorned with a retro cap. DSC-MATE-3626 has reflective ski goggles for eyes and a frightened mouth. It wears a normal gas mask as an accessory.

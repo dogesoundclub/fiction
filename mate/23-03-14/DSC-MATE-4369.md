@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4369
+Description: Subject 4369 appears to be a human male in their mid-thirties, with a normal build and blonde hair. Their most striking feature is a spot on their mouth, which appears to be a darker shade of their natural skin tone. They are often seen wearing a medical mask, which they claim is necessary for hygiene reasons in their line of work, as well as a pair of goggles on their forehead and a green cross earring. It is unknown if these accessories hold any anomalous properties.

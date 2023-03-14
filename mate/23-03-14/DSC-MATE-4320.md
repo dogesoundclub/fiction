@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4320
+Description: DSC-MATE-4320 is a male rabbit of average size, standing at approximately 1.1 meters and weighing 5 kilograms. They possess blue clown eyes and a frightened mouth, which gives them a perpetual expression of fear. DSC-MATE-4320 wears a blue bandana, a red scarf around their neck, and an LED gas mask over their face, which is always lit up with colorful patterns. Despite the use of a gas mask, DSC-MATE-4320 is capable of speech and has excellent communication skills.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1483
+Description: Subject 1483 is a male Siberian Tiger approximately 2.5 meters in length, weighing 250 kilograms. The subject possesses a blue bandana over his head with gold earrings, red scarf and wears a medical mask on his mouth as standard practice to avoid accidental injury from a bite.  The subject's eyes are a striking blue, almost like clown eyes that stare with an unsettling veneer. 

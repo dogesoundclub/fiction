@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8936
+Description: Subject 8936 is a male monkey of the species unknown, standing at approximately 1.2 meters in height when fully erect. Its most distinctive feature is a pair of large, red clown eyes, which glow brightly in low-light conditions. The subject's head is covered with normal black hair, and it wears a pair of goggles on its forehead at all times. The goggles are of unknown origin and composition, but they appear to grant the subject enhanced visual acuity and night-vision capabilities.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2362
+Description: The Mechanic is a male sentient rabbit, measuring approximately 0.5 meter in height. Its head is covered by a hoodie, which it wears at all times, and has a distinctive 2-color band on its forehead. The Mechanic often accessorizes with a silver chain around its neck. The subject’s intelligence is on par with that of a human and has been known to converse fluently in English.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4711
+Description: Subject 4711 is a male human in his early thirties. He sports a red beanie on his head and a pair of normal glasses that obscure his eyes. However, the most notable feature of his face is the series of spots that pepper his skin. Despite this, he constantly wears a friendly smile that puts those around him at ease.

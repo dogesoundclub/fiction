@@ -1,0 +1,2 @@
+ID # : DSC-MATE-946
+Description: DSC-MATE-946 is an electrician robot of unknown manufacture. It stands at 1.8 meters tall and weighs approximately 180 kilograms. Its body is made of durable metal alloy with a matte black finish. DSC-MATE-946's head features a red beanie and a gold earring on its left ear. Its VR jade LED eyes glow when it is active. The robot's mouth is covered by a medical mask, and it wears a red scarf around its neck.

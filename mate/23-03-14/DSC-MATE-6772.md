@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6772
+Description: Subject 6772 is a male human, identified as a firefighter by profession. He possesses a distinct feature on his mouth, which has been documented as a "spot". His eyes are often seen adorned by nerd glasses. It is worth noting that his head of hair is never arranged nor styled, which could suggest a lack of self-care. Subject habitually sports two accessories, a silver chain and a peculiar LED gas mask.

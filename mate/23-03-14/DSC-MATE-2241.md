@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2241
+Description: DSC-MATE-2241 is a male robot possessing a humanoid appearance. Its head is not arranged in the typical humanoid configuration and is instead a shade of green. DSC-MATE-2241's eyes are usually seen behind normal glasses, while its ears are adorned with a red cross-shaped earring. Additionally, DSC-MATE-2241 can often be seen wearing an LED gas mask.

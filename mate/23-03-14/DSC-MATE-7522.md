@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7522
+Description: DSC-MATE-7522 is a male human, identified as a notorious mafia boss. His face is covered with numerous spots, which have been classified as a genetic anomaly. DSC-MATE-7522's most noticeable feature is his constant smile, which is unnerving and may indicate a lack of empathy or humanity.

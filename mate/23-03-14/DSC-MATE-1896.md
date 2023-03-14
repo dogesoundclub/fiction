@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1896
+Description: DSC-MATE-1896 is a female human identified by the presence of purple lips, red clown eyes, and 00s schoolgirl attire. The entity's most prominent feature is her red cross earring which has been shown to emit a low-frequency hum when DSC-MATE-1896 experiences heightened emotional states. DSC-MATE-1896 is believed to be a reality bender and has been classified as Euclid due to the unpredictable nature of her abilities.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7149
+Description: DSC-MATE-7149 is a human female with orange stripes on their cheeks and purple lips. They possess VR Jade LED eyes and a goggle on their forehead. DSC-MATE-7149 also bears a single gold earring in their left earlobe. They present no anomalous physical abilities or traits.

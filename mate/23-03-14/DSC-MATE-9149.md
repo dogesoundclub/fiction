@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9149
+Description: DSC-MATE-9149 is a human female serving as a news anchor for a local news station. Her most notable feature is her orange-striped face and red lipstick, accompanied by blue clown eyes. She has a pair of goggles on her forehead and sports a red cross earring in her left ear. Her choice of accessories includes a silver chain and an LED gas mask.

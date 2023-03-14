@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8189
+Description: DSC-MATE-8189 is a male monkey, approximately 1.2 meters tall and weighing 35 kilograms. Despite its animalistic appearance, DSC-MATE-8189 possesses a pair of VR Rainbow LED eyes, which cannot be removed or deactivated. Its head is not arranged green, as observed during initial capture.

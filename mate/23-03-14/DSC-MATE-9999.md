@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9999
+Description: DSC-MATE-9999 is a human female in her mid-forties with brown hair characteristic of the 1990s. She is often seen wearing red cross earrings, with normal glasses perched on her nose. DSC-MATE-9999 can typically be seen sporting a warm smile behind her medical mask.

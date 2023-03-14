@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2700
+Description: 2700 appears to be a humanoid tiger, with piercing red clown-like eyes and a red beanie on top of its head. It sports a single gold earring on its left ear, along with a silver chain necklace. It is also commonly seen wearing a standard gas mask. Its physical capabilities are yet to be tested. However, it has displayed enhanced strength and agility during its escape attempts.

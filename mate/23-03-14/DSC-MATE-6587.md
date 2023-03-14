@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6587
+Description: DSC-MATE-6587 is a female human identified as a reporter for [REDACTED] news agency. It is approximately 29 years old, stands at 1.67 meters in height and has a weight of 63.5 kilograms. DSC-MATE-6587's physical appearance is distinctive, with blonde hair and an unknown avian wing protruding from its scalp. Its eyes are a bright orange hue, and its eyebrows are shaped like wings. DSC-MATE-6587 also has a red cross earring and a gold chain.

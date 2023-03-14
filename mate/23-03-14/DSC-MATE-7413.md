@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7413
+Description: DSC-MATE-7413 is a male human of average height, with a pair of notable nerd glasses covering his eyes, and a hoodie covering his head. DSC-MATE-7413 has a distinctive 2-color band on its forehead, which changes color depending on its mood. DSC-MATE-7413 can often be seen carrying a candy stick, which it utilizes to alleviate stress and anxiety.

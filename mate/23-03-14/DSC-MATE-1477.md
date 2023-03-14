@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1477
+Description: DSC-MATE-1477 is outwardly indistinguishable from a common domestic rabbit, but with highly advanced anatomic capabilities which allow it to function as a highly skilled traffic officer. DSC-MATE-1477 exhibits highly advanced cognitive abilities and emotion regulation. For example, DSC-MATE-1477 may break down into tears or emotional outbursts when it sees another person in pain or suffering, even if the person is a stranger.

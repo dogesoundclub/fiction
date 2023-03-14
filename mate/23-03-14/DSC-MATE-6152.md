@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6152
+Description: Item 6152 is a male monkey of the Macaca species, standing at approximately 1.2 meters in height. The monkey has a frightened mouth and is often seen wearing horned rimmed glasses. Its head is covered with a red beanie and is marked with a two-color band while a goggle rests on its forehead. It also sports a gold earring and wears both a red scarf and a gas mask.

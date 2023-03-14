@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6020
+Description: Subject 6020 is a male monkey of an unknown species, approximately 4 feet in height, and weighing 100 pounds. It wears a purple cap with a headset and horned rim glasses and has a jade earring in one ear. The subject has a goggle on its forehead and carries a candy stick and gold chain as accessories. Its eyes are small and beady, and it has sharp claws and teeth.

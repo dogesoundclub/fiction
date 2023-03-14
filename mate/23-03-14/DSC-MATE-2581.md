@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2581
+Description: Subject 2581 appears to be a male monkey that has been genetically modified to possess the ability of human-like speech and programming skills. The subject stands at a height of 2.5 feet and has a distinctive mohawk on its head. The subject is often seen with a pair of goggles on its forehead and a jade earring in one of its ears.

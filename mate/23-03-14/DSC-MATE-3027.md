@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3027
+Description: DSC-MATE-3027 is a humanoid entity of the human species, identified as a fashion designer by profession. Its most notable physical features include a virtual reality Jade LED eye prosthetic, a pink rabbit-shaped head, and Jade earrings functioning as its ears. DSC-MATE-3027 is commonly seen carrying a cigarette for personal recreational purposes.

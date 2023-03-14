@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4363
+Description: Item 4363 is a male monkey, standing at approximately 4 feet tall. It is employed as a fashion designer in a prominent high-end fashion house. Item 4363 has a unique appearance with its frightened mouth which is often visible when it's agitated or scared. It is always seen wearing a hoodie, and its nerdy glasses cover its eyes. Its forehead has a two-color band that is visible when it removes its hoodie. Item 4363 is also often seen wearing a red scarf and holding a candy stick.

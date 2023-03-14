@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5153
+Description: DSC-MATE-5153 is a male monkey of unknown species, standing at approximately 1.1 meters tall and weighing 25 kilograms. Upon capture, DSC-MATE-5153 was found wearing a silver chain and a pair of goggles on its forehead, along with a gold earring on its left ear. A two-color band is also visible on its forehead.

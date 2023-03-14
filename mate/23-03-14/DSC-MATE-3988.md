@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3988
+Description: Officer 3988 is a male primate of the species Macaca mulatta, otherwise known as a rhesus monkey. Officer 3988 is approximately 150 cm tall and weighs 25 kg. Officer 3988 displays a very noticeable mohawk upon its head, with one gold earring on each ear. Additionally, Officer 3988 is frequently seen wearing a red scarf and gnawing on a candy stick.

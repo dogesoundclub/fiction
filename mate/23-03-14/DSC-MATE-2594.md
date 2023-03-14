@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2594
+Description: DSC-MATE-2594 is a male human, approximately 35 years old, with a broad smile and thick nerd glasses. DSC-MATE-2594's hair is not arranged, with several strands of green hair visible. DSC-MATE-2594 frequently wears a silver chain around their neck and can often be seen with a candy stick in their mouth.

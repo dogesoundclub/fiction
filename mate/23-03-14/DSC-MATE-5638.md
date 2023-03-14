@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5638
+Description: DSC-MATE-5638 is a humanoid female identified as a banker. Her physical appearance is notable for orange stripes on her cheeks, purple lips, VR Rainbow LED eyes, pig tails on her head, and red cross earrings on her ears. She often wears a choker and is frequently observed smoking a cigarette.

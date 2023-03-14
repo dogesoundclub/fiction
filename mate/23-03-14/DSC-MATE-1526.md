@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1526
+Description: DSC-MATE-1526 is a male humanoid of the Homo sapiens species. They have a characteristic mouth spot on their left cheek, adding to their unique appearance. Subject's mouth is often covered with a medical mask, making it difficult to discern any further features. Their eyes are an abnormal characteristic, as they appear to have been modified to feature a VR Rainbow LED. DSC-MATE-1526 dons a police cap as their preferred headwear and accentuates their appearance with a gold chain.

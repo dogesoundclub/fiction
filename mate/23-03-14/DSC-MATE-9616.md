@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9616
+Description: DSC-MATE-9616 is a humanoid of the female gender, approximately 30 years old with a height of 5'6''. The subject has multiple spots on her skin, which have been determined to be natural pigmentation. Of note are her unique eye implants, which project a virtual reality rainbow LED effect. Her head is stylized in the likeness of a typical 00s school girl, although she herself is not connected to any known cultural phenomenon.

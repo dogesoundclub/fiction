@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6610
+Description: Subject 6610 is a female human who appears to be in her mid-30s. The subject's face is characterized by several large spots on the skin, along with red lipstick and two blue clown eyes that seem to follow observers' movements. The subject's forehead is marked with a two-color band and a goggle rests atop her head. The mouth is concealed by a medical mask. A choker is worn around the neck, and the subject is typically dressed in a style reminiscent of 00s schoolgirls.

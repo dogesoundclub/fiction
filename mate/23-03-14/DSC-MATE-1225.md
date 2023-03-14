@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1225
+Description: DSC-MATE-1225 is a human female of average height and build. She wears a bucket hat and a medical mask at all times, with one gold earring and a silver chain necklace. She has spots on her face and red clown eyes, which appear to be a permanent feature. DSC-MATE-1225 is a beautician and is known to have a great sense of humor, often making others laugh with her funny stories and silly impersonations.

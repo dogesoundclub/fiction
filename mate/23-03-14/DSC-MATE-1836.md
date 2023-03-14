@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1836
+Description: DSC-MATE-1836 is a robotic car salesman operating in an unknown location. DSC-MATE-1836 stands at 6 feet tall, with a metal frame and a head adorned with a retro cap. DSC-MATE-1836's face is covered with a medical mask and normal glasses, concealing its face from view. DSC-MATE-1836 is also decorated with a silver chain in a decorative fashion.

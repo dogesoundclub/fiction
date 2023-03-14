@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7972
+Description: DSC-MATE-7972 is a male monkey of indeterminate origin. It possesses the ability to communicate in all known human languages and has been determined to have an intelligence level well above that of a normal monkey. DSC-MATE-7972 is currently in the employ of the local police department as a police officer.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2110
+Description: DSC-MATE-2110 is a male primate of the species Macaca mulatta, commonly known as the rhesus monkey. It exhibits some unusual characteristics, including blue clown eyes, parted pink hair on the head, and a jade earring in each ear. DSC-MATE-2110 shows an insatiable curiosity about the world around it, often engaging in random and sometimes bizarre behavior as a means of exploring its environment.

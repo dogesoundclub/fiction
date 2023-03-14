@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7876
+Description: DSC-MATE-7876 appears superficially as a common rabbit. Its fur is dark brown, and it possesses a pair of normal glasses worn over his eyes. One distinctive characteristic of DSC-MATE-7876 is that it dons a red victory band on its forehead, typically worn by war heroes. In addition, DSC-MATE-7876 also wears a gold chain and a whistle around its neck. It has been noted that DSC-MATE-7876's gold earring changes position, never staying in one ear for long.

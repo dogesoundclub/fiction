@@ -1,0 +1,2 @@
+ID # : DSC-MATE-841
+Description: DSC-MATE-841 is a male primate of the species Macaca, measuring at about 1.1 m in height and weighing approximately 30 kg. It possesses notable traits that set it apart from most members of its species, such as having a rich and varied vocabulary of several different languages, including but not limited to Japanese, Russian, and Italian. DSC-MATE-841 also has exceptional abilities in organization, strategy, and finance, with a predisposition towards criminal activities.

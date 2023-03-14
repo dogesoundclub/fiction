@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4260
+Description: Item 4260 is a male rabbit with a red beanie on its head, gold earring on its ear, and sporting nerd glasses. The item usually wears a gold chain necklace and carries a whistle for unknown reasons. Item 4260 possesses a unique ability to fix things in an unconventional manner. They are highly practical and hands-on, which sometimes leads them to use duct tape or paper clips to repair broken objects.

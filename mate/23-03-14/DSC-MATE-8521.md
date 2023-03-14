@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8521
+Description: Subject 8521 appears to be a male tiger, standing approximately 6 feet tall and weighing around 400 pounds. The subject's fur is a reddish-orange color, and it has a blue bandana tied around its head. The subject's mouth is constantly in a frightened state, with its VR jade LED eyes glowing dimly in the dark. The subject's ears are pierced with jade earrings, and it wears a silver chain around its neck. The subject is often seen carrying a whistle, which it uses to communicate with its handlers.

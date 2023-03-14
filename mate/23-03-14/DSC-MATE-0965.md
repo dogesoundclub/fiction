@@ -1,0 +1,2 @@
+ID # : DSC-MATE-965
+Description: Subject 965 appears to be a humanoid robot wearing a medical mask and nerd glasses. Its mouth is perpetually frozen in a frightened expression, while its ears are adorned with a gold earring and silver chain. The robot is programmed to work as a delivery driver, equipped with a high-speed transport system for delivering packages across the city.

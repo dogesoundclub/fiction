@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2335
+Description: DSC-MATE-2335 is a human female with spots across her face as its distinctive physical characteristics. DSC-MATE-2335 has the ability to sense the feelings of others and often predicts events before they happen. DSC-MATE-2335 may display behavior resembling that of psychic abilities; however, there has been no evidence of any paranormal activity.

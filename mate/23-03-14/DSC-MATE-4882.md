@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4882
+Description: DSC-MATE-4882 is a human male of approximately 32 years of age, standing at 6 feet tall. The subject works as a veterinarian in small town located in rural America. DSC-MATE-4882's most prominent features are his mouth spot and frightened mouth. The subject's eyes resemble those of a clown and are colored blue, a trait that is not found in normal human anatomy.

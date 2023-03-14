@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8776
+Description: Subject 8776 is a male human who works as an electrician for a local power company. They have green hair styled in a messy fashion and wears a purple cap on their head. A red victory band can be seen on their forehead, accompanied by a silver chain as their main accessory. Their most notable feature, however, is the constant smile on their face. 

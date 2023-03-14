@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3125
+Description: Item 3125 is a male human with spots on their face, wearing ski goggles instead of normal eyes, and a jade earring in one ear. They carry a candy stick at all times, which seems to soothe them during stressful situations. Item 3125 has a strong and commanding presence, frequently coming across as bossy or intimidating. However, it is believed that they do so in order to ensure that tasks are completed with maximum efficiency.

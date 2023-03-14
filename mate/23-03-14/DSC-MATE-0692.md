@@ -1,0 +1,2 @@
+ID # : DSC-MATE-692
+Description: DSC-MATE-692 is a human male, wearing a red beanie and a green cross earring. His most notable feature is his smile, which is perpetually present on his face. DSC-MATE-692 is prone to telling jokes and making silly impersonations. DSC-MATE-692 has also demonstrated an ability to lift the mood of even the most depressed individuals.

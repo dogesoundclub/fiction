@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3856
+Description: 3856 is a male robot beautician with a green cyclops eye as its primary facial feature. Its secondary facial feature is a frightened mouth, and its eyes are VR rainbow LED. Its head is protected by a police cap, and it also sports a Google on its forehead. Its ears are adorned with a red cross earring, and it wears a silver chain as an accessory.

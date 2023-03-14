@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6767
+Description: DSC-MATE-6767 is a human female specimen with a large number of spots present on her face. Her eyes have been replaced with a set of modified VR Rainbow LED units that are implanted by an unknown party. DSC-MATE-6767 has pigtail hairstyles and a pair of gold earrings on her ears. She often wears a gold chain as well. Furthermore, DSC-MATE-6767 wears a normal gas mask as a precautionary measure against airborne hazards, which she claims to be a fashion statement.

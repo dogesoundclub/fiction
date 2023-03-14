@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1548
+Description: Item 1548 is a robot programmed to serve as a reporter for a major news network. Its body consists of various metallic parts, including a green cyclops eye in place of a traditional head. Its eyes are made of ski goggles and its ears are adorned with a gold earring. Item 1548 often wears a red scarf and carries a whistle as accessories. 

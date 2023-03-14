@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1374
+Description: Subject 1374 appears to be a male Siberian tiger except for the fact that he possesses green hair in a purple cap and a gold earring on his left ear. He is often seen wearing a gold chain around his neck and a normal gas mask for safety. Despite these unusual traits, subject 1374 has the ability to transform into a human form for extended periods, allowing him to blend in with human society. He works as a real estate agent during the day.

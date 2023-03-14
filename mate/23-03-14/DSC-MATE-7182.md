@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7182
+Description: DSC-MATE-7182 is a male monkey that measures approximately 3 feet in height. Its head is adorned with a purple cap and a headset, while the eyes are frequently seen behind horned-rimmed glasses. The ears of DSC-MATE-7182 are decorated by a gold earring. DSC-MATE-7182 is reportedly a real estate agent by profession.

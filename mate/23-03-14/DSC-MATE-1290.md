@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1290
+Description: 1290 is a male robot with a bright personality and an energetic disposition. Its face features a frightened mouth, which it often uses to express excitement and enthusiasm. On top of its head, 1290 wears a distinctive blue bandana that covers the majority of its bald metallic head. Its ears are adorned with a single jade earring.

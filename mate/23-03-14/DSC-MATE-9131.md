@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9131
+Description: Subject 9131 is a male rabbit of average size and weight. The most notable feature of the subject is a headset with LED lights attached to its head, constantly emitting a soft blue glow. The subject wears a gold chain around its neck and an LED gas mask over its face at all times.

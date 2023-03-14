@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7113
+Description: DSC-MATE-7113 is a human male with a mohawk hairstyle and a jade earring in their left ear. DSC-MATE-7113 often wears a silver chain around their neck as an accessory. DSC-MATE-7113 appears to be in their mid-thirties and works as a car salesman in the greater metropolitan area. 

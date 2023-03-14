@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2752
+Description: DSC-MATE-2752 is a male humanoid of the Homo sapiens species. He stands at approximately 1.8 meters tall and weighs approximately 80 kilograms. DSC-MATE-2752 exhibits distinctive features such as numerous spots on his face and a frightened mouth. His eyes are a bright shade of blue and resemble those of a clown. DSC-MATE-2752 usually wears a medical mask to cover his mouth and a hoodie on his head. He is also commonly seen wearing a red scarf as an accessory.

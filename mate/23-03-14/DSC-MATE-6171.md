@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6171
+Description: Subject 6171 is a male human with a natural charm and charisma that can make him the life of the party. He possesses a distinct mouth spot and wears a pair of nerd glasses that offset his infectious smile. His head is adorned with a purple cap with a headset that he frequently uses to communicate with other agents. A two-color band adorns his forehead, and his green cross earring catches the eye even from a distance. 6171 wears a red scarf around his neck and carries a candy stick that he uses to calm his nerves in stressful situations.

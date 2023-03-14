@@ -1,0 +1,2 @@
+ID # : DSC-MATE-202
+Description: DSC-MATE-202 appears to be a human male, with distinctive facial features. A black spot can be observed on the left side of their mouth, and they constantly wear a smile. DSC-MATE-202's eyes are protected by ski goggles, and they often sport a doge hat on their head, with a small jade earring in one ear. They also wear a silver chain necklace and carry a candy stick as an accessory.

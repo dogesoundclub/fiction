@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6780
+Description: DSC-MATE-6780 is a human female with brown hair styled in a short, witch-like fashion. DSC-MATE-6780 has several distinct facial features, including spots on their cheeks, a purple lip, and orange eyebrows. DSC-MATE-6780 also wears goggles on their forehead and a gold earring in each ear. They are often seen wearing a silver chain.

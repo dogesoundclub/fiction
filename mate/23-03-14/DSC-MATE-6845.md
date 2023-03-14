@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6845
+Description: Object 6845 is an advanced humanoid robot designed to resemble a male human. The subject stands at 6 feet tall and weighs approximately 200 pounds. Its face features an expression of perpetual fear, and its eyes are Jade LED screens. It possesses golden earring on both ears, with a silver chain necklace accenting its neck, and a cigarette at the corner of its mouth.

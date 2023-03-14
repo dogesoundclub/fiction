@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3725
+Description: DSC-MATE-3725, designated as such for security purposes, is a humanoid female of the human species. The subject stands at approximately 5ft 6in tall and weighs approximately 140lbs. DSC-MATE-3725 has an unusual appearance that is easily identifiable due to its orange stripes on the face and having blonde hair with a wing on its head. The subject's eyes are also notable as they are red clown eyes with a jade earring on the ear and a gold chain as an accessory.

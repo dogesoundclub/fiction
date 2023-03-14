@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6577
+Description: 6577, known colloquially as "The Tiger", appears to be a male tiger with vibrant VR rainbow LED eyes. The Tiger's head is adorned with green hair in a purple cap, with goggles resting comfortably on the forehead. Two accessories, a silver chain and cigarette, round out the appearance of this dangerous and imposing creature. Known for its sharp wit and unmitigated brutality as the mafia boss, The Tiger is a force to reckon with.

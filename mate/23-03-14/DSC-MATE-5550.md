@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5550
+Description: DSC-MATE-5550 is a male monkey of the capuchin species, standing approximately 40cm in height and weighing roughly 3kg. DSC-MATE-5550's facial features consist of a constantly frightened mouth, accompanied by thick-framed nerd glasses that rest atop his head. DSC-MATE-5550 can usually be found wearing a retro cap and a jade earring on his left ear, as well as a gold chain necklace around his neck.

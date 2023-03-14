@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3153
+Description: Dr. 3153 is a male monkey of unknown species, standing at approximately 3ft tall. Dr. 3153 has a distinctive frightened mouth, adding to their unsettling appearance. Their head is not arranged in the expected colors for a male of their species, instead, Dr. 3153 is covered in a bright green fur.

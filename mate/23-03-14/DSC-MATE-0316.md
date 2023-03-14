@@ -1,0 +1,2 @@
+ID # : DSC-MATE-316
+Description: DSC-MATE-316 is a male human with a unique appearance. His face features orange stripes along his cheeks and a frightened mouth. His eyes resemble ski goggles, and his head is made of a metal purple color. DSC-MATE-316 also sports a silver chain as an accessory.

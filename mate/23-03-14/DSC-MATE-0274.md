@@ -1,0 +1,2 @@
+ID # : DSC-MATE-274
+Description: 274 is a male rabbit, who stands at an above-average height compared to others of his species. He wears a purple cap with a headset and two-color band on his forehead. He also has a gold earring on each ear and a silver chain around his neck with an LED gas mask hanging loosely from it. 274's surface appearance is that of a normal rabbit, save for his unique attire. However, he possesses the particular ability to speak and perform extraordinary tasks beyond what would be considered typical for a rabbit.

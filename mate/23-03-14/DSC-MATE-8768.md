@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8768
+Description: DSC-MATE-8768 resembles a male tiger with horned rim glasses and a red beanie. He also wears a red victory band as a forehead feature and a gold earring in one ear. His most distinctive accessory is a candy stick, which he carries in his mouth at all times. Despite his feral appearance, DSC-MATE-8768 is capable of speech and possesses a creative and artistic side. He has been known to express this side through various hobbies and interests, including painting, drawing, writing, and other forms of artistic expression.

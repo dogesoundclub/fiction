@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3909
+Description: DSC-MATE-3909 is a human male that stands at 5'11" and weighs approximately 180 pounds. DSC-MATE-3909 has numerous spots covering his face, which are believed to be birthmarks. DSC-MATE-3909 wears normal glasses and is often seen wearing a headset with LED lights on the side. DSC-MATE-3909 also sports a two-color headband around his forehead.

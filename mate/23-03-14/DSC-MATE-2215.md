@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2215
+Description: DSC-MATE-2215 is a human male in his mid-twenties, with an affinity towards taking spontaneous risks and acting on impulse. DSC-MATE-2215 is characterized by his distinctive appearance - wearing a black hoodie and medical mask, and has a noticeable gold chain around his neck.

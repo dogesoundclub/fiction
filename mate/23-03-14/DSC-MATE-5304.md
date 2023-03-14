@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5304
+Description: DSC-MATE-5304 appears to be a human female identified as an electrician. They possess orange stripes on their face, red lips, and normal glasses for eyes. DSC-MATE-5304's head resembles that of a 00s school girl, and they wear jade earrings and a choker as accessories. They also frequently wear a medical mask over their mouth.

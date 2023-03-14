@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9458
+Description: DSC-MATE-9458 is an anomalous male rabbit standing roughly one meter in height with a distinct clown-like appearance. Its red eyes and purple cap with a headset make DSC-MATE-9458 easily recognizable. The item's jade earring and silver chain serve as its most identifying features. Although DSC-MATE-9458's appearance is entertaining, it should be noted that its whistle is to be avoided at all costs. When activated, the whistle produces a high-pitched frequency capable of causing severe ear damage in humans.

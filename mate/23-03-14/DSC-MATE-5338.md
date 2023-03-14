@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5338
+Description: Subject #5338 (also goes by Jack) is a human, male, and works at a fast-food restaurant. Jack stands at 5'10'' with the appearance of a monk. Jack wears a pair of goggles on his forehead and a jade earring that are attached to his right ear.

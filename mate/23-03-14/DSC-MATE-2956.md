@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2956
+Description: DSC-MATE-2956 is a human female of average height and weight, with distinct orange stripes on her cheeks and a vibrant red lip. Her head is blonde and features a single wing that protrudes from her left side. DSC-MATE-2956's eyes are replaced with VR Rainbow LED lenses that constantly emit a bright glowing light. She also wears a medical mask on her mouth at all times, which is believed to be a filter to prevent foreign entities from entering her respiratory system.

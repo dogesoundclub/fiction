@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2780
+Description: DSC-MATE-2780, also known as "The Fast Food Worker," is a female human of average height and weight. One of their most striking features is their spots, which are scattered throughout their face. They also sport a bright red lip, and their eyebrows are a bright orange color. Their head is adorned with a blonde ushanka, and they wear a two-color band on their forehead. The subject wears a silver chain around their neck, and a jade earring in each ear.

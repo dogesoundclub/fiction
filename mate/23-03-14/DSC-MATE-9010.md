@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9010
+Description: DSC-MATE-9010 is a male tiger humanoid, standing at 6'2" and weighing approximately 280 lbs. DSC-MATE-9010's face features a permanently frightened mouth, however, its eyes are unknown due to DSC-MATE-9010's preference for sunglasses. DSC-MATE-9010 is often seen wearing a police cap, a gold earring, a gold chain, and a whistle.

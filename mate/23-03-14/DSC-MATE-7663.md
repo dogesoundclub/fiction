@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7663
+Description: DSC-MATE-7663 is a female humanoid identified as a skilled programmer. Its face is covered with spots and its eyes are orange, with matching eyebrows. DSC-MATE-7663's head is that of a pink rabbit, which sits atop its human body. It exhibits large jade earrings, and its mouth is generally covered with a medical mask. Additionally, DSC-MATE-7663 wears a gold chain as its primary accessory.

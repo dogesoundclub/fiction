@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5363
+Description: DSC-MATE-5363 is a robotic entity that resembles a human male. DSC-MATE-5363 stands at 1.8 meters in height and is adorned with a purple cap and green hair. DSC-MATE-5363's internal components consist of various mechanical parts and wiring. DSC-MATE-5363's mannerisms resemble those of a casual laborer.

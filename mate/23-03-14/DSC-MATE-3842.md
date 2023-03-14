@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3842
+Description: DSC-MATE-3842 is a male humanoid robot, resembling a politician with a bucket hat and ski goggle eyes. DSC-MATE-3842 has a gold earring on each ear and a silver chain as an accessory. DSC-MATE-3842 seems to have a friendly and caring personality, although it has exhibited some peculiar tendencies towards anthropomorphism.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7571
+Description: DSC-MATE-7571 is a human male with a distinctive mohawk hairstyle, accompanied by a red scarf and a normal gas mask. The subject's most notable feature are its eyes, which resemble a pair of ski goggles. Despite this, DSC-MATE-7571 displays no abnormal visual capabilities.

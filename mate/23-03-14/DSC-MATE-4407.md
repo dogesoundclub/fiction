@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4407
+Description: DSC-MATE-4407 is a robotic entity resembling a human male of indeterminate age. Its main physical features include a single green cyclops eye, normal glasses, a bucket hat, and a jade earring on its left ear. DSC-MATE-4407 has been observed sporting a gold chain and cigarette, which it claims to have picked up from its previous surroundings.

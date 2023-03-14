@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2165
+Description: DSC-MATE-2165 is a male humanoid of the Homo sapiens species. The subject is a firefighter by profession and is roughly 1.8 meters in height. The subject possesses distinctive orange stripes on its face, which contrast against blue clown eyes. A police cap can be observed on the subject's head, with a red victory band at the forehead. DSC-MATE-2165 wears a gold chain and carries a candy stick as accessories.

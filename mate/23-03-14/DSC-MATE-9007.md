@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9007
+Description: Subject 9007 is a male human of average height and build with normal blonde hair. His most notable physical features are his blue clown eyes and a dark spot on his mouth. He also wears an LED gas mask at all times. The gas mask appears to be heavily modified and is capable of changing colors and emitting patterns of light.

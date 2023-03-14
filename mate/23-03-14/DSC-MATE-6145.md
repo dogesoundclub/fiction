@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6145
+Description: DSC-MATE-6145 is a female human of average height and weight with orange eyebrows and a distinctive two-color band on her forehead. DSC-MATE-6145 is often seen wearing a normal gas mask and a green cross earring on each ear. A choker is also frequently worn. DSC-MATE-6145 exhibits a friendly and outgoing personality, typically with a constant smile on her face, but can be absent-minded and forgetful, especially when lost in thought or focused on a project. 

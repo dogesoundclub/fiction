@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9847
+Description: DSC-MATE-9847 appears to be a male human, measuring 1.8 meters in height and weighing approximately 86 kilograms. DSC-MATE-9847's most notable feature is his choice in attire; he wears a purple metal helmet with gold earring and nerd glasses over his eyes. He also dons a silver chain and is frequently seen smoking cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8886
+Description: 8886 is a human male, covered in small spots which are evenly distributed over its entire body. Its most striking feature is its blue clown eyes, which have been observed to emit a subtle psychic field. 8886 often wears a Doge hat on its head, and a silver chain around its neck. It has been observed to be highly detail-oriented, often engaging in seemingly obsessive-compulsive behaviors such as alphabetizing its spice rack and color-coding its closet.

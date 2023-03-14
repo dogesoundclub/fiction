@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2264
+Description: Item number 2264 is a highly advanced robot that resembles a male politician. The robot's head is adorned with a retro cap and nerd glasses, with a silver chain and red cross earring serving as additional accessories. Most noticeable about the robot's appearance is an LED gas mask covering its face, which is reportedly used for its breathing capabilities. 

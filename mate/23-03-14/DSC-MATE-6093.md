@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6093
+Description: DSC-MATE-6093 is a female human with the unique characteristic of having orange stripes on her face and purple lips. Her eyes are bright orange and her retro cap is an accessory that she keeps on her head at all times. She wears a red cross earring and a choker for additional accessories. She displays an organized personality with a tendency to plan ahead but also has a surprising spontaneous side. Her spontaneous nature leads to humorous situations, often surprising her friends with unexpected adventures.

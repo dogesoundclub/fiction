@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9964
+Description: DSC-MATE-9964 is an adult male human with striking orange stripes on his face feature #1. His eyes emit a VR Jade LED color that makes it hard for subjects to look away. He has a goggle on his forehead feature #1 and sports a golden earring. He wears a gold chain alsong with a candy stick, his favorite accessory.

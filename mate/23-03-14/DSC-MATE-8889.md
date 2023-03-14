@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8889
+Description: Subject 8889 appears to be a male tiger of ████████ descent, standing at approximately 6 feet tall. It wears a blue police cap with a golden emblem, and a pair of goggles on its forehead. It is often seen wearing a silver chain around its neck, which it claims to have found on the streets. Subject 8889 is employed at the local fast food restaurant and is allowed to carry out work duties within the restaurant.

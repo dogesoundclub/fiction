@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9484
+Description: DSC-MATE-9484 is a male Bengal tiger standing at 2.5 meters in height, with blue clown eyes. DSC-MATE-9484 wears a hoodie with a two-color band on its forehead and a silver chain around its neck. DSC-MATE-9484 is always accompanied by a whistle and has claimed to be a real estate agent.

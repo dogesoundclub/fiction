@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5365
+Description: Subject 5365 is a human male, with not arranged green hair and VR jade LED eyes. He is commonly seen wearing a silver chain accessory, and an LED gas mask for protection. Despite his unusual appearance, 5365 has been observed to fit into society with only minor or occasional discrepancies noted.

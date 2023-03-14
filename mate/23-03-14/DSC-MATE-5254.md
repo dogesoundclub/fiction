@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5254
+Description: DSC-MATE-5254 is a male rabbit with VR Rainbow LED eyes, retro cap on its head, jade earring in its left ear, and a goggle on its forehead. It wears a silver chain around its neck and an LED gas mask that covers its nose and mouth. DSC-MATE-5254 stands 1.2 meters tall and weighs 20 kg. Its anomalous properties manifest as DSC-MATE-5254's ability to communicate using a combination of vocalizations and telepathy.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2079
+Description: Subject 2079 is a male human, approximately 32 years old, with several distinctive facial features. He has spots across his face and frequently displays a frightened mouth. His eyes are blue clown eyes, and he is often seen wearing a medical mask. Subject 2079 also wears a retro cap and a green cross earring. Despite his strange appearance, he is able to operate in public without attracting too much attention.

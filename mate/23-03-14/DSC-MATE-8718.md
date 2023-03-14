@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8718
+Description: Identification number 8718 is a human male, approximately 45 years old, and stands at 5'11". His face features are unique, with a small teardrop-shaped blue spot on the left side of his mouth and a wide, exaggerated red clown mouth. His eyes are an alarming shade of bright red, and his head is adorned with a short peak cap. 8718 is further distinguished by his gold earring and a medical mask over his mouth. 

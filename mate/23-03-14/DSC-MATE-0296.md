@@ -1,0 +1,2 @@
+ID # : DSC-MATE-296
+Description: DSC-MATE-296 is a human female with orange stripes on their face, accompanied by a warm smile. They have distinct orange eyebrows and short hair styled in a "witch" cut. DSC-MATE-296 wears a red cross earring on one ear and a gold chain around their neck. They also wear an LED gas mask as a form of personal protective equipment.

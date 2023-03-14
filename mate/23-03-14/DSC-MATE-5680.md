@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5680
+Description: DSC-MATE-5680 is a male monkey species, standing at approximately 1 meter tall. Its most notable feature is a headset with an LED display around its head, which is permanently fused to its skull. The headset is believed to be a form of cybernetic enhancement, as it appears to allow DSC-MATE-5680 to process information at a prodigious rate. DSC-MATE-5680 also has an unusual forehead feature in the form of a two-color band, which has yet to be explained.

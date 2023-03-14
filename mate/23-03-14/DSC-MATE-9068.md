@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9068
+Description: DSC-MATE-9068 is a human male of unspecified age, who self-identifies as a fashion designer. The subject's eyes emit a continuous spectrum of color on a loop, which has been identified as a custom-made LED upgrade. DSC-MATE-9068's head is often left in an untamed state of vibrant green. DSC-MATE-9068 sports a jade earring on their left ear and accessorizes with a bright red scarf.

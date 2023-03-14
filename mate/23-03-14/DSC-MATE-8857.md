@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8857
+Description: DSC-MATE-8857 is a human male, identified as a news anchor for ████ News. DSC-MATE-8857 possesses several anomalous characteristics, including orange stripes on his face, blue clown eyes, green hair in a purple cap, and jade earring on his left ear. DSC-MATE-8857's most notable characteristic is the medical mask he wears over his mouth, claiming it as a preventive measure against the infection. However, DSC-MATE-8857's speech patterns suggest otherwise.

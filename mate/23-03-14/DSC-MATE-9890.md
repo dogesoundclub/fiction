@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9890
+Description: DSC-MATE-9890 is a male Siberian tiger standing at 2.4 meters tall and weighing approximately 400 kilograms. It possesses jade LED eyes and wears a purple cap with a headset, as well as a red cross earring, a gold chain, and a normal gas mask.

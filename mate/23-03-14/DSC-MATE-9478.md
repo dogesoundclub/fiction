@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9478
+Description: Subject appears to be a male human, with a noticeable smile as a prominent facial feature. The subject is often seen wearing normal glasses on their eyes, possibly as an accessory. The head of the subject is often adorned with a Doge hat, which may indicate a fondness for internet memes. On their forehead, the subject wears a two-color band, the significance of which is unknown. 

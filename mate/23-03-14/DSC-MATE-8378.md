@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8378
+Description: Subject 8378 appears to be a human male, approximately 30 years of age, standing at 175 cm in height and weighing 77 kg. The subject is frequently seen wearing a blue bandana over his head, with an orange striped pattern on his face, and a pair of goggles situated on his forehead. Subject 8378 is also often seen carrying a candy stick as an accessory.

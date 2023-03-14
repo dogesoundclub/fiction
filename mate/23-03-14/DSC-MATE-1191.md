@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1191
+Description: DSC-MATE-1191 is a human male of average height and weight. He has normal vision and wears glasses. DSC-MATE-1191 is usually seen wearing a bucket hat and a jade earring in his left ear. He identifies himself as a mechanic and is particularly skilled at fixing cars and other machinery.

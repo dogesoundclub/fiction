@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7846
+Description: Subject 7846 is a male monkey, employed as a train driver. Their physical appearance is unremarkable, save for a frightened mouth and jade earring on each ear. They wear shade glasses and a LED gas mask, which serves to partially obscure their features. On their forehead, they have a two-color band.

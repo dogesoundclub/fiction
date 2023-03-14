@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3804
+Description: DSC-MATE-3804 is a humanoid robot of unknown origin which outwardly resembled a news anchor. DSC-MATE-3804 displays the features of a middle-aged male with one green cyclopean eye and a "frightened" mouth. DSC-MATE-3804 has normal glasses for eyes that can be replaced for compatibility. DSC-MATE-3804 wears a purple cap with a headset, a silver chain, gold earring, and an LED gas mask as accessories.

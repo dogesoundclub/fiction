@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2391
+Description: DSC-MATE-2391 is a male humanoid of unknown age with orange stripes on his face and a mohawk hairstyle. His facial features consist of VR jade LED eyes, a green cross earring on his left ear, a gold chain around his neck and a candy stick as an accessory. DSC-MATE-2391 speaks English fluently and has exhibited no signs of psychokinetic manifestation or other anomalous abilities.

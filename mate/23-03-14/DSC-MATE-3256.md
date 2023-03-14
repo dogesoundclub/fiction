@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3256
+Description: DSC-MATE-3256 is a human male, identified as a car salesman by occupation. DSC-MATE-3256 exhibits several unique physical characteristics, including orange stripes across the face, ski goggle eyes, a green cross earring, a mohawk, a medical mask, and a gold chain necklace.

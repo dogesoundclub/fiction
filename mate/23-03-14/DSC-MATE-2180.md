@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2180
+Description: Subject 2180 is a human female beautician with a noticeable purple lip and blue clown eyes. Their head portrays a rainbow festival appearance, but attention should be given to the goggles on their forehead, resembling those of a mad scientist. 2180 also wears a red cross earring, a choker, and a normal gas mask as accessories.

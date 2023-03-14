@@ -1,0 +1,2 @@
+ID # : DSC-MATE-786
+Description: DSC-MATE-786 is a humanoid robot of unknown origin with a male appearance. Its head is adorned with a red beanie, and it wears a pair of goggles on its forehead. It also has jade earrings on its ears, and a gold chain and cigarette as accessories.

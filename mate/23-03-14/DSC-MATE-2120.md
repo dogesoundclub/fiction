@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2120
+Description: DSC-MATE-2120 is a male human of average height and build. DSC-MATE-2120's skin coloration appears to be normal, except for the presence of orange stripes located on the face. The head is noted to have several alternating green layers, while the ears are adorned with a single gold earring. DSC-MATE-2120 is often seen wearing a red scarf over their clothing, although this has not proven to be anomalous.

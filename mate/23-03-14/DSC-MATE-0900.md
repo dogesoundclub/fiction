@@ -1,0 +1,2 @@
+ID # : DSC-MATE-900
+Description: DSC-MATE-900 is a female human with unusual physical features. She has bright orange stripes on her cheeks and a red lip that is always visible, even when she is not speaking. Her eyes are blue and resembled those of a clown, which can be unnerving to some. Her head is often seen wearing a retro cap and has a 2 color band on her forehead. She also wears a red cross earring and a gold chain necklace. Lastly, she wears a normal gas mask as an accessory.

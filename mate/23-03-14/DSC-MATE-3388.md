@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3388
+Description: Subject 3388 appears to be a human female with striking features. Their lips are a vivid shade of purple, and their eyes are replaced with LED jade lenses. They have a collection of jade earrings, with one earring on each ear. 3388 tends to cover their lower face with a medical mask, making it difficult to discern their actual appearance. They are commonly seen wearing a silver chain around their neck.

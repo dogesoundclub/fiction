@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7204
+Description: DSC-MATE-7204 is a male rabbit appearing wearing a bucket hat and horned-rimmed glasses. Its forehead features a two-color band, and it has one jade earring on its left ear. DSC-MATE-7204 carries a candy stick as an accessory, which it is often seen chewing on.

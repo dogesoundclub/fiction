@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1088
+Description: DSC-MATE-1088 is a male tiger that works as a car salesman in the city of ███████. They stand at 6 feet 5 inches tall and weigh approximately 350 lbs. DSC-MATE-1088's most distinctive facial feature is its frightened mouth layout, which causes them to look distressed most of the time. DSC-MATE-1088 also wears normal glasses and a blue bandana on their head, with goggles on their forehead and a jade earring on each ear. They wear a gold chain as an accessory, and an LED gas mask to conceal their face.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5068
+Description: Subject 5068 is a human female in her late thirties, with distinctive spots on her face as its prominent feature. Her eyebrows are a piercing shade of orange and her head is adorned with short, witch-like hair. She bears a colorful 2 color band along her forehead and a green cross earring on each ear. Two accessories of note include a silver chain necklace and a normal gas mask that she wears as a precaution while in populated areas.

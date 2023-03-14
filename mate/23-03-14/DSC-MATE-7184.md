@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7184
+Description: DSC-MATE-7184 is a human male of average height and build with a peculiar appearance. They have a mouth spot, ski goggle eyes, and a blue bandana on their head, along with a jade earring on each ear and a medical mask on their mouth. The subject does not exhibit any anomalous properties, and their appearance is assumed to be non-anomalous. 

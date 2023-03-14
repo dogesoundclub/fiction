@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9296
+Description: #9296 appears to be a delivery driver of advanced design with a green cyclops eye for a face. #9296's optic lens is covered by a pair of nerd glasses, indicating an interest in intellectual pursuits. This feature, coupled with a blue bandana around his head, may suggest an affiliation with a particular subculture or group.

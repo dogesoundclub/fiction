@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8290
+Description: Item 8290 is a male monkey of the Macaque species, standing approximately 1.2 meters tall and weighing 15 kilograms. One noteworthy feature includes its circus-like blue clown eyes, along with a police cap on its head and a jade earring on each of its ears. It also dons a gold chain necklace and an LED gas mask as its primary accessories.

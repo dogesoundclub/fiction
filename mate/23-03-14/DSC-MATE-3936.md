@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3936
+Description: Subject 3936, also known as the "Traffic Tiger," is a male tiger with purple fur and a distinctive cap with a headset. His forehead features two color bands, with a red cross earring on each ear, and he is always seen wearing a red scarf and carrying a whistle.

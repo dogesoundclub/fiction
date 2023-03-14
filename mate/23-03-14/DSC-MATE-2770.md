@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2770
+Description: Doctor 2770 is a human male in his early forties, standing at 6 feet tall with a thin build. His appearance is unusual, with a police cap on his head and nerd glasses on his eyes. He has a gold earring on his left ear and a gold chain around his neck.  The doctor also wears a pair of goggles on his forehead and an LED gas mask around his neck.

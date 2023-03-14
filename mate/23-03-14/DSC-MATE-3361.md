@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3361
+Description: DSC-MATE-3361 is a human female with blue clown eyes, giving the impression of a constant smile. They have not arranged green hair and a red cross earring on their left ear. DSC-MATE-3361 works as a veterinarian, specializing in exotic animals. It is unclear if their abilities are a result of their profession or if they have always had them.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6077
+Description: Item 6077 is a male rabbit approximately 30cm in length, with a frightened mouth and unknown eyes. The item wears a popular "Doge Hat" and a gold earring, in addition to a gold chain. The item's distinctive appearance is frequently commented on by those who come into contact with it.

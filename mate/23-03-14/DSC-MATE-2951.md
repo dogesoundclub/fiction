@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2951
+Description: DSC-MATE-2951 is a female human, seemingly in their late 20s or early 30s, with distinct physical features. They have full lips painted in red lipstick, a hairstyle reminiscent of the 00s school girl fashion, and gold earrings adorning their ears. However, it is their personality that has proven to be of interest to Foundation researchers.

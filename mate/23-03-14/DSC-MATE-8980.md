@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8980
+Description: Subject 8980 appears to be a female human of Asian descent, with a notable facial feature being the presence of spots. Despite the mandatory medical mask worn over the mouth, the subject displays a consistent smile at all times. The subject's head is consistently covered with a retro cap, and a gold chain is worn as an accessory around the neck. The subject's eyes glow with a jade LED color, indicating an unidentified technological augmentation. No other anomalous properties have been detected on subject 8980.

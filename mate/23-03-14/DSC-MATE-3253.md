@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3253
+Description: Subject 3253 is a female human of average height and weight. She possesses a distinct physical feature of orange stripes on her face. Her eyes are obscured by normal glasses. Instead of hair that would be typically arranged, her head is an unkempt green. Subject 3253 wears a medical mask over her mouth.

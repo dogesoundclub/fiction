@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5219
+Description: DSC-MATE-5219 is a rabbit of indeterminate breed with blue clown eyes. The subject appears to be sentient and possesses humanoid-level intelligence. DSC-MATE-5219 is capable of speech, although it has a tendency to speak in a low, monotone voice. The subject is well-versed in various programming languages and spends most of its time reading and researching obscure topics related to computer science and technology.

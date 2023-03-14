@@ -1,0 +1,2 @@
+ID # : DSC-MATE-596
+Description: DSC-MATE-596 appears to be a human female with orange stripes on her face and red lips. Her eyebrows are also orange and she has a rainbow festival headband. Her ears are adorned with a red cross earring and she wears a silver chain around her neck. DSC-MATE-596 is often seen wearing a gas mask as an accessory.

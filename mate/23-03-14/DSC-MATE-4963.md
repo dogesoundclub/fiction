@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4963
+Description: DSC-MATE-4963 appears to be a male rabbit of unknown origins. Its most notable features include a red beanie on its head with a 2-color band on its forehead, jade earring on its ear, and nerdy glasses over its eyes. It is often seen wearing a silver chain and carrying a whistle.

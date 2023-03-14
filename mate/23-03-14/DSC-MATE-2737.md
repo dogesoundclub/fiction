@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2737
+Description: DSC-MATE-2737 is a male robot with a theater manager job. DSC-MATE-2737's head features green hair in a purple cap and wears normal glasses. DSC-MATE-2737's ears are adorned with a jade earring and wears a red scarf.

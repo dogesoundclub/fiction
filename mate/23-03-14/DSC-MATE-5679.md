@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5679
+Description: Subject 5679 is a human male with spots on his face and a frightened mouth. His eyes are replaced with VR Rainbow LED that flicker and change color constantly. His head is parted pink in color and he wears a jade earring on his left ear. He always wears a medical mask over his mouth, even when not necessary for his work. 

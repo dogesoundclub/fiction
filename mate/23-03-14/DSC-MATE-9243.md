@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9243
+Description: DSC-MATE-9243 is a male tiger humanoid, standing approximately 2 meters tall. DSC-MATE-9243's head is adorned with a police cap with a 2 color band around its forehead. It also has goggles resting atop its forehead and a medical mask covering its mouth. DSC-MATE-9243 is often seen wearing a red scarf as its accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7990
+Description: DSC-MATE-7990 is a male human of average height and build. DSC-MATE-7990's face features a prominent smile which is always present regardless of any emotional state. DSC-MATE-7990's eyes are obscured by ski goggles and wears a police cap. DSC-MATE-7990 has a jade earring in his left ear and is often seen wearing an LED gas mask.

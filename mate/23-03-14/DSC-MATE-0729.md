@@ -1,0 +1,2 @@
+ID # : DSC-MATE-729
+Description: DSC-MATE-729 is a male tiger humanoid, standing 6'2" in height. DSC-MATE-729 has a human-like voice and wears normal glasses and a Doge hat. DSC-MATE-729 is often seen wearing a silver chain necklace and smoking a cigarette. DSC-MATE-729 is highly intelligent and has a strong thirst for knowledge. It is known to spend a lot of time reading and researching obscure topics, which it may then share with others.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5847
+Description: DSC-MATE-5847 is a male robotic entity standing at 1.8 meters tall, resembling a modern humanoid in physique and appearance. DSC-MATE-5847 has a green cyclops eye and typically wears horned-rimmed glasses that are non-functional, and a silver chain around its neck. It has also been observed carrying a cigarette on multiple occasions.

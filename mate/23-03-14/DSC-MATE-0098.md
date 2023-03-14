@@ -1,0 +1,2 @@
+ID # : DSC-MATE-98
+Description: Subject 98 is a monkey species male that presents a unique set of characteristics. While on the surface, the subject's appearance may seem odd, the most remarkable features are his ski goggles, purple cap with a headset, and gold earring. These accessories have been observed to work as communicative devices, and the subject has been seen using them to interact with his handler.

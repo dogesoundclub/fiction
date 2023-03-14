@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2449
+Description: DSC-MATE-2449 appears to be a standard human male, approximately 25 years of age, with normal facial features except for orange stripes across the face. DSC-MATE-2449 wears normal glasses, has blonde hair, and wears a medical mask over the face. The forehead of DSC-MATE-2449 has a two-color band, and they wear a green cross earring in each ear. DSC-MATE-2449 also wears a gold chain around the neck.  DSC-MATE-2449 has shown no signs of anomalous abilities, but has demonstrated an ability to entertain and amuse others in a lighthearted manner.

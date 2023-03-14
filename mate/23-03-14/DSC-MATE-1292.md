@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1292
+Description: DSC-MATE-1292 is a middle-aged human male identified as the manager of a local theater in [REDACTED], USA. The subject measures approximately 170cm in height with a distinctly spotted face and a constant smile. DSC-MATE-1292's eyes are anomalously colored with an iridescent, virtual reality jade LED glow, which shifts color inexplicably, seemingly reflecting the individual's emotional state. DSC-MATE-1292 habitually accessorizes with a Doge hat and a jade earring, as well as a silver chain around his neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7082
+Description: 7082 is a traffic officer robot, standing at 5 feet tall. The head is a bright red alarm, with two glowing blue eyes. The ears adorn a single jade earring on the left side, and a medical mask covers the mouth. There are no visible arms, only a rotating traffic baton at its base.

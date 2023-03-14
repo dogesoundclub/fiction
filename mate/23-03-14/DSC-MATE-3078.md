@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3078
+Description: DSC-MATE-3078 is a 34-year-old male human, standing at 5'9" and weighing approximately 165 lbs. He has orange stripes across his facial features, mainly on his nose and cheeks. DSC-MATE-3078 also wears a red beanie over his head and a pair of distinctly large, black nerd glasses over his eyes. His forehead bears a unique two-color band, and he has a gold earring on his left earlobe. DSC-MATE-3078 often wears a silver chain around his neck, and is frequently seen smoking a cigarette.

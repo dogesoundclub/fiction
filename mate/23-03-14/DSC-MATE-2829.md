@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2829
+Description: 2829 is a male human of average height with unique features. Its skin is covered in small, spotty lesions, reminiscent of a virus. It has trademark blue clown eyes and a layer of green growths that cascade down its head. The creature is never seen without its trademark Red Scarf. 

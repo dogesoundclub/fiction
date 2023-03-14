@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6450
+Description: Subject 6450 is a male human of average height and build. The subject is easily recognized by a unique marking on their mouth resembling a spot. This marking appears to be natural and cannot be removed. Subject's eyes are equipped with what seems to be an advanced VR system, causing them to emit a bright and colorful LED rainbow pattern. The subject often wears a gold chain as their only accessory.

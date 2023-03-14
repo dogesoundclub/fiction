@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7874
+Description: DSC-MATE-7874 is a female human with distinct spots on her face. Her eyes are orange with a unique eyebrow pattern. DSC-MATE-7874's head hair is not arranged and is green. DSC-MATE-7874 has a pointy green cross earring on both ears, and she often wears a gold chain and smokes cigarettes. DSC-MATE-7874 has proven to be a dangerous individual, displaying a history of illicit activities ranging from organized crime to acts of violence, making her a top priority for the Foundation.

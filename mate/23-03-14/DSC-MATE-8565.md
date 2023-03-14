@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8565
+Description: DSC-MATE-8565 is a humanoid female of average height and weight. Their face features orange stripes, with red lips. DSC-MATE-8565's eyes glow with a VR rainbow LED, and they often wear rainbow festival attire with gold earrings and a silver chain.

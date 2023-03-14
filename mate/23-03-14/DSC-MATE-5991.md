@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5991
+Description: Subject 5991 appears to be a middle-aged male of the human species, identified by his doge hat and silver chain. The subject displays highly energetic and enthusiastic behavior, often becoming overly excited about even the most mundane of topics. This behavior has led to some humorous situations within the facility, but also poses a potential risk for containment breaches if left unattended.

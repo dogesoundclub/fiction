@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6924
+Description: DSC-MATE-6924 appears to be a human female, approximately 26 years of age. She has a unique facial feature - red lips - which are coated with an unidentified pigment. DSC-MATE-6924's eyes are circular VR Jade LEDs, that shine iridescent shades of green. The anatomy of her head is likewise unusual in that it possesses an arrangement of green foliage which appears neither natural nor genetically tweaked.

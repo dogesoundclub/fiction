@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3134
+Description: DSC-MATE-3134 is a male sentient tiger with the occupation of an electrician. Its eyes are framed with normal glasses, and its head is adorned with a purple cap and a headset. A two-color band can be found on its forehead, and a red cross earring within its left ear.

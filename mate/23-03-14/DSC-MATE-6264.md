@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6264
+Description: Subject 6264 appears to be a human male with cybernetic augmentations. The most noticeable feature is the VR Jade LED eyes. The subject's head is made entirely of metal with a deep purple finish, while their frightened mouth seems to be permanently locked in a scared expression.

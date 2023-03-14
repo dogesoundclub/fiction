@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3714
+Description: DSC-MATE-3714 is a humanoid creature identified as a human of the male sex, with green layers on his head, blue clown eyes, and spots on his face. DSC-MATE-3714 is gifted with a unique ability to cure people of serious and life-threatening diseases, making him useful to the Foundation.

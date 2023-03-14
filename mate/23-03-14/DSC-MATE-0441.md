@@ -1,0 +1,2 @@
+ID # : DSC-MATE-441
+Description: DSC-MATE-441 is a human male who identifies itself as a fashion designer. It stands at approximately 172 cm tall and weighs approximately 65 kg. DSC-MATE-441’s most noticeable facial feature is an intricate set of spots, which resemble freckles, covering its entire face. DSC-MATE-441 is often seen wearing a bucket hat on its head and a silver chain around its neck. It also has a jade earring in one ear and wears nerd glasses as part of its regular attire.

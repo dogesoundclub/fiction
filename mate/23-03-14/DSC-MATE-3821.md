@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3821
+Description: DSC-MATE-3821 is a humanoid robot with a distinct green Cyclops eye on its face. Its mouth is permanently in a frightened expression, perhaps due to its programmed tendency to forget things or become easily sidetracked. DSC-MATE-3821 wears a doge hat on its head and a pair of horned rim glasses to cover its eye. Its ears have a gold earring attached to them, and it also wears a silver chain as another accessory.

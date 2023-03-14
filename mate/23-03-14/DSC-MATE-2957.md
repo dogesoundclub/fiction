@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2957
+Description: DSC-MATE-2957 is a male monkey of unknown subspecies. The subject's facial feature exhibits a permanent expression of fear, with a wide open mouth. DSC-MATE-2957's eyes are obscured by a pair of standard glasses. The subject's hair is normal in color and texture, while the forehead displays a distinct two-color band pattern.

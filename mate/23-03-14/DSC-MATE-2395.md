@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2395
+Description: DSC-MATE-2395 is a male tiger with a frightened mouth and a police cap on his head. The LED eyes emit a color-changing rainbow pattern and glow brightly in low light conditions. DSC-MATE-2395 has a silver chain and candy stick as accessories.

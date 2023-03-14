@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3930
+Description: Item #3930, also known as "The Fashionable Tiger," is a sentient tiger of the male gender. The subject stands at 6 feet tall and has a lean, muscular build. The Fashionable Tiger is well-groomed, consistently donning a red beanie atop their head, a jade earring in their left ear, and normal glasses over their sharp eyes. Notably, they sport a pair of goggles on their forehead, which they can flip down if the need arises. 

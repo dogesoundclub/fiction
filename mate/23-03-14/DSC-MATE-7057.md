@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7057
+Description: 7057 is a human female with distinctive facial features, including several spots and a purple lip. They possess an odd shaped head that is predominantly orange in color and they have one gold earring on their left ear. They work as a train driver, but are known to spend time lost in thought, often resulting in humorous accidents.

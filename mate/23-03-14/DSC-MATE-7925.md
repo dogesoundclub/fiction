@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7925
+Description: Subject 7925 is a male human standing at 6 feet tall. Its facial features display numerous spots of varying sizes and dark colors. The subject's eyes are obscured behind a pair of goggle-like lenses that resemble those worn by skiers. The subject's head is often concealed underneath a hoodie of varying color.

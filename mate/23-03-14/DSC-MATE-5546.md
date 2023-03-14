@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5546
+Description: DSC-MATE-5546 is a human female with distinctive features. DSC-MATE-5546's face is covered with various spots, and her lips are a bright purple color. DSC-MATE-5546's eyes are deep orange, and she has a two-color band on her forehead. DSC-MATE-5546 wears a medical mask over her mouth most of the time, and she has a silver chain around her neck. DSC-MATE-5546's head is metallic blue in color.

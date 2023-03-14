@@ -1,0 +1,2 @@
+ID # : DSC-MATE-562
+Description: Tigris appears to be a male tiger species with distinctive ski goggle eyes and a purple cap with a headset. Tigris's forehead also features a goggle, while its ears have a red cross earring.

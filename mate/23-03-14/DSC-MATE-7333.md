@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7333
+Description: DSC-MATE-7333 is a female human with blonde hair and carries herself with an air of authority. DSC-MATE-7333 is often seen wearing a ushanka and goggles on her forehead. The subject has a distinctive characteristic of red lipstick on their lips and normal glasses on their eyes. DSC-MATE-7333's ears are pierced with green crosses, and they can often be seen smoking a cigarette.

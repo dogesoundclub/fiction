@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1771
+Description: Subject 1771 is a humanoid entity of the Homo sapiens species. Subject displays irregularities in skin pigmentation, with several spots and streaks presenting themselves across their face and arms. These spots and streaks are thought to be benign in nature, but should be monitored for any changes. Subject's hair is dyed a vibrant green, and has been left unarranged. They consistently wear a silver chain necklace with an unidentified pendant, a red cross earring in their left ear, and may be observed smoking a cigarette or vaping at times.

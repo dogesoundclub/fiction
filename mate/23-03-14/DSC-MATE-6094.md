@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6094
+Description: Subject 6094 is a human male with a frightened mouth and Virtual Reality (VR) rainbow LED eyes. The subject is often seen wearing a bucket hat and a silver chain accessory. His personality is described as being very creative, with a vivid imagination that leads to unusual hobbies and interests.

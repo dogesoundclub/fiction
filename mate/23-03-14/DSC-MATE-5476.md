@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5476
+Description: DSC-MATE-5476 is a male Tiger with a unique physical appearance. Its mouth is permanently agape in a frightened expression, which often causes unease in those who encounter it. DSC-MATE-5476's eyes are jade green LEDs that emit a virtual reality-like glow, giving it an otherworldly appearance. Its head fur is not arranged and remains in a wild and unkempt state.

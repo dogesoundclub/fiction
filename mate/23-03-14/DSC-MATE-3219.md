@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3219
+Description: DSC-MATE-3219 is a human male of unknown age, approximately 6 feet tall, and weighing approximately 165 pounds. DSC-MATE-3219's most notable physical features are the numerous spots on their face and their frightened mouth. Their eyes are a jade green LED and their hair is styled in a mohawk. They wear a jade earring and a silver chain as accessories, and often smoke a cigarette.

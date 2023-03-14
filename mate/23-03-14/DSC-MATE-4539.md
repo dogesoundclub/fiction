@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4539
+Description: Item #4539 appears as a human male with orange stripes and a noticeable headset covered in LED lights. He sports a goggle on his forehead and is commonly seen wearing a red scarf and smoking a cigarette. Despite his colorful appearance, Item #4539 is a dangerous and unpredictable mafia boss.

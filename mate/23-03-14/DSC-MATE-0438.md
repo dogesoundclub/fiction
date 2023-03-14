@@ -1,0 +1,2 @@
+ID # : DSC-MATE-438
+Description: DSC-MATE-438 is a male monkey, measuring approximately one meter tall and weighing 10kg. DSC-MATE-438's most distinct features are its ski goggle-esque eyes, situated on a normal black-haired head. DSC-MATE-438's forehead sports a goggle accessory, while its ears have a jade earring each, and it wears a silver chain and a whistle as additional accessories.

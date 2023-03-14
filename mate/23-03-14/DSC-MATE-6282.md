@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6282
+Description: DSC-MATE-6282 appears to be a male traffic officer of the human species, with distinctive features that distinguish him from other traffic officers. DSC-MATE-6282's face is covered with spots, and his eyes are replaced by VR Rainbow LED with unknown properties. DSC-MATE-6282 wears a blue bandana on his head and a gold earring on his left ear, along with a medical mask covering his mouth.

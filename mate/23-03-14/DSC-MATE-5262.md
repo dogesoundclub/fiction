@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5262
+Description: Item 5262 is a male monkey of undetermined species, standing at approximately 1.2 meters tall. The subject's body is covered in brown fur, and it wears a red scarf around its neck at all times. Its face features a frightened mouth and red clown eyes, which glow in low light. The subject's head is not arranged in the conventional manner, appearing to tilt slightly to one side. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8114
+Description: DSC-MATE-8114 is a sentient male tiger with human-like characteristics, including the ability to speak and perform complex tasks such as writing and reading. DSC-MATE-8114 is dressed in a purple cap with green hair, donning a medical mask and nerd glasses. DSC-MATE-8114 has an evident frightened expression on its face at all times, seemingly due to past trauma.

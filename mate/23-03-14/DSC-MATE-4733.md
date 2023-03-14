@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4733
+Description: DSC-MATE-4733 is a human female who works as a lawyer. They have distinctive facial features, including spots on their skin and a prominent smile. DSC-MATE-4733's eyes are blue and have been observed to resemble those found on clown masks. Their hair style is typical of the 1990s, and they always wear a gold earring on one ear. DSC-MATE-4733 also wears a medical mask when interacting with others.

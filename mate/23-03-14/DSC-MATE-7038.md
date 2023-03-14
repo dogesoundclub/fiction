@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7038
+Description: DSC-MATE-7038 is a male monkey of the genus Macaca, identifying as a fashion designer. DSC-MATE-7038 is approximately 120 cm in height and weighs around 40 kg. DSC-MATE-7038 is adept at designing and tailoring outfits to a professional standard, often using various materials to create complex textures.

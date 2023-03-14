@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9689
+Description: DSC-MATE-9689 is a humanoid male identified as a police officer by profession. The subject's face is distinctive, with orange stripes and a permanent smile. DSC-MATE-9689 has normal eyesight, and wears glasses as its preferred accessory. The subject's head is adorned with green hair, which is always kept under a purple cap. DSC-MATE-9689 also wears a red victory band on its forehead, and a jade earring on each ear.

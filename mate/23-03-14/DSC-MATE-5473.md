@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5473
+Description: Subject 5473 is a male human of average height and build. The subject is often seen wearing nerd glasses that enhance his vision, and a red scarf as an accessory. His attire is complete with a monk-like hat and a green cross earring on his left ear. 

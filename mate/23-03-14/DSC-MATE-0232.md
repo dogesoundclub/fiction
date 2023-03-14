@@ -1,0 +1,2 @@
+ID # : DSC-MATE-232
+Description: DSC-MATE-232 is a human male of approximately 40 years old. It stands at 1.8 meters tall and weighs approximately 82 kilograms. DSC-MATE-232's most notable feature is its ski goggle eyes, which function normally and appear to be permanently affixed onto its face. Its head is prominently spiked, resembling a mountain peak at its center. On its left ear, DSC-MATE-232 wears a gold earring. DSC-MATE-232 is often observed wearing a red scarf, which it claims is a lucky talisman.

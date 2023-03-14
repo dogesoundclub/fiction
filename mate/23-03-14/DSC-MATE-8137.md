@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8137
+Description: DSC-MATE-8137 appears to be a male tiger standing at approximately 2 meters tall. DSC-MATE-8137 possesses an unknown type of eyes, which are always covered by medical masks. DSC-MATE-8137 is typically seen wearing a bucket hat and sporting a goggle on his forehead. DSC-MATE-8137 is also known to don a silver chain around his neck. 

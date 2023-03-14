@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5533
+Description: DSC-MATE-5533 is a male monkey of the species Macaca fascicularis which manifests a human-like appearance. DSC-MATE-5533 is approximately 1.2 meters tall and weighs approximately 25 kilograms. DSC-MATE-5533 wears a purple cap with a headset, jade earring, shade glasses, and red scarf. DSC-MATE-5533 also carries a cigarette with it at all times.

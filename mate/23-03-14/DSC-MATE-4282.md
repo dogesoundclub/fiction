@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4282
+Description: DSC-MATE-4282 is a male tiger designated as "Firefighter 4282." DSC-MATE-4282 wears a blue bandana over its head, a gold earring in its left ear, and a red scarf around its neck. DSC-MATE-4282's physical appearance is mostly similar to that of a Bengal tiger, with the exception of a few scars on different parts of its body, likely from previous firefighting missions.

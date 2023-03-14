@@ -1,0 +1,2 @@
+ID # : DSC-MATE-46
+Description: DSC-MATE-46 is a male monkey with a frightened mouth, horned rim glasses, a blue bandana on its head, and a jade earring on each ear. It is commonly seen wearing a gold chain and an LED gas mask. DSC-MATE-46 has the ability to operate a train engine and holds the occupation of a train driver.

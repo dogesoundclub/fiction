@@ -1,0 +1,2 @@
+ID # : DSC-MATE-886
+Description: Subject 886 is a male rabbit, measuring approximately 40 cm in length and 20 cm in height. The subject's face features a permanent expression of fear, and his eyes are replaced with ski goggles. The head of the subject is adorned with a bright yellow retro cap, and he wears a gold earring on his left ear. He also wears a silver chain around his neck and holds a candy stick in his right hand.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7997
+Description: DSC-MATE-7997 is a male rabbit with a police cap for its head, jade earrings for its ears, a red scarf for an accessory, and a whistle as its backup. Its eyes resemble ski goggles, and its frightened mouth is a defining facial feature. While DSC-MATE-7997 resembles a typical rabbit in most aspects, it exhibits human-like capabilities and intelligence.

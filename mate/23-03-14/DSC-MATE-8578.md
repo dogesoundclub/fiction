@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8578
+Description: DSC-MATE-8578 is a human female of average height and weight, with an 00s school-girl hairstyle and distinctive red lip makeup. One notable feature of DSC-MATE-8578 is the green cross earring on her left ear, as well as a gold chain around her neck. DSC-MATE-8578 has also been observed to smoke periodically.

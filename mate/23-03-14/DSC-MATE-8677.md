@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8677
+Description: DSC-MATE-8677 is a human female of average height and weight. Their most notable facial features include orange stripes along their cheekbones and red lips, giving their face a distinctive appearance. They have orange eyebrows and green hair in a purple cap. DSC-MATE-8677's ears are adorned with gold earrings, and they wear a medical mask over their mouth.

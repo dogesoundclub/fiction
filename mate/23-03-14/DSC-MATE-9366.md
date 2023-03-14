@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9366
+Description: DSC-MATE-9366 appears as a monkey with a frightened expression and blue clown eyes. The subject wears a purple cap with green hair and a red scarf, alongside a candy stick as a favored accessory. DSC-MATE-9366 is known for their deep curiosity about the world and his inexplicable love for uncommon and unprecedented information. This condition is believed to be a result of DSC-MATE-9366's exposure to unknown genetic modifications that have led to his extraordinary aptitude in retaining and recalling massive amounts of data.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9223
+Description: DSC-MATE-9223 is a male human of average height and build. His most distinctive feature is the multiple spots on his face, resembling freckles. DSC-MATE-9223 is typically seen wearing a pair of nerd glasses and a headset with LED lights that illuminate when he is working. He also carries a candy stick as an accessory.

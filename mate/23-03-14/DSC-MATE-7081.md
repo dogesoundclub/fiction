@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7081
+Description: Item 7081 is a female human, with the appearance of a firefighter. Item 7081's face features include orange stripes, purple lips, and orange eyebrows. The head of Item 7081 is metal blue, with red cross earrings on the ears. Item 7081 wears a medical mask over the mouth, with a silver chain as an accessory. 

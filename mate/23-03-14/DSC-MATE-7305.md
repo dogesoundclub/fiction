@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7305
+Description: Subject 7305 is a human male with a striking appearance. He wears a bucket hat on his head, adorned with a two-color band on his forehead, and green cross earrings on his ears. His face is characterized by orange stripes and a constant smile. He is often seen wearing a red scarf, which is rumored to hold mystical powers.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8883
+Description: 8883 is a male robot, designed to resemble a human. Its most notable feature is a single green cyclops eye that provides advanced visual capabilities. Its eyes are replaced with ski goggles that assist in its vision. 8883 has red cross earrings as its ears and a medical mask for its mouth. It wears a red scarf as an accessory.

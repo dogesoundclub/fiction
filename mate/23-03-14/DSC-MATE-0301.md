@@ -1,0 +1,2 @@
+ID # : DSC-MATE-301
+Description: Subject appears to be a human male of average height with a mohawk and a medical mask covering his mouth. The subject's most distinct facial features are a spot on their mouth and an everlasting smile. Two-color band and goggles adorn their forehead along with a red scarf. Subject wears a neat suit with a tie underneath, suitable for their job as a news anchor.

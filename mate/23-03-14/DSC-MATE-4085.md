@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4085
+Description: Item 4085, also known as the Fashion Designer, is a human male of unknown age. The subject has a red victory band on its forehead, a jade earring in its left ear, and a silver chain hanging around its neck. The subject has a normal gas mask as a secondary accessory that it wears constantly. 4085 is often seen wearing formal or smart clothing that it designs by itself. The fashion designer resembles a normal human, but with a unique fashion taste.

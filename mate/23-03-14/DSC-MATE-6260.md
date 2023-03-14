@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6260
+Description: Item 6260 is a female human of unknown age and origin, currently employed as a Fast Food Worker. The subject's most notable physical features include spots on her face, a noticeable smile, blue Clown Eyes, and a 90s Brown Hair style. Item 6260 also wears a pair of Jade Earrings and a Silver Chain, as well as regularly smoking a cigarette.

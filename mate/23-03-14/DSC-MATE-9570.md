@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9570
+Description: DSC-MATE-9570 is a humanoid robot, resembling a male in his late twenties. It has dark metal plating for skin, and atypical features such as horned rim glasses for eyes, a retro cap for the head, and a gold earring on one ear. Its mouth is covered by a medical mask, which it can remove for communication. DSC-MATE-9570 is usually seen wearing a gold chain as an accessory.

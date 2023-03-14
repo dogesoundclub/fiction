@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9267
+Description: DSC-MATE-9267 is a male monkey, resembling a Rhesus Macaque (Macaca mulatta) with clown-like red eyes. DSC-MATE-9267 presents a distinctive fashion style, frequently wearing a purple cap with a headset, a jade earring, and silver chains. Additionally, DSC-MATE-9267 is often seen with an LED gas mask, which is believed to regulate the subject's respiration.

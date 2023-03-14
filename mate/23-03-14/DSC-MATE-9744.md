@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9744
+Description: Item #9744 appears to be a male human politician, with a distinctive mouth spot and blue clown eyes. The subject wears a blue bandana on its head, a gold earring on its ear, and a gold chain at all times. Despite its human appearance, it is suspected that Item #9744 may possess anomalous properties.

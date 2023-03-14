@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8660
+Description: 8660 appears to be a humanoid robot with green Cyclops eye and frightened mouth as primary facial features showing a constant expression of worry. The subject's eyes are obscured by horned rim glasses, the head is marked with a red alarm signal, and one ear wears a gold earring. 

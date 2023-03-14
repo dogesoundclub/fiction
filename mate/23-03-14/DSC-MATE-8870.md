@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8870
+Description: DSC-MATE-8870 is a male human appearing to be in his late thirties to early forties, standing at 5'11" (180 cm) and weighing approximately 170 lbs (77 kg). DSC-MATE-8870 has an affable disposition and enjoys making connections with others. DSC-MATE-8870 possesses a facial feature of small spots and a smile, with LED rainbow-colored eyes and pink parted hair. DSC-MATE-8870 is frequently seen wearing a red scarf and a standard gas mask.

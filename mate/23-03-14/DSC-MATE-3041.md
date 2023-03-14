@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3041
+Description: DSC-MATE-3041 is a train driver robot model with a frightened mouth, nerd glasses, a police cap on the head, a jade earring on each ear, a medical mask over the mouth, and a red scarf as the accessory. The robot stands approximately 6 ft tall and weighs approximately 200 lbs. DSC-MATE-3041's metal exterior is colored in a rusted brown hue, with a few scratches and dents on various parts of its body.

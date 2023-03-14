@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2220
+Description: DSC-MATE-2220 is a male human who holds the position of Mafia Boss in the criminal underworld. He appears to be in his early thirties and has a distinctive physical appearance. DSC-MATE-2220 has a mouth spot and a frightened mouth, which gives him a sinister and intimidating appearance. He also wears nerd glasses over his eyes and sports a mohawk on his head. Furthermore, a two-color band can be seen on his forehead along with goggles placed on top.

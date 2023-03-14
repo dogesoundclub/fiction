@@ -1,0 +1,2 @@
+ID # : DSC-MATE-249
+Description: The firefighter is of the species Homo sapiens and appears to be a male. He wears normal glasses, a medical mask over his mouth, and is often seen with a gold chain around his neck. Of note is a distinctive dark spot on his mouth. The firefighter also sports a gold earring in one ear.

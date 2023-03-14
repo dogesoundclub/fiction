@@ -1,0 +1,2 @@
+ID # : DSC-MATE-225
+Description: Item #225 is a male monkey, measuring approximately 2.5 feet tall, with pink and white fur and distinctive gold earrings. The creature's eyes resemble ski goggles, providing a unique and rather humorous appearance.

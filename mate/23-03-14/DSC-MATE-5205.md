@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5205
+Description: Subject 5205, also known as 'The Rebel', is a human female standing at 5'11" and weighing approximately 150 lbs. Her face bears several dark spots, blending into a bold purple lip, surrounding her vibrant orange eyebrow eyes. She often wears a jade gemstone earring pair, along with a two-color band forehead marking and a distinctive tiara sitting atop her head. The subject also possesses a black leather choker and gas mask helmet fitted with LED lights and an intricate breathing apparatus.

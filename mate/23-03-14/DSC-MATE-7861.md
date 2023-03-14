@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7861
+Description: DSC-MATE-7861 appears to be a male monkey, referred to in its previous life as "Timmy," who now serves as a news anchor for a major television network. DSC-MATE-7861 wears a golden chain around its neck and a bucket hat on its head, further accessorized by LED lights that can shift between a rainbow of colors. Its most notable feature is its constantly frightened mouth.

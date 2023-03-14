@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7851
+Description: DSC-MATE-7851 is a male rabbit approximately 25 cm in height. DSC-MATE-7851's physical appearance is altered due to the various accessories it wears, such as a doge hat, gold earring, and red scarf. DSC-MATE-7851 also wears nerd glasses and has a two-color band on its forehead. DSC-MATE-7851's mouth is often in a permanent state of fright. 

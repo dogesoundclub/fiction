@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8258
+Description: DSC-MATE-8258 is a female human farmer wearing a tiara and gold earrings. The subject's facial features include spots and red lips, and she wears normal glasses, a choker, and consistently holds a cigarette. DSC-MATE-8258 displays no outwardly anomalous traits, though she has exhibited a strong sense of duty and responsibility towards her work.

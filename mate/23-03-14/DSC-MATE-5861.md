@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5861
+Description: Item 5861 is a male human, approximately 32 years old, with a unique appearance. Item 5861 has a head of parted pink hair and is often seen wearing a gas mask, goggles, a silver chain, and a jade earring. Although Item 5861's appearance is unusual, it does not appear to cause any anomalous effects.

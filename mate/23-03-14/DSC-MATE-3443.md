@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3443
+Description: DSC-MATE-3443, identified as a female human, has striking features including orange stripes, purple lips, and orange eyebrows. DSC-MATE-3443's hair is blonde and features an appendage resembling a wing. DSC-MATE-3443 also wears a jade earring and a gold chain.

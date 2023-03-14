@@ -1,0 +1,2 @@
+ID # : DSC-MATE-439
+Description: Subject 439 appears to be a humanoid female with distinctive orange stripes on her face. She is usually seen wearing a headset with LED lights and a silver chain around her neck. Her forehead is adorned with a two-color band and a goggle on her forehead.

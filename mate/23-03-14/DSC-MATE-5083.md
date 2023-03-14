@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5083
+Description: DSC-MATE-5083 is a male tiger with a frightened mouth and glasses that exhibit a notable level of intelligence. It wears a police cap and a jade earring as well as holding a cigarette.

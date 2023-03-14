@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7728
+Description: DSC-MATE-7728 is a female human appearing to be in her late 20s, standing at 5'6" or 167.6 cm in height. She has multiple spots on her face and bright red lips. Her head is green with edge curl, and she has a red cross earring in each ear. She typically wears a choker and is often seen smoking a cigarette.

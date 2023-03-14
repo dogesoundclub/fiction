@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8909
+Description: Subject 8909 is a middle-aged human male, displaying orange stripes on their face and a perpetually frightened mouth. They possess blue clown eyes which are unsettling to witnesses. The subject is often seen wearing a police cap and sporting a gold earring, paired with a red scarf and a lit cigarette. Their appearance, while unusual, is not the focus of concern.

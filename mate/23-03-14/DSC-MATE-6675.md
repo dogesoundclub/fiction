@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6675
+Description: Subject 6675 is a humanoid female of the species known as human. She is commonly seen wearing a purple cap with a headset, gold earrings, a gold chain, and red clown eyes. The most notable feature of her face is her purple lips. Upon initial observation, 6675 appears to be a Fast Food Worker. However, she has exhibited natural talent for leadership and has been seen taking charge of situations. This trait is present both at work, in social groups, and in her personal life. 

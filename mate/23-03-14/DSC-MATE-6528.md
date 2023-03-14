@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6528
+Description: Item 6528 is a bipedal tiger, standing at approximately 6'3" in height. The subject has distinctive two-color bands across its forehead, and it often carries a whistle as an accessory. Its eyes are currently unknown.

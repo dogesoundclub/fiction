@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6394
+Description: DSC-MATE-6394 is a male monkey with vibrant blue clown eyes and a head adorned with a doge hat. The creature stands at roughly 1.5 meters tall and weighs approximately 45 kilograms. DSC-MATE-6394 is capable of basic communication with human handlers, but it is not known if it possesses advanced language skills.

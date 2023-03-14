@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8709
+Description: DSC-MATE-8709 is a human male currently employed as a Traffic Officer. DSC-MATE-8709 has a distinctive Mouth Spot and his mouth appears to be constantly expressing fear, even when he is not feeling any. His eyes are red and resemble those of a clown. DSC-MATE-8709 wears a police cap and has a 2 color band on his forehead. His ears have a jade earring on one side.

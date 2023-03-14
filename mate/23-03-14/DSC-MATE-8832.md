@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8832
+Description: 8832 appears to be a member of the tiger species, standing at roughly 6'5". Although its physical traits are typical of the species, 8832 possesses a number of distinguishing features that set it apart from others of its kind. Its eyes are protected by a pair of normal glasses, and its head is adorned by a bucket hat. On its forehead is a dual-color band, and a red cross earring is evident on each of its ears. It also carries a gold chain around its neck and, curiously enough, a candy stick as a frequent accessory.

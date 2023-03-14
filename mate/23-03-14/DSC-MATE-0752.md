@@ -1,0 +1,2 @@
+ID # : DSC-MATE-752
+Description: DSC-MATE-752 is a human male with spotted skin and a distinctive two-color band across their forehead. They wear a medical mask over their mouth, and a pair of goggles on their forehead. DSC-MATE-752 also wears a green cross earring on their right ear, and a red scarf as an accessory.

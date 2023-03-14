@@ -1,0 +1,2 @@
+ID # : DSC-MATE-385
+Description: DSC-MATE-385 appears to be a human male in his mid-twenties and works as a train driver for a local transportation company. However, DSC-MATE-385 displays anomalous features, including orange stripes on his face and a blue bandana on his head. DSC-MATE-385 also wears goggles on his forehead, nerd glasses, and a gold chain around his neck. DSC-MATE-385 is known to carry a candy stick in his pocket at all times.

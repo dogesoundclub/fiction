@@ -1,0 +1,2 @@
+ID # : DSC-MATE-670
+Description: Officer 670 appears to be a typical human female police officer with the exception of two distinct facial features. They bear orange stripes across their face and a purple lip. Officer 670 also wears normal glasses over their brown eyes, with a goggle resting on their forehead. Their blonde hair is often seen tucked under a ushanka-style hat. On their left ear, they wear a green cross earring, and they often adorn a gold chain as an accessory.

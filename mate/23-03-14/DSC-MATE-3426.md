@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3426
+Description: Item 3426 is identified as a male human with orange stripes across his face and a permanently frightened mouth. Item 3426's eyes resemble ski goggles, and he has a parted pink head with jade earrings. Two accessories are always present on Item 3426: a silver chain and a candy stick.

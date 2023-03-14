@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5194
+Description: Subject 5194 appears to be a female human of average height and weight, with spotted skin and red clown eyes. They always wear a medical mask and a hoodie, and they accessorize with a choker. Their most notable feature is their red lips, which are unnaturally vivid.

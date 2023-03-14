@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8646
+Description: DSC-MATE-8646 is a male tiger with red clown eyes, standing at approximately 7 feet tall on its hind legs. Its forelimbs are capable of manipulating objects with a high degree of dexterity. DSC-MATE-8646's most unique features are the goggle it wears on its forehead and the gas mask it carries. The significance of these accessories is unknown.

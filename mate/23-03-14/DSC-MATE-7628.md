@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7628
+Description: DSC-MATE-7628 is a human female which displays prominent traits of an Orange Bengal Tiger. Facial features include orange stripes and bright orange eyebrows. DSC-MATE-7628 has been found to display exceptional intelligence and agility, making it an even more dangerous subject. 

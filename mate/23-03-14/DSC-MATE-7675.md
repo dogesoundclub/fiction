@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7675
+Description: DSC-MATE-7675 is a human male with an unusual appearance. His most distinctive facial feature is a "mouth spot" located on his upper lip, which appears as a small, circular indentation. DSC-MATE-7675's mouth is also frequently seen in a state of fear, regardless of his actual emotional state. He possesses blue clown eyes and a two-colored band across his forehead. Additionally, a gold earring is present on each ear, and DSC-MATE-7675 often wears a gold chain and carries a candy stick with him.

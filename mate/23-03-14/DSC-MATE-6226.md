@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6226
+Description: Item #6226 is a humanoid entity of simian origin, identified as a Capuchin Monkey. Item #6226 is a male subject with a retro cap on its head, two-colored band on its forehead, shade glasses, and a set of goggles resting on its forehead. Item #6226 is often seen wearing a gold earring with a gas mask, while smoking cigars in its recess time in its chamber.

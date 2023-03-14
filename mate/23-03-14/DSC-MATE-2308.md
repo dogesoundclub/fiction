@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2308
+Description: DSC-MATE-2308 appears to be a humanoid robot with a green cyclops eye and a frightened mouth. It wears a doge hat and horned rim glasses as well as a gold earring and a silver chain. The most notable feature is an LED gas mask that covers its mouth and nose.

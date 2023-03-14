@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3378
+Description: DSC-MATE-3378 is a humanoid entity of the female sex, identified as a reporter by the Foundation. It possesses several unique features that distinguish it from a typical human. DSC-MATE-3378 possesses an orange eyebrow eye coloration, and their head is adorned with pigtail hairstyles. Their forehead bears a two-color band marking, and they are often seen wearing a gold chain.

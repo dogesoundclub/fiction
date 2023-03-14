@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7650
+Description: Subject 7650 is a female humanoid of human species. She has orange eyebrows and her eyes are an unusual shade of orange. On her head, she wears a tiara and a pair of goggles always rest on her forehead. Subject 7650 has a peculiar ear accessory in the form of a red-cross earring and is often seen wearing a gold chain around her neck. Her most notable feature is her contagious smile, which is known to disarm and charm others.

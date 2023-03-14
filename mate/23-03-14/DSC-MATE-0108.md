@@ -1,0 +1,2 @@
+ID # : DSC-MATE-108
+Description: Item 108 is a male robot designed to resemble a human car salesman. It stands at 6 feet tall and has a slender build. Item 108's face features a single green cyclops eye, and it wears horned rimmed glasses over it. Its head is adorned with a bucket hat, and it wears a red cross earring on its right ear. The robot's mouth is covered by a medical mask, and it is often seen wearing a red scarf.

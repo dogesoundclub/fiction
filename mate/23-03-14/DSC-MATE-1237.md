@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1237
+Description: DSC-MATE-1237 is a human female with multicolored hair and various tattoos across her body. The most notable feature of DSC-MATE-1237 is the numerous spots located on her face. The subject's eyes are a distinctive orange, with unusual deviation in her eyebrow anatomy. DSC-MATE-1237 often wears a gold chain and regularly smokes a cigarette.

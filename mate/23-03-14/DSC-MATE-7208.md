@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7208
+Description: Subject 7208 is a human female with an unremarkable physical appearance except for her unique and striking facial features. Her signature purple lips and orange eyebrows are known to be the hallmark of her style, and she is rarely seen without her signature silver chain and goggles on her forehead. Subject is a well-known fashion designer from high-end circles, and her designs are highly sought after by the rich and famous across the globe.

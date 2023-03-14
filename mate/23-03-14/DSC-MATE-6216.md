@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6216
+Description: DSC-MATE-6216 is a human female with blonde hair and a pair of wings located on her back. The wings appear to be functional, allowing DSC-MATE-6216 to fly at an unknown altitude. DSC-MATE-6216 also possesses distinctive facial features, with orange stripes appearing on her cheeks.

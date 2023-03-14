@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3321
+Description: DSC-MATE-3321 is a male rabbit of unknown origin. It possesses red clown eyes and a two-color band on its forehead with a goggle attached. Its ears have a gold earring, and it wears a silver chain around its neck. DSC-MATE-3321 also carries a normal gas mask at all times.

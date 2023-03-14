@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2003
+Description: DSC-MATE-2003 is a sentient robotic entity with a physical appearance reminiscent of a Mafia Boss from the 1920s. DSC-MATE-2003 is equipped with antique weaponry and accessories, as well as a blue bandana worn over its head and a red-cross earring on its left ear. Additionally, DSC-MATE-2003 is rarely observed without its silver chain and whistle.

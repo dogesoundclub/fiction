@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6522
+Description: DSC-MATE-6522 is a male rabbit with an alarming appearance. It wears a retro cap on its head and has a red scarf wrapped around its neck. The rabbit's frightened mouth and red clown eyes often cause an intense feeling of fear in those who see it. DSC-MATE-6522 has a 2 color band on its forehead and wears a jade earring on its right ear. It also carries a candy stick that it is often seen chewing on.

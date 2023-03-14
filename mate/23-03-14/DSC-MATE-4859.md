@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4859
+Description: DSC-MATE-4859 is a female human with distinctive facial features, including multiple spots and a purple lip. DSC-MATE-4859 wears a purple cap with a headset, a red cross earring, and a choker. DSC-MATE-4859 also wears a standard gas mask as a form of personal protective equipment.

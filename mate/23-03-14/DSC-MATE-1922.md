@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1922
+Description: 1922 is a political figure that appears to be a robot-like entity. The head of 1922 is adorned with a green cyclops eye and a headset with LED. The mouth of 1922 is covered with a medical mask, and its eyes are visible through horned rim glasses. It often wears a red scarf as an accessory. 1922's overall appearance resembles that of a humanoid robot, with a metallic exterior and a noticeable clanking sound when in motion.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1210
+Description: DSC-MATE-1210 is a female human of average height and build, with an unusual appearance that sets her apart from other people. She has multiple spots on her face, along with purple lips and orange eyebrows. DSC-MATE-1210's head resembles that of a pink rabbit, and she has two color bands on her forehead. The subject's ears are adorned with gold earrings, and she wears a medical mask as a mouth cover.

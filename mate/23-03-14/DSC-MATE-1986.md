@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1986
+Description: DSC-MATE-1986 is a human male of average build and height. The subject's appearance is distinguished by a red victory band around the forehead, a gold earring, and a silver chain necklace worn around the neck. DSC-MATE-1986 has a uniquely shaped mouth that includes a mouth spot and frightened mouth. The subject is a programmer by profession, and his personality is marked by an outgoing and social character. DSC-MATE-1986 enjoys being the center of attention, and his entertaining character is known to create humorous situations.

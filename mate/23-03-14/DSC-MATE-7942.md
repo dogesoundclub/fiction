@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7942
+Description: Subject 7942 is a male human standing at 6ft 3in tall, weighing approximately 85 kilograms. He bears a mouth spot on his left lip and is commonly seen with a smile dominating his facial features. Subject is also notable for wearing nerd glasses and a gold earring, which is said to symbolize his past as a rebel. He is often seen wearing a gold chain necklace and can be found with a cigarette on hand.

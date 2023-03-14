@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3242
+Description: DSC-MATE-3242 is a male bipedal tiger standing at approximately 1.8 meters in height. It wears a pair of horned rim glasses and sports a notable two-color band across its forehead, as well as a red cross earring in its right ear. It is often seen wearing a silver chain around its neck and carrying a candy stick in one of its hands.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9733
+Description: Subject 9733 is a humanoid of the human species, with a female sex. They have been observed wearing a tiara on their head, which has no anomalous properties. Additionally, 9733 has a jade earring on their right ear, and a gold chain around their neck. These items do not have any discernible effects on the subject's behavior or abilities. 

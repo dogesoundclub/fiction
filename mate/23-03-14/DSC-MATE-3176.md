@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3176
+Description: DSC-MATE-3176 appears to be a 30-year-old female of Human descent. She has bright orange stripes on her face, with her lips painted purple. DSC-MATE-3176 is often seen wearing a headset with an LED display, useful for forming a direct link to the precinct's communication network. Her forehead features a two-color band, which, when activated, flashes to fit her particular mood.

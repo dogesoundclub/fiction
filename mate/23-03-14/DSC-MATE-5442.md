@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5442
+Description: DSC-MATE-5442 is a humanoid robot entity resembling an adult male, standing at 1.83 meters tall. It has a purple cap with a headset, a goggle on its forehead, and a medical mask covering its mouth. Its ears are adorned with a single gold earring and wears a silver chain as an accessory. DSC-MATE-5442 identifies as a real estate agent, although it has no affiliation with any known real estate companies. It speaks in a distinctly robotic voice with a moderate degree of articulation.

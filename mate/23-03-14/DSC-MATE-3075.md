@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3075
+Description: DSC-MATE-3075 is a non-anomalous 36-year-old male of the species Panthera tigris, commonly known as a tiger. DSC-MATE-3075 is equipped with a silver chain accessory and a jade earring on each ear. Its head features green hair in a purple cap, with a goggle on its forehead and a medical mask covering its mouth.

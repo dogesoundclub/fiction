@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7443
+Description: DSC-MATE-7443 appears to be a male rabbit of unknown subspecies, possessing a unique set of facial features and accessories. Its mouth is always in a state of fright, revealing two large front teeth. Its eyes are shaped like ski goggles, with rainbow-colored lenses that change hue depending on light exposure. Its ears are adorned with a single Jade earring, and it is often seen wearing a silver chain around its neck.

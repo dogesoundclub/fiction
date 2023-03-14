@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9769
+Description: DSC-MATE-9769 is a male monkey with all the physical attributes common to its species, with the added features of large nerd glasses, a stylish mohawk, and a jade earring on one ear. DSC-MATE-9769 displays an outgoing and social personality, often seeking the attention of others and regaling them with humorous stories and jokes. DSC-MATE-9769 is highly intelligent, and possesses a unique ability for problem-solving and mechanical aptitude, as evidenced by its job as a train driver prior to containment.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-27
+Description: DSC-MATE-27 is a male human of average height and build, with an unusual appearance. He has distinctive spots on his face and a permanent smile, which contributes to his playful demeanor. His eyes are red in color and have been surgically altered to resemble those of a clown. DSC-MATE-27 consistently wears a pair of goggles on his forehead and a green cross earring in his left ear. He often carries a candy stick as a prop of sorts.

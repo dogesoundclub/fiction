@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6456
+Description: DSC-MATE-6456 is a female human of average height and build. DSC-MATE-6456 displays a number of anomalous traits including blue clown eyes, a purple lip, and a purple cap with a headset. DSC-MATE-6456's most prominent accessory is a red cross earring in their left ear. DSC-MATE-6456 is often seen wearing a two-color band on their forehead and a gold chain necklace. DSC-MATE-6456 is a practicing real estate agent, specializing in properties with potential anomalous properties.

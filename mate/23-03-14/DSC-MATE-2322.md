@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2322
+Description: 2322 is a human male with spotted face features and normal glasses. He is often seen wearing a hoodie and a gold chain as an accessory. Despite his mundane profession as a Traffic Officer, 2322 possesses a unique personality trait. He has an insatiable thirst for knowledge and is often engrossed in reading and researching various topics, especially those that are obscure and unconventional. 

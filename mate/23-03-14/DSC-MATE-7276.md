@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7276
+Description: Subject 7276 is a male rabbit with jade-colored VR-LED eyes and a distinctive Doge hat on his head. Additional accessories include a whistle, which he occasionally uses to communicate with Personnel, notably during emergency situations. The Subject is generally sociable and enjoys interacting with humans, although this is more of a preference than a requirement. Personality tests have shown that the subject values harmony and social connections, but they also have a playful and goofy side that can lead to humorous situations.

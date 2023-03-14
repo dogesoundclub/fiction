@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3924
+Description: Subject 3924 appears to be a male rabbit, standing at a height of 5'7". The subject wears horned rim glasses over green fur that is not arranged. Subject 3924 is often seen wearing a bright red scarf and an LED gas mask, which is believed to be for breathing purposes.

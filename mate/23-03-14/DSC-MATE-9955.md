@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9955
+Description: DSC-MATE-9955 is a caucasian female human of early thirties, with numerous spots covering her face and a distinctively red lip color. DSC-MATE-9955 presents a head of blond hair, frequently kept hidden under a Russian ushanka hat or some other type of headwear, with gold earrings fastened in her ears. DSC-MATE-9955 is very consistent in wearing a gas mask fitted with LED lights and other kinds of technology, even though tests showed that no hazardous substances are emitted from her respiration.

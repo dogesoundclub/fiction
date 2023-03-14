@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3066
+Description: DSC-MATE-3066 is a male robot identified as a delivery driver. It stands at approximately 1.8 meters in height and weighs 60 kilograms. DSC-MATE-3066’s single eye is green with a red iris, and it wears ski goggles with a medical mask over its mouth. DSC-MATE-3066 adorns a silver chain around its neck.

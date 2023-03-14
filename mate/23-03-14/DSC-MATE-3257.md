@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3257
+Description: DSC-MATE-3257 is a human female of average height and build, possessing a unique appearance featuring orange eyebrows and a distinctive 00s school girl hairstyle. The subject's forehead also features a pair of goggles that remain perched atop their forehead at all times. DSC-MATE-3257 frequently wears gold earrings and is often seen holding a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7490
+Description: DSC-MATE-7490 is a female human with unique facial features. It has orange stripes accentuating its high cheekbones, and prominent red lips. DSC-MATE-7490's eyes are considered unusual, sporting blue clown eyes. DSC-MATE-7490's forehead features two color bands that wrap wide above its eyebrows. DSC-MATE-7490 has brown hair, which has been described as "90s", meaning straight and tamed. DSC-MATE-7490 regularly wears a medical mask, concealing its mouth from view. 

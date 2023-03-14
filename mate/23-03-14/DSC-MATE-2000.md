@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2000
+Description: DSC-MATE-2000 is a sentient rabbit that stands at 27.9 cm and weighs 2.72 kg. The rabbit has a visibly frightened expression and a black ski goggle covering its eyes. It often wears a red scarf around its neck and a gold earring in its left ear. DSC-MATE-2000 uses a whistle to alert security officers of unauthorized incursions in its designated area.

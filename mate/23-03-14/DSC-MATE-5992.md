@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5992
+Description: Subject 5992 is a human male in his late 20s, commonly seen patrolling the streets as a traffic officer. He stands at a height of 5'11" and weighs approximately 165 lbs. He has orange stripes etched on his cheeks and a seemingly contagious smile on his lips which, when coupled with his VR rainbow LED eyes, can be quite unsettling to observe.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-37
+Description: Agent 37 appears to be a male rabbit of average height and weight. His eyes resemble ski goggles and he is often seen wearing a bucket hat, red scarf, and carrying a whistle. Despite his innocuous appearance, his deadpan sense of humor often catches people off guard and has been known to elicit unexpected reactions.

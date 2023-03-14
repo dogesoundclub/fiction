@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6114
+Description: DSC-MATE-6114 is a male Siberian tiger approximately 2.5 meters in length and weighing 500 kg. DSC-MATE-6114 has blue "clown eyes" that are hyper-reflective, indicating a high level of intelligence. DSC-MATE-6114 displays a frightened expression on its mouth which can be perceived by its facial muscles. DSC-MATE-6114 typically wears a red hoodie with a red victory band around its forehead, and a red scarf. DSC-MATE-6114's vocalizations are similar to that of a human male, though its vocal cords are that of a tiger's. 

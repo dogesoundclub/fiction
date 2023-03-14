@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9743
+Description: DSC-MATE-9743 is a male monkey with red clown eyes and a frightened mouth. It wears a retro cap and a gold earring, as well as a gold chain and whistle as accessories. Despite its appearance, DSC-MATE-9743 has displayed an exceptional aptitude for mechanical work and maintenance, to the point where it is currently employed as a mechanic.

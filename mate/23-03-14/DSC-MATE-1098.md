@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1098
+Description: DSC-MATE-1098 is a female human identified as a news anchor. Their most distinct physical attributes are the orange stripes on their skin and their red clown-like eyes. DSC-MATE-1098 also wears a pair of goggles on their forehead as an apparent fashion accessory, along with a gold chain around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1927
+Description: The Tiger is a rare breed of urban fantasy character. With his imposing stature and striking cybernetic enhancements, he stands out from the crowd. His eyes glow with the colors of the rainbow, providing a technicolor mask that shields any indication of emotion beneath it.

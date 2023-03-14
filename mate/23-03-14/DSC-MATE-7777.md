@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7777
+Description: Subject 7777 is a human female with distinctive facial features. The most striking feature is a set of vibrant orange stripes that run down the left side of her face. She is often seen with a smirk or smile, revealing a set of sharp teeth beneath her orange eyebrows. The subject's head is adorned with a blond fur-trimmed Ushanka and a green cross earring dangles from her left ear. She also wears a gold chain necklace.

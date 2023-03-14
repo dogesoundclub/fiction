@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8821
+Description: DSC-MATE-8821 is a human female with spots on her face as well as red lips and orange eyebrows. Her head is not arranged in a typical hairstyle, but rather it remains unstyled and colored green. She can frequently be seen wearing a gold chain as an accessory.

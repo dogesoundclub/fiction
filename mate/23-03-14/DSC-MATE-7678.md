@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7678
+Description: DSC-MATE-7678 is a human male with a unique set of features. Notably, DSC-MATE-7678 possesses a mouth spot, which is a circular black patch located on the right side of the lower lip. DSC-MATE-7678's eyes are fitted with VR Rainbow LED technology, which produces a rainbow-colored glow. Finally, DSC-MATE-7678 has a single gold earring in his left ear and can often be seen with a candy stick in his mouth.

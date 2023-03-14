@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7656
+Description: DSC-MATE-7656 appears to be a Caucasian female in her early twenties. Her face features bright orange stripes similar to those of a tiger and possesses red lips. She always wears a bucket hat on her head and a medical mask covering her mouth. DSC-MATE-7656 has gold earrings on both ears and wears a silver chain around her neck. 

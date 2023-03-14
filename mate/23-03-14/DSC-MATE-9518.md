@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9518
+Description: DSC-MATE-9518 is a female humanoid identified as a news anchor for a local television station. The subject's physical appearance is normal apart from the presence of orange stripes on her face and purple lips. DSC-MATE-9518 is frequently observed wearing a hoodie and a gold chain as accessories.

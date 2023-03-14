@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8625
+Description: DSC-MATE-8625 is a human female in her mid-thirties, identified as a farmer. DSC-MATE-8625 possesses unusual physical characteristics, including red clown eyes and a retro cap. DSC-MATE-8625's most distinctive feature is a pair of goggles that are typically worn on their forehead, along with a red cross earring.

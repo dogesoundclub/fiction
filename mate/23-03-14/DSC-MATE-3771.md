@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3771
+Description: DSC-MATE-3771 is a male humanoid entity, identifying as a Bengal Tiger. DSC-MATE-3771 stands at approximately 1.8m in height and weighs approximately 90kg. DSC-MATE-3771's head is adorned with a police cap, and its ears bear a jade earring. DSC-MATE-3771 can be seen wearing a gold chain and smoking a cigarette at almost all times.

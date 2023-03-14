@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3273
+Description: DSC-MATE-3273 is a humanoid robot with a single eye in the center of its face in the shape of a green cyclops eye. The robot has horned rim glasses for eyes and a red cross earring in its left ear. DSC-MATE-3273 is also frequently seen wearing a red scarf and an LED gas mask.

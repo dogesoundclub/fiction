@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3392
+Description: DSC-MATE-3392 is a female human police officer with distinct facial features. DSC-MATE-3392 is distinguished by a series of spots across their face, coupled with an orange eyebrow and a charming smile. The subject is further identified by a pair of goggles worn atop their forehead and a gold chain around their neck.

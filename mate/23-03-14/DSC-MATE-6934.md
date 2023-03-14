@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6934
+Description: DSC-MATE-6934 is a male rabbit of the Leporidae family, standing at approximately 40 cm tall. DSC-MATE-6934 has been observed wearing a bucket hat, gold earring, silver chain, and carrying a candy stick. DSC-MATE-6934 is capable of speaking fluently in multiple languages, and has demonstrated a high level of intelligence, especially in political matters.

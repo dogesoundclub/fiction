@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6980
+Description: 6980 is a human female, appearing to be in her mid-thirties, with striking red lips and a headset adorned with LED lighting. A two-color band is also present on her forehead, serving as an additional identifying feature.

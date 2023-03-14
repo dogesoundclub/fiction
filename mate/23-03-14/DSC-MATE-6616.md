@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6616
+Description: DSC-MATE-6616 is a male monkey of the Macaca fascicularis species, standing at 1.2 meters tall. It wears a purple cap and a headset while working. Its mouth is perpetually in a frightened expression, and it wears normal glasses. DSC-MATE-6616's forehead features a two-color band, and has a jade earring on each ear. It is known to wear a silver chain around its neck.

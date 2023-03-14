@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6242
+Description: 6242 is a male Bengal tiger standing at approximately 6'5" tall in his bipedal form. His fur is primarily orange and black, with white stripes along his back and legs. He is often seen wearing a purple cap with green hair, a red scarf, and glasses that he has adapted to fit his head shape. On his forehead, there is a two-color band that seems to be some form of tribal tattoo.

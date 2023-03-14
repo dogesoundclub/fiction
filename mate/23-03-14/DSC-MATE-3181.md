@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3181
+Description: DSC-MATE-3181 is a female human with identifications matching to that of a train driver. DSC-MATE-3181 exhibits orange-striped face and eyes with an orange-eyebrow which is unusual for a typical human. This individual is also noted to have a smile on their face which do not leave irrespective of the situation. DSC-MATE-3181's head appears to be made from metal-blue, with goggles being featured on the forehead. They also prominently display a red cross earring in their ears and a choker necklace around their neck.

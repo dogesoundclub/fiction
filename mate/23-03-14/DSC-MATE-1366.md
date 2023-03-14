@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1366
+Description: DSC-MATE-1366 appears to be a typical middle-aged human male with a distinct mouth spot on their upper lip and a perpetually cheerful smile. However, their eyes are red and reminiscent of that of a clown's, leading to immediate psychological manipulation in any unsuspecting individuals that meet DSC-MATE-1366's gaze.

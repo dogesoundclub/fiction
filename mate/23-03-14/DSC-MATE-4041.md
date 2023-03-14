@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4041
+Description: DSC-MATE-4041 is a human male of average height and weight, with nerdy glasses over his eyes. A red victory band is worn above his forehead with a pair of goggles resting on his forehead. DSC-MATE-4041 is adorned with a jade earring and a gold chain is around his neck. He is regularly seen with a cigarette between his fingers.

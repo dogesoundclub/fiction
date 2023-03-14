@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5823
+Description: Subject 5823 is a male human with spots on his face and a constant smile, giving him an almost clown-like appearance. His most distinctive feature is his red clown eyes that seem to pierce through those they focus on, creating a feeling of unease and discomfort. The subject's head is adorned with normal blonde hair, and his ears are pierced with a single green cross earring.

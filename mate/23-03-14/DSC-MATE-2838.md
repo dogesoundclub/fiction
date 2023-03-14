@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2838
+Description: Item 2838 takes the form of a male Bengal tiger wearing a police cap and sporting red clown eyes. The tiger has a distinctive two-color band on its forehead and a pair of goggles resting on top of the band. It dons a red cross earring on its right ear and always carries a whistle as an accessory.

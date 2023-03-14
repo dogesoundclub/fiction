@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2225
+Description: Item #2225 is a human female with orange stripes on the face and red lips. She has blue clown eyes and wears a purple cap with a headset. She also has a gold earring and gold chain. She is a practical and hands-on individual, known to employ unconventional solutions to otherwise complicated problems. She has been identified as a veterinarian and displays expert knowledge in animal medical care.

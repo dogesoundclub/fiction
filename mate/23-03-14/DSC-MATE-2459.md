@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2459
+Description: DSC-MATE-2459 is an anomalous entity, posing as a monkey with the profession of a beautician. DSC-MATE-2459 is capable of heightened levels of introspection and daydreaming, which can result in occasional fits of euphoria and disconnection from the physical world.

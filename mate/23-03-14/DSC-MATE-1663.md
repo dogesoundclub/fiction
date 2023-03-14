@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1663
+Description: DSC-MATE-1663 is a human female, approximately 35 years old, with purple lipstick and VR jade LED eyes. DSC-MATE-1663's hair is an unkempt shade of green and appears to be uncombed. DSC-MATE-1663 wears a gold chain and a pair of gold earrings. Its appearance suggests that DSC-MATE-1663 has a strong sense of fashion and style.

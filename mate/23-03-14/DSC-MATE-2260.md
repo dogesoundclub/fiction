@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2260
+Description: DSC-MATE-2260 is a human male, standing approximately 6 feet tall. He sports green layered hair atop of his head and a pair of nerd glasses adorn his eyes. Two unique identifying features are the conspicuous spots on his face and his charming smile. DSC-MATE-2260 also wears a red scarf and a gold earring. Additionally, he is often seen with a cigarette in his hand.

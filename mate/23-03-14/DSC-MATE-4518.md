@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4518
+Description: DSC-MATE-4518 is a male human standing at 1.8 meters in height. The only observable facial feature of DSC-MATE-4518 is a perpetually present smile. DSC-MATE-4518's eyes are obscured by what appears to be ski goggles. DSC-MATE-4518 wears a hoodie, with a medical mask covering the lower half of their face. DSC-MATE-4518 is often seen wearing a gold chain.

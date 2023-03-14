@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1505
+Description: The Reporter is a human female with distinct features, including orange stripes and purple lips. Her eyes are VR Jade LED, and she has a witch short hairstyle with green cross earrings. She is often seen wearing a choker and a normal gas mask as accessories. Despite her unique appearance, the Reporter is considered safe and cooperative.

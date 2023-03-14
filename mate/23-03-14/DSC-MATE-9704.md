@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9704
+Description: Subject 9704 is a human male in his mid-twenties with striking orange stripes on his face. He possesses green hair, which he keeps styled under a purple cap, and sports a green cross earring on one ear. In addition, he wears a gold chain as an accessory. Despite his unusual choices in fashion, his appearance is otherwise unremarkable.

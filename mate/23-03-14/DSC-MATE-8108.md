@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8108
+Description: DSC-MATE-8108 is a human female with a unique and identifiable appearance. Its face is marked with orange stripes that run from its hairline to its jawline. Its eyes are blue and resemble those of a clown. DSC-MATE-8108 is often seen wearing a retro cap and gold earring, along with a silver chain as an accessory.

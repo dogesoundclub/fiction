@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4057
+Description: DSC-MATE-4057 is a monkey of the Pongo genus, standing at approximately 4 feet tall. Its most distinguishing feature is its eyes, which are a shade of red not found in any primate species known to the Foundation. It wears a red beanie on its head, a red scarf around its neck, and an LED gas mask which it refuses to remove.

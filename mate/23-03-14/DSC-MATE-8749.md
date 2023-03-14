@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8749
+Description: Officer 8749 appears to be an average human male, approximately 6 feet tall with blue clown eyes. He wears a bucket hat on his head and a medical mask over his mouth, revealing little of his facial features. He sports a gold chain around his neck as his only visible accessory.

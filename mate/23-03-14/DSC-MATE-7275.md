@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7275
+Description: DSC-MATE-7275 is a middle-aged male humanoid identified as a politician. DSC-MATE-7275 wears a bucket hat on their head, normal glasses on their eyes, and a green cross earring on their ear. Notably, DSC-MATE-7275's forehead features a two-color band that emanates an unknown type of energy.

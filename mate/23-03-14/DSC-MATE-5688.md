@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5688
+Description: Item 5688 is a human male of average height and build. Their facial features consist of spots covering the cheeks and a frequently frightened mouth. The head is parted in a distinct pink hue. A pair of goggles are often worn atop the forehead, and a green cross earring adorns either ear. A gold chain is also commonly worn as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6437
+Description: Subject 6437 is an adult human male with orange stripes adorning their face. They possess blue clown eyes that are both hypnotic and unsettling. The top of their head forms to a peak spike, and their ears are pierced with a distinctive green cross earring.

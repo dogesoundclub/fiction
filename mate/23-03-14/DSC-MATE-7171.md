@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7171
+Description: DSC-MATE-7171 is a male human of Caribbean descent with orange stripes on his cheeks. The subject wears a red beanie on his head, goggles on his forehead, and a gold earring on his left ear. His eyes are brightly lit with VR rainbow LED lights. DSC-MATE-7171 also wears a gold chain necklace and regularly smokes cigarettes.

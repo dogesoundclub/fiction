@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2021
+Description: Subject 2021 is a female humanoid of the Homo sapiens species with several distinct physical features. Her facial features include spots on her cheeks and a bold red lip. She often wears normal glasses and has a witchy short haircut. A two-color band adorns her forehead, and she wears a red cross earring on one of her ears.

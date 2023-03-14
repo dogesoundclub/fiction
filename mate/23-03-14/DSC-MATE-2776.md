@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2776
+Description: Subject 2776 is a male monkey standing at 3 feet tall with a headset attached to his head. The headset is equipped with a flashing LED that lights up in various colors. The monkey's forehead is adorned with a two-color band and is always seen wearing a red scarf around his neck.

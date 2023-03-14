@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6218
+Description: Subject 6218 is a human male, approximately 36 years old. It stands at 6 feet tall and weighs 175 lb. Subject 6218 works as a veterinarian specializing in exotic animals such as sphynx cats and reptiles. However, it is not just subject's profession that attracts attention from the Foundation.

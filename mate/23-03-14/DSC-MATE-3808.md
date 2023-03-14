@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3808
+Description: Subject 3808 is a human female in her mid-thirties, with spotted facial features and bright red lips. They wear normal glasses and sport a blonde ushanka on their head with a two-color band across their forehead. Subject 3808 also has green cross earrings as well as a choker accessory, and is often seen smoking a cigarette.

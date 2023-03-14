@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4490
+Description: DSC-MATE-4490 is a human news anchor, genetically modified with anomalous traits that make her highly distinctive. Her face is adorned by a bright red lip, with orange eyebrows framing her rabbit-like head. Her ears feature vibrant jade earrings, and her mouth is concealed at all times by a medical mask. DSC-MATE-4490 often accessorizes with a silver chain.

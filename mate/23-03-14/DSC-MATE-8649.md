@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8649
+Description: DSC-MATE-8649 is a human male, standing at 1.78 meters tall and approximately 80 kilograms in weight. DSC-MATE-8649 displays two unique facial features, which include spots on their face, and a constant smile. DSC-MATE-8649’s eyes resemble ski goggles, and they always wear a medical mask over their mouth, citing “precautionary measures” as their reason for doing so. However, DSC-MATE-8649 has not displayed any visible signs of illness or contagion.

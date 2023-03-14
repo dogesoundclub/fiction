@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5147
+Description: DSC-MATE-5147 is a humanoid robot with a red alarm for a head and a single green cyclops eye. Its body is made of a lightweight metal alloy and its joints and extremities have been fitted with numerous advanced mechanical components. DSC-MATE-5147 stands at 1.84 meters tall and weighs approximately 180 kilograms. It has been programmed to resemble a male car salesman and adopts this persona when interacting with humans.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1118
+Description: DSC-MATE-1118 is a male monkey of unknown origin. The subject stands approximately 1 meter tall and has a highly developed brain. DSC-MATE-1118 displays an unusually high level of intelligence, with the mental capacity to understand human speech and communicate through a series of grunts, gestures, and hand signs.

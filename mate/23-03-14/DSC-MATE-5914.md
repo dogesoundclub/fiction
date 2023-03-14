@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5914
+Description: DSC-MATE-5914 appears to be a female human of average height and build. They have blue clown eyes and wear a purple cap with a headset that allows them to communicate with and control trains via a system of electronic switches. DSC-MATE-5914 also wears a two-color band on their forehead, jade earrings, and a choker. They are often seen wearing a normal gas mask, apparently without reason.

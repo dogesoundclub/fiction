@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2429
+Description: Subject 2429 is a human female with blue clown eyes and spots on their face. They have a smile that is constantly present and are often seen wearing a retro cap, gold earrings, and a gold chain. Subject 2429 is outgoing and enjoys being the center of attention, which can lead to humorous situations.

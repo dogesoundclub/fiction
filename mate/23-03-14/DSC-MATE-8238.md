@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8238
+Description: DSC-MATE-8238 is a humanoid robot standing at approximately 1.75 meters in height. DSC-MATE-8238 is a fashion designer by profession, with an exquisite taste in clothing that manifests through their collection of haute couture garments made of organic and synthetic materials. DSC-MATE-8238's body is made of an alloy of cobalt and aluminum and is resistant to most physical attacks.

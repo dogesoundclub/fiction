@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6336
+Description: DSC-MATE-6336 appears to be a female human with orange stripes on their face and red lips. The eyes are blue clown eyes, which emanate a hypnotic effect, making those who look into them feel dizzy and disoriented.

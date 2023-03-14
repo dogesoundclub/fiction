@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4314
+Description: DSC-MATE-4314 is a humanoid entity identified as a human female of average height and weight. DSC-MATE-4314 is distinguishable by the spots on her face, purple lips, and red clown eyes. She has green hair, which she often wears in a purple cap, and a silver chain around her neck. DSC-MATE-4314 can regularly be seen smoking a cigarette.

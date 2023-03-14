@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5481
+Description: Officer 5481 is a female human with unique features. Her face is covered in spotted freckles, and her lips are a vibrant shade of purple. She wears normal glasses to correct her vision, but the frames are slightly tinted to reduce glare. Her hair is cut short, with one side dyed a bright orange color. She wears a single jade earring in her left ear and a gold chain around her neck.

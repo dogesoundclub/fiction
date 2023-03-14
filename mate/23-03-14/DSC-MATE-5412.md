@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5412
+Description: DSC-MATE-5412 is a sentient, male tiger of unknown origin. It possesses a humanoid form and stands approximately 2 meters in height. DSC-MATE-5412 is most often seen wearing a police cap, a gold earring in each ear, a silver chain around its neck, and a normal gas mask that covers its face.

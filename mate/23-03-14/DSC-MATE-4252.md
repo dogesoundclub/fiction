@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4252
+Description: DSC-MATE-4252 is a humanoid robot standing at 1.8 meters tall. It possesses one green cyclops eye, a mouth that is constantly locked in a frightened expression and nerdy glasses. Additionally, it wears a goggle on its forehead, a silver chain, and a normal gas mask. Despite its seemingly harmless appearance, DSC-MATE-4252 has proven to be a dangerous entity.

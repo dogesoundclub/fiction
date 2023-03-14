@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5114
+Description: DSC-MATE-5114 is a male robot built to resemble a train driver. DSC-MATE-5114's body is made primarily of metal and plastic, with a ski goggle for eyes, a red beanie for a head, a gold earring on each ear, and a medical mask for a mouth. DSC-MATE-5114 also wears a goggle on its forehead and a red scarf around its neck. DSC-MATE-5114 is programmed to operate trains, and is capable of operating most conventional types of trains.

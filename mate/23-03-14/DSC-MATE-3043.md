@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3043
+Description: Subject is a male monkey with a distinctive blue-colored clown eyes. It stands at 1 meter tall and has a mohawk. It often wears a silver chain and a jade earring on its left ear.

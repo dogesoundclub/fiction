@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6770
+Description: 6770 is an eccentric robotic Theater Manager with a penchant for humor and a love for social connections. It stands at 5'11", with a bright green Cyclops eye that gazes curiously at its surroundings. Horned rim glasses adorn its ocular opening, giving it a scholarly look. The robotic face is hidden behind a black hoodie with a medical mask that obscures its metallic mouth.

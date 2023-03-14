@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6942
+Description: DSC-MATE-6942 appears to be a Bengal tiger with glasses and a red cross earring on its left ear. It has also been observed to repeatedly carry a candy stick in its mouth. DSC-MATE-6942 has displayed the ability to converse in English, and claims to be a former reporter for ████████ newspaper.

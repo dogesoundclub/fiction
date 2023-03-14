@@ -1,0 +1,2 @@
+ID # : DSC-MATE-376
+Description: DSC-MATE-376 appears as a male human, with metal purple skin that appears to be fused onto his body. Its eyes are blue clown eyes, which seem to radiate an unnatural light. Furthermore, DSC-MATE-376 always wears a medical mask, covering what would be its mouth. DSC-MATE-376 is a successful beautician, able to create unique designs and styles on the hair and skin of humanoid entities. Despite its abilities, DSC-MATE-376 seems to prefer inanimate objects, often naming them and treating them as if they were pets.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8473
+Description: DSC-MATE-8473 appears as a male rabbit with green hair styled into a purple cap. The subject also wears nerd glasses and a gold earring in its left ear. DSC-MATE-8473 also has a unique red scarf that it is often seen wearing. Its most noticeable facial feature is a frightened mouth, which is often seen making the subject appear vulnerable.

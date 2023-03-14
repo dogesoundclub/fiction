@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7966
+Description: DSC-MATE-7966 is a humanoid male with distinct orange stripes present on their face and arms. Their head appears to be mutated with green growths, and they consistently wear a medical mask over their mouth.

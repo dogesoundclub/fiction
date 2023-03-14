@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1616
+Description: DSC-MATE-1616 is a male human who presents with unusual physical features. DSC-MATE-1616's eyes are an abnormal shade of blue and have a distinct clown-like appearance. DSC-MATE-1616's head is adorned with a peak spike, and their ears have a gold earring. DSC-MATE-1616 heavily accessorizes, often wearing a red scarf and an LED gas mask.

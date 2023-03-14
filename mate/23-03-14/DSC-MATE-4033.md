@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4033
+Description: Subject 4033 is a human female, approximately 28 years old. She has spots on her face, a prominent red lip, and red clown eyes. Her hair is styled in two pig-tails and has gold earrings with a gold chain as an accessory. The subject is often seen wearing an LED gas mask around their neck. Their appearance suggests that they may have been involved in the circus or performance arts. 

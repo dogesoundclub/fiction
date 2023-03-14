@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8341
+Description: DSC-MATE-8341 is a humanoid entity that outwardly resembles a Bengal tiger. DSC-MATE-8341 wears a doge hat on top of their head and has been observed wearing nerd glasses and a jade earring. DSC-MATE-8341 also wears a silver chain around their neck, which they are protective of. DSC-MATE-8341 has heightened dexterity and is able to manipulate small objects with comparative ease. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5189
+Description: DSC-MATE-5189 is a humanoid with a unique appearance. The subject has a mouth spot located on the lower right side of their face, which is often mistaken for a tattoo. The subject wears a pair of "nerd glasses," sporting a unique design that is not found in any commercial markets. DSC-MATE-5189 is observed to have a mohawk-style haircut and has a gold earring on their right ear. Additionally, DSC-MATE-5189 often wears a silver chain necklace and carries a candy stick in their pocket.

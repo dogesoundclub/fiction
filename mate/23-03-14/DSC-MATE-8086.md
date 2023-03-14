@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8086
+Description: DSC-MATE-8086 is a female human, identified as a banker based on documentation found during initial containment. DSC-MATE-8086 possesses unique physical characteristics, including orange stripes on their face and orange eyebrows. DSC-MATE-8086 sports a broad smile, adding to their overall friendly appearance. They have long, brunette hair from the 90s and gold earrings that frame their face.

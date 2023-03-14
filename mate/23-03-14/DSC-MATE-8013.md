@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8013
+Description: Subject 8013 is a humanoid robot, standing at approximately six feet tall. It has a round, featureless head covered by a red beanie, with a pair of horned-rim glasses covering its eyes. A gold earring adorns each of its ears, and a goggle is attached to its forehead. The robot also wears a gold chain around its neck and carries a whistle.

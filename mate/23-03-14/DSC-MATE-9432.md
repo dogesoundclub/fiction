@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9432
+Description: Agent 9432 appears to be a human female, roughly in her mid-twenties. Her most notable feature is her red lipstick, which she wears without fail. Her eyes are also red and resemble those of a clown. Her head resembles that of an 00s school girl, but her overall appearance is non-descript.

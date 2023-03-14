@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2089
+Description: Subject 2089 appears to be a human female of average height and build, with unique face features that distinguish her from the average human. She sports orange stripes all over her face and has a smile that is always endearing. Her eyes are an unusual VR Jade LED that appears to offer her increased visual capabilities. The top of her head has a wing-like appendage that seems to be non-functional and serves only as an aesthetic addition. She may be seen wearing a green cross earring and an LED Gas Mask, which glows in various colors.

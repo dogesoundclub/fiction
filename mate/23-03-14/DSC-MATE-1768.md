@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1768
+Description: DSC-MATE-1768 is a humanoid robot designed to resemble a male police officer. It has a "frightened mouth" facial feature, horns on its glasses, a green head in disarray, and a gold earring on one ear. DSC-MATE-1768 has been observed smoking a cigarette, though it is unclear whether this activity is a necessary function or a personal choice.

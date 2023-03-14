@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1979
+Description: DSC-MATE-1979 is a male human with orange stripes on his face and blue clown eyes. The subject typically wears a Doge hat, a red victory band on his forehead, a gold chain, and a normal gas mask. Despite his peculiar appearance, DSC-MATE-1979 is capable of blending in with the general human population.

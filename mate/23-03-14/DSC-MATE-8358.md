@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8358
+Description: DSC-MATE-8358 appears to be a male rabbit with a frightened mouth and horned rim glasses for its eyes. Its head is covered with a hoodie. DSC-MATE-8358 has demonstrated highly analytical and logical thought processes in interaction with researchers. It has a tendency to argue or debate with others, even over trivial or unimportant matters.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2151
+Description: 2151 is a male human of African descent, standing at 6'2" tall and weighing approximately 205 lbs. He has a distinctive pink-colored hair, with a red victory band on his forehead and a pair of goggles resting on his forehead. He also wears normal glasses and a gold chain around his neck, as well as carrying a candy stick around with him at all times. 

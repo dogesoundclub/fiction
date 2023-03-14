@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5611
+Description: DSC-MATE-5611 is a male tiger of Bengal subspecies with unusual cybernetic implants. The most notable among them being its VR jade LED eyes, which glows in a calming green color. DSC-MATE-5611's head is adorned with green hair and a purple cap. It wears a red cross earring, a gold chain, and a cigarette dangling between its feline jaws.

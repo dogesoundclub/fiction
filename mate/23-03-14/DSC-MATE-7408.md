@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7408
+Description: DSC 7408 appears to be a male rabbit of unknown origin. Despite his small stature, DSC 7408 is notorious for being a powerful and ruthless Mafia Boss. His facial features include a frightened mouth, which usually expresses fear or anxiety. DSC 7408 wears a blue bandana on his head and a golden earring on his left ear. He also wears a red scarf and smokes a cigarette most of the time.

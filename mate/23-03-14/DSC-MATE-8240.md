@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8240
+Description: DSC-MATE-8240 is a female human with orange stripes on her face and a perpetual smile. Her blue clown eyes make her appearance unnerving and leads individuals to question her emotional state. DSC-MATE-8240 often wears a hoodie and a silver chain around her neck. Her personality shows a sense of responsibility to her duty while enjoying life.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9567
+Description: DSC-MATE-9567 is a male rabbit standing at approximately 40cm tall. It has blue clown eyes, a gold earring attached to its left ear, and is often seen wearing a police cap. DSC-MATE-9567 also has a gold chain and a candy stick as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2804
+Description: Item 2804 is a male robot of unknown origin. Its body is primarily constructed of a durable metal alloy with various futuristic attachments. Its face features a single green Cyclops eye, which is capable of emitting a powerful energy beam. Its eyes are composed of virtual reality rainbow LED, which is capable of projecting various images and displays. The top of its head resembles a red alarm and is capable of emitting a pulsating red light. Its ears are decorated with a vibrant jade earring.

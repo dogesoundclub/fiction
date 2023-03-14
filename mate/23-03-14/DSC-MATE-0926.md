@@ -1,0 +1,2 @@
+ID # : DSC-MATE-926
+Description: Subject 926 is a male monkey, with unknown eye color as of this time. Its head is covered by a hoodie, with a two-color band situated on its forehead. In addition, subject 926 is seen often sporting a gold chain as an accessory.

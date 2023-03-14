@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5952
+Description: DSC-MATE-5952 appears to be a male tiger of unknown subspecies, with blue clown eyes and a doge hat on its head. It wears a gold earring on one ear and a medical mask over its mouth, believed to be a precaution against possible infection from human diseases. DSC-MATE-5952 is capable of limited human speech, and displays a highly outgoing and social personality. It enjoys being the center of attention and has been known to tell jokes and stories that cause uncontrollable laughter among those around it.

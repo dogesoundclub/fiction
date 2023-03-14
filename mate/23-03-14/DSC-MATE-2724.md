@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2724
+Description: 2724 is a human male identified as a banker. 2724 has blue clown eyes and purple headwear consisting of a cap with a headset. There is an additional goggle fixed on the subject's forehead. The subject has spots on the face and a gold earring on both ears, indicating traits commonly found in fans of punk rock subcultures. 

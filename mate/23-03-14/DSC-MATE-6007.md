@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6007
+Description: Subject 6007 is a male monkey of the genus Macaca, standing approximately three feet tall when upright. Their eyes are notable for their ski goggle-like appearance, which glows faintly when they are experiencing strong emotions. They also display a perpetually frightened expression, with their mouth perpetually agape as if they are perpetually surprised.

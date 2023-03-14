@@ -1,0 +1,2 @@
+ID # : DSC-MATE-774
+Description: Subject 774 is a male human with blonde hair and blue clown eyes. The subject has a distinctive Mouth Spot on his face and a Frightened Mouth expression. The subject also wears a red scarf and carries a Candy Stick as part of his accessories. In addition, a goggle is observed to be regularly worn on the subject's forehead.

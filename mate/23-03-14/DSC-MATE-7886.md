@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7886
+Description: Subject 7886 appears to be a female human of average height and build, with defining facial features such as orange stripes layered on top of a smile and bright red clown eyes. The subject's head is adorned with 90s brown hair and they have a goggle on their forehead. Jade earrings adorn their ears. Visible at all times is a normal gas mask which they wear on their face.

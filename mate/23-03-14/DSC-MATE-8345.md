@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8345
+Description: DSC-MATE-8345 is a male rabbit measuring approximately 40 cm in height. DSC-MATE-8345 wears a doge hat on its head and has a two-color band on its forehead. DSC-MATE-8345's ears bear a gold earring, and it wears a silver chain and carries a whistle as its accessories.

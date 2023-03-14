@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7921
+Description: DSC-MATE-7921 is a female human delivery driver with purple lips and VR jade LED eyes. The head of DSC-MATE-7921 resembles that of a 00s school girl, bearing a goggle on her forehead and jade earrings. DSC-MATE-7921 also wears a medical mask and a silver chain as an accessory.

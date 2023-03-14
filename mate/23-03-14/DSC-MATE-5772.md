@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5772
+Description: Officer is a female human of average height and build, with short black hair styled in a "witch short" cut. Her face features orange stripes across her eyes and a purple lip. Her eyebrows are also orange and her forehead has a two-color band and goggles worn on the forehead. She wears a medical mask over her mouth and a gold chain around her neck. Officer's ears are pierced and she wears gold earrings. 

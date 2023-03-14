@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9055
+Description: DSC-MATE-9055 is a human male with a friendly smile and a kind demeanor. They commonly adorn themselves with thick-rimmed nerd glasses and a bucket hat, along with a unique 2-colored band across their forehead and goggles placed on top. They are often seen carrying a candy stick.

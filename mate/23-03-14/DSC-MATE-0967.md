@@ -1,0 +1,2 @@
+ID # : DSC-MATE-967
+Description: DSC-MATE-967 is a female human with several anomalous features. DSC-MATE-967 has orange stripes present on their face, and red clown eyes. DSC-MATE-967 wears a retro cap with a two-color band present on their forehead, and has green cross earrings. DSC-MATE-967 also wears a choker accessory.

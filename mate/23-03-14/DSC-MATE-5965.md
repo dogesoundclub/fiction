@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5965
+Description: Subject 5965 is a humanoid male with orange stripes on their face, a blue bandana on their head, and jade LED eyes. They wear a green cross earring and a gold chain as an accessory. Despite their normal appearance, subject 5965 has shown to have a strong sense of duty and responsibility, which can lead to them taking on more tasks than they can handle.

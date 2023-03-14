@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7643
+Description: DSC-MATE-7643 is a robot with an appearance of a middle-aged male. It's most distinct feature being a frightened mouth that appears to be permanently etched onto its face. DSC-MATE-7643 possesses an earring made of jade in one of its earlobes and is often seen carrying a whistle as an accessory.

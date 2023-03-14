@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5579
+Description: DSC-MATE-5579 is a humanoid entity of the male sex, appearing in his early 30s. His physical attributes mirror that of a normal human except for his defining facial features that include prominent orange stripes. DSC-MATE-5579's head is of average size and features a light blonde hairstyle. He sports a green cross earring on his left earlobe.

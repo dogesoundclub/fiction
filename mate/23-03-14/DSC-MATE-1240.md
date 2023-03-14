@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1240
+Description: Subject 1240 is a simian of the genus Macaca, specifically a Rhesus Monkey. Subject stands 1.5 meters tall, and weighs approximately 35 kilograms. Additionally, subject displays homo sapien-like intelligence level, and has learned to operate a computer and comprehend multiple programming languages.

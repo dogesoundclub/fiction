@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3908
+Description: DSC-MATE-3908 appears to be a female humanoid of human origin. The subject has orange stripes on her face, red lips, and orange eyebrows that obscure her pupils. The subject's head features a retro cap with a two-color band on her forehead. DSC-MATE-3908 is frequently seen with a cigarette in her mouth.

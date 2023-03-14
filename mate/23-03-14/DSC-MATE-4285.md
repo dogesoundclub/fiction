@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4285
+Description: DSC-MATE-4285 is a humanoid entity identified as a human male in the profession of a traffic officer. DSC-MATE-4285's face is notable for its clown mouth, blue clown eyes, purple cap with green hair, and red victory band across the forehead. Additionally, DSC-MATE-4285 wears a medical mask over its mouth and a green cross earring in its left ear, as well as a gold chain as an accessory.

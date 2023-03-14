@@ -1,0 +1,2 @@
+ID # : DSC-MATE-264
+Description: DSC-MATE-264 is a female human of medium build, standing at 5'9" in height. DSC-MATE-264's most notable feature is her red lips, accompanied by a head of uncombed green hair. DSC-MATE-264 is often seen wearing a pair of gold hoop earrings.

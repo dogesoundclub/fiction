@@ -1,0 +1,2 @@
+ID # : DSC-MATE-289
+Description: Subject 289 is a male human Traffic Officer, with orange stripes on his face, a constant smile and VR Jade LED eyes. He wears a red beanie and a goggle on his forehead. His ears are pierced with a green cross earring, and he often wears a gold chain and carries a candy stick. Subject 289 has shown to be highly organized and efficient, with a tendency to take charge in group projects, often delegating tasks to others.

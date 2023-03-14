@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7172
+Description: Subject 7172 appears to be a full-grown male tiger, standing at approximately 6 feet tall, with striking blue clown eyes. The subject appears to possess a significant amount of strength and agility that exceeds that of any known physical limits. He wears a distinctive bucket hat on his head with a two-color band on its forehead. 7172 also sports a shiny red cross earring on both ears, and a bright red scarf around his neck.

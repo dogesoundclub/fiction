@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9970
+Description: DSC-MATE-9970 appears to be a male robot of unknown origin, with a frightened mouth feature and normal glasses for eyes. It is primarily assigned as an electrician, though it is capable of other tasks as needed. DSC-MATE-9970's body is composed of various metals and circuits, with a gold chain wrapped around its neck and a whistle hanging from it.

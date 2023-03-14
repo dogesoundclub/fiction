@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9978
+Description: Instance 9978 is an adult human male currently employed as a Traffic Officer in a major urban center. Physical examination reveals a series of green layers on his head, which appear to be composed of some kind of organic substance. His eyes are a bright, red color and are reminiscent of clown makeup, while a green cross earring adorns each of his ears. These traits appear to be permanent and do not disrupt his daily functions.

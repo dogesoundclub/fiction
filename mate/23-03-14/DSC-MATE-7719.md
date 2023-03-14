@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7719
+Description: 7719 is a female human with distinct facial features that include spots and a purple lip. She is most recognizable by her red clown eyes and her tendency to wear a hoodie. Her forehead is adorned with a thick band that splits into two different colors. She is commonly seen wearing a choker and smoking a cigarette.

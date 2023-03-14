@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1347
+Description: Subject 1347 presents itself as a male human with unique physical characteristics. The subject's hair is a normal blonde color with orange stripes running through it, a feature that is not supported by any known genetic mutation. The subject has normal glasses as eyes, but with no known enhancement. The forehead of the subject features a pair of goggles, which although not visible abnormality, behaves like anomaly after certain conditions are met. 

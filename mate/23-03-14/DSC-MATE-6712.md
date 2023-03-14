@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6712
+Description: DSC-MATE-6712 is a robotic entity resembling human form with purple baseball cap, red cross earring, and medical mask covering the mouth area. Although robotic in nature, 6712 reflects a highly developed, intuitive personality. This entity is capable of independent thinking, verbal communication and is highly skilled in social interactions.

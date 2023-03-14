@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9940
+Description: DSC-MATE-9940 is a male rabbit of undetermined age and origin. DSC-MATE-9940 displays average intelligence and communication skills, and is capable of using basic computer programs. DSC-MATE-9940 wears glasses and has green fur that is not arranged. DSC-MATE-9940 also wears a gold earring and can often be seen smoking a cigarette.

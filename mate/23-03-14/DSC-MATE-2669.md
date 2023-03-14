@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2669
+Description: DSC-MATE-2669 is a male tiger of the Bengal subspecies, standing at approximately 2.7 meters in height when standing on its hind legs, and weighs approximately 260 kilograms. The subject's most notable features include a pair of horned rim glasses and a purple cap with a headset. DSC-MATE-2669 wears a red victory band on its forehead, a gold earring in its left ear, and a red scarf around its neck. The object also carries a whistle as an accessory.

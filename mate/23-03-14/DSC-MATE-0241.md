@@ -1,0 +1,2 @@
+ID # : DSC-MATE-241
+Description: Subject 241 is a female human designated as Theater Manager, employed at [REDACTED] Theater. The subject possesses a unique and anomalous appearance, which includes a green head with an edge curl and jade earrings. Her eyes are equipped with Virtual Reality Rainbow LED technology and a goggle is present on her forehead. She is often seen with a cigarette.

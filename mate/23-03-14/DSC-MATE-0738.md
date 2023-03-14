@@ -1,0 +1,2 @@
+ID # : DSC-MATE-738
+Description: DSC-MATE-738 appears as a male Bengal Tiger with jade-green LED eyes. DSC-MATE-738 stands on its hind legs and wears a red beanie on its head. DSC-MATE-738 has one gold earring in its right ear and a gold chain around its neck. In addition, DSC-MATE-738 wears a medical mask over its mouth and has a pair of goggles on its forehead.

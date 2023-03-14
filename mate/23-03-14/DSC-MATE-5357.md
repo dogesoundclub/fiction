@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5357
+Description: Subject 5357 is a male rabbit with blue clown eyes, wearing a blue bandana over its head and jade earring on its left ear. It is often seen wearing a red scarf as its accessory. Its personality exhibits a strong sense of humor and enjoys entertaining others. Subject 5357's humor and overall personality often lead to light and jovial situations.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7175
+Description: Subject 7175 is a human male with green hair, a purple cap, and green cross earring. They often wear a red scarf and are known to carry a candy stick at all times. Their most distinguishing feature is their ever-present smile.

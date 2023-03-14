@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6663
+Description: DSC-MATE-6663 is a male tiger that possesses unique cosmetic features. Its eyes appear to be a VR Rainbow LED, and it sports a bucket hat and a red cross earring in its ears. DSC-MATE-6663 is known to wear a gold chain around its neck and carry a whistle.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7639
+Description: Subject 7639 is a human female with a natural charm and charisma. She stands at 5'5" and weighs approximately 125 lbs. Her face is adorned with a perpetually beaming smile, which some personnel report finding unnerving.

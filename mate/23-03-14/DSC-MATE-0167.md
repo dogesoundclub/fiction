@@ -1,0 +1,2 @@
+ID # : DSC-MATE-167
+Description: Item #167 appears to be a female human with a head of metallic blue color, often seen wearing a choker and an LED gas mask as her accessories. According to reports, Item #167 works as a banker in a local financial institution and is often described as a caring and nurturing individual. She tends to take care of her friends and family members as if they were her own children, resulting in humorous situations at times.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-282
+Description: Subject 282 appears as a male tiger, with characteristic black stripes and sharp fangs. He often wears a red beanie, adorned with a two-color band on his forehead, and sports a pair of horned rim glasses on his eyes. Despite his fearsome appearance, Subject 282 possesses a perpetually frightened expression and may frequently be seen holding a candy stick.

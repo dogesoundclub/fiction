@@ -1,0 +1,2 @@
+ID # : DSC-MATE-284
+Description: DSC-MATE-284 is a human of male gender identified as a police officer. DSC-MATE-284's appearance includes a mouth spot, jade LED eyes, a blue bandana covering their head, and a green cross earring in their ears. DSC-MATE-284 wears a gas mask with filters, which it uses as a standard police accessory.

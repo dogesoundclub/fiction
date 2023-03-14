@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9925
+Description: DSC-MATE-9925 is a human male, approximately 32 years old, who works as a delivery driver for a local courier company. DSC-MATE-9925 exhibits a frightened mouth and blue clown eyes, which have been observed to cause mild discomfort in some individuals. DSC-MATE-9925 wears a blue bandana on their head, with goggles worn on their forehead and a gold earring in their left ear.

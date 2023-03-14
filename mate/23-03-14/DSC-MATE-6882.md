@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6882
+Description: Subject 6882 is a male humanoid of average height, with distinct facial features including a Mouth Spot and Frightened Mouth. Their eyes are a bright blue, reminiscent of a clown's, which further adds to their unsettling appearance. Subject 6882 wears a Jade Earring in each ear and a Gold Chain around their neck, with a Goggle on their forehead as their only headwear. They often carry a Candy Stick, which they use as a characteristic prop. 

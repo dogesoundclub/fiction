@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2469
+Description: DSC-MATE-2469 is a human male, identified by its bright orange striped clothing and silver chain. Its head is adorned with a mohawk, and its ears feature a cross earring that emits a green aura. DSC-MATE-2469 wears normal glasses and a medical mask, which is believed to be a result of its possible exposure to anomalous elements during its prior work as a disaster relief worker.

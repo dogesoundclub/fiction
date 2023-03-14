@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5733
+Description: DSC-MATE-5733 is a human male of average height and weight. The subject's most prominent distinguishing feature is its blue clown eyes, which are permanent and unalterable. DSC-MATE-5733's head is always covered with a blue bandana, and the subject is rarely seen without its silver chain or candy stick.

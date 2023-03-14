@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9597
+Description: DSC-MATE-9597 is a human male known to be the boss of a prominent mafia syndicate. DSC-MATE-9597 is known for its unusual features, including its VR Jade LED eyes, peak spike head, and always carrying a candy stick. DSC-MATE-9597 is known for its contagious smile, which tends to put others at ease.

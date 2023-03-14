@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2480
+Description: DSC-MATE-2480 is a humanoid entity of the species Panthera tigris, standing at 1.93 meters tall and weighing approximately 115 kilograms. It appears to be a male entity with green hair styled in a purple cap, wearing normal glasses over its yellow eyes. A gold earring is present on each of its ears, with a goggle often seen resting on its forehead.

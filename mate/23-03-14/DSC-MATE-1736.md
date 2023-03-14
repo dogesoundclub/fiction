@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1736
+Description: Subject 1736 is a male rabbit standing at approximately 35 cm tall. It has bright blue clown eyes that draw attention, but it is able to wear an LED gas mask to conceal them when necessary. Its head is adorned with a red beanie cap, and one of its ears features a gold earring. It can often be seen wearing a silver chain around its neck.

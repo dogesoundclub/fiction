@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9585
+Description: Subject 9585 is a male who is of the human species and regularly assumes the role of a real estate agent. Subject 9585 possesses striking orange stripes on his face, which blend seamlessly with his natural complexion. It is believed that these distinctive features are the result of exposure to an anomalous stimulus. The subject typically covers its head with a hoodie, accessorizing with a silver chain that is worn around his neck at all times. 

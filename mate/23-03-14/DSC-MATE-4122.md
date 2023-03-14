@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4122
+Description: Subject 4122 is a human female with distinctive features including orange stripes on their face and red lips. Their eyes are equipped with VR rainbow LED technology, and they possess an unusual blonde winged head and gold earrings. They wear a gold chain as an accessory.

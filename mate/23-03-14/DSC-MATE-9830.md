@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9830
+Description: Officer 9830 is a human female with distinctive orange stripes on her face, red clown eyes, and wears a hoodie as their standard uniform. Her personality is incredibly detail-oriented, and they tend to get obsessive about certain tasks, such as alphabetizing spices or color-coding clothes.

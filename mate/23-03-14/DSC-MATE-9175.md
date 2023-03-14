@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9175
+Description: Item 9175 is a sapient rabbit, standing at 4' 11" tall, with green hair in a purple cap. The eyes are ski goggles made with tempered glass; this protective gear is essential as a precaution to prevent accidental eye injury from stray debris during traffic control.

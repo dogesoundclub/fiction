@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4006
+Description: DSC-MATE-4006 was a female human with a striking appearance. They were known for their orange-striped face, which was often seen sporting an enigmatic smile. DSC-MATE-4006's eyes were a brilliant orange, complementing their blonde hair, which hosted a small wing on the left side of the head.

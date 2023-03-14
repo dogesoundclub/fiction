@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9854
+Description: DSC-MATE-9854 is a human female with unique physical features. She possesses orange hair with blue clown eyes, which are a result of a currently unknown genetic mutation. DSC-MATE-9854 also has several dark spots on her face, which adds to her already noticeable appearance.

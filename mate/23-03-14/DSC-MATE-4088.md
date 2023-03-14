@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4088
+Description: DSC-MATE-4088 appears to be a male human with orange stripes on their face and a constant smile. Their eyes resemble those of a clown, with red sclera and pupils. DSC-MATE-4088 wears a purple cap with a headset and a jade earring in their left ear. They also wear a red scarf and carry a candy stick as accessories.

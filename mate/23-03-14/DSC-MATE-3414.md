@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3414
+Description: DSC-MATE-3414 is a male tiger, approximately 2 meters in height and weighing 250 kg. Its face has a frightened expression, with the mouth slightly open, revealing sharp teeth. DSC-MATE-3414's eyes appear to be normal for a tiger, but it has been observed that they change color depending on the emotions it is feeling. DSC-MATE-3414 wears a red beanie on its head and a medical mask over its mouth. It also has a gold chain around its neck.

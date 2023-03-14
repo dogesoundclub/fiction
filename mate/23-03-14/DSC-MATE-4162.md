@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4162
+Description: Subject 4162 is a male human of average height and weight, wearing a hoodie and gold chain, and sporting normal glasses and a medical mask that obscures the lower half of his face. The subject claims to be a certified electrician, and his expertise in electrical engineering is demonstrated through his uncanny ability to detect electrical malfunctions and repair them with ease.

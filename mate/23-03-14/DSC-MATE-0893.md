@@ -1,0 +1,2 @@
+ID # : DSC-MATE-893
+Description: Item 893 is a human male, standing at approximately 6 feet tall, with a shaved bald head and a prominent gold earring in his left ear. The subject is frequently seen wearing a red scarf and an LED gas mask that has been retrofitted with a voice modulator.

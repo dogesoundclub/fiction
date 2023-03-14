@@ -1,0 +1,2 @@
+ID # : DSC-MATE-24
+Description: DSC-MATE-24 is a male rabbit standing at approximately ½ meter in height. He has blue clown eyes, typical of his species, with a doge hat on his head. DSC-MATE-24 has a red victory band on his forehead and a jade earring on each of his ears. DSC-MATE-24 also wears a silver chain around his neck and carries a whistle as part of his uniform.

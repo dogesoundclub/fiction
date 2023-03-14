@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1803
+Description: DSC-MATE-1803 is a Caucasian human female, approximately 35 years of age. DSC-MATE-1803 stands at 1.7 meters tall and weighs approximately 55 kilograms. DSC-MATE-1803 is employed as a Traffic Officer in downtown [REDACTED], and has been active in the position for two years. DSC-MATE-1803 is identified by their red cross earring, bucket hat, medical mask, red lip, and silver chain.

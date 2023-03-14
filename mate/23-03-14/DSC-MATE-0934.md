@@ -1,0 +1,2 @@
+ID # : DSC-MATE-934
+Description: DSC-MATE-934 is a male Monkey Traffic Officer. He wears a Retro Cap on his head, gold earring on his ears, and a silver chain around his neck. DSC-MATE-934 has normal glasses over his eyes and a LED gas mask as his secondary accessory. 

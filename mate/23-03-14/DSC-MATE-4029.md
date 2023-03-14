@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4029
+Description: Subject 4029 is a human female with bright orange stripes on her face feature #1, and distinguishing red clown eyes. Her head is adorned with green hair in a purple cap, and she wears a gas mask as part of her accessory #1. Her jade earrings and two-color band on her forehead feature #1 help in her identification. Despite her appearance, subject 4029 has been listed as a human species.

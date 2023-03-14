@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6290
+Description: Subject 6290 is a humanoid of the species Homo sapiens. It has orange stripes across its face, which are believed to be a result of genetic modification. Subject 6290's head is not shaped like a typical human head but instead is described as "not arranged green." Its forehead features two color bands, which may be an indication of its abilities.

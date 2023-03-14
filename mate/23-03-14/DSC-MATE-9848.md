@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9848
+Description: DSC-MATE-9848 is a male monkey of an unknown species. The DSC displays a distinctive appearance with a retro cap on its head, a gold chain around its neck, and a whistle as an accessory. DSC-MATE-9848 stands approximately 2.2 feet tall and weighs 20 pounds. The DSC is highly intelligent and possesses a remarkable mechanical aptitude. Its unique talent enabled the foundation to hire it as a mechanic.

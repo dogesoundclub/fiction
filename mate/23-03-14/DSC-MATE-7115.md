@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7115
+Description: DSC-MATE-7115 is a human male in his late 30s, identified as the Theater Manager of [REDACTED]. DSC-MATE-7115 exhibits several physical anomalies, including a distinct spot on his mouth, ski goggle eyes, and a purple cap with a headset. DSC-MATE-7115's ears are adorned with a green cross earring, and he wears a gold chain and a normal gas mask as accessories.

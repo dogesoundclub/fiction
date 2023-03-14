@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8684
+Description: DSC-MATE-8684 is a human male, appearing to be in his early thirties, with green layers covering his head. His mouth area is obscured by a medical mask, and he often shows a frightened expression with his mouth slightly opened. DSC-MATE-8684 is commonly seen wearing a red scarf, which he claims is his lucky charm.

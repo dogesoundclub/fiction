@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2506
+Description: Subject 2506 is a female, appearing to be of the human species with orange stripes on their face and a smile. The individual wears normal glasses to enhances vision, and their head is usually adorned with a purple cap with a headset. Additionally, the subject sports a jade earring on their ears and wears a medical mask to breathe clean air. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6352
+Description: Subject 6352 is a male human with distinctively spotted face features, commonly wearing normal glasses and a parted pink hairstyle. The subject is often seen wearing a red scarf, though the reason for this accessory is unknown.

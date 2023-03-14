@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5904
+Description: Subject 5904 is a female human of average height and build. 5904's most notable feature is the distinctive orange stripes on her face, which contrast sharply with her 90s brown hair. Her blue clown eyes seem to twinkle mischievously in the light. She sports a gold earring on each ear and a choker around her neck. 5904 almost always wears a medical mask over her mouth, which presumably is meant to prevent the spread of germs.

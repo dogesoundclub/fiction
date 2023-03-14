@@ -1,0 +1,2 @@
+ID # : DSC-MATE-703
+Description: DSC-MATE-703 is a male human, roughly 27 years of age, with the distinctive orange stripes on his face being its most notable feature.  Although this trait is not directly related to DSC-MATE-703's anomalous properties, it serves as an identifier for the entity. DSC-MATE-703 also possesses blue clown eyes and is often seen wearing a green cross earring and a gold chain. DSC-MATE-703 also frequently smokes cigarettes.

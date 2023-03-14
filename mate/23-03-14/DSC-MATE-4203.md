@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4203
+Description: Officer 4203 is a male human with distinctive spots on his face. His eyes resemble ski goggles and he wears a purple cap with a headset. He sports a gold earring in one ear and a silver chain as an accessory. Officer 4203 is known for his high-energy and enthusiastic demeanor. He enjoys getting others excited about things and has a tendency to be overly passionate about topics that others may not find as interesting. 

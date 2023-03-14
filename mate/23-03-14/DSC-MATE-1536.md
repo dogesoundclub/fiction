@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1536
+Description: DSC-MATE-1536 is a male tiger with red clown eyes, wearing a blue bandana and a red cross earring. DSC-MATE-1536 also wears a silver chain and is often seen with a candy stick in its mouth. DSC-MATE-1536 communicates with human speech and exhibits a personality that values social connections and harmony.

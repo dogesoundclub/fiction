@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9135
+Description: Subject 9135 is a male news anchor, possessing a unique set of physical attributes and personality traits. Their face features include spots and a perpetually present smile, which may contribute to their popularity among their viewers. However, it is their eyes that are the most anomalous characteristic; they are made of VR jade LEDs and have the ability to display text messages and other digital information.

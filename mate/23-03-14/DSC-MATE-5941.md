@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5941
+Description: DSC-MATE-5941 is a male tiger humanoid identified as a traffic officer with a love for adventure. It stands at approximately 2 meters tall and weighs 180 kilograms. DSC-MATE-5941 is adorned with a purple cap with a headset, red cross earring on each ear, a gold chain around its neck, and constantly carries a candy stick in its mouth. 

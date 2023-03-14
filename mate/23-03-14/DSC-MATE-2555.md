@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2555
+Description: DSC-MATE-2555 is a humanoid entity with a robotic frame, measuring 1.8 meters in height. Its exterior shell is made of a copper alloy, and its eyes consist of jade-colored LED screens. DSC-MATE-2555 typically wear a red beanie on its head and a jade earring on its right ear.

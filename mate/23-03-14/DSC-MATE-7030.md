@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7030
+Description: DSC-MATE-7030 is a humanoid female of average build and height, with distinct orange stripes on her face. DSC-MATE-7030 is often seen with a cigarette in hand, and wearing a gold chain around their neck. DSC-MATE-7030's most striking feature is her orange eyebrows and green cross earrings. Despite her common appearance, DSC-MATE-7030 remains a notable threat due to her unique personality traits.

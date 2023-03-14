@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3038
+Description: DSC-MATE-3038, also known as the "Rabbit Boss" is a male member of the Leporidae family. DSC-MATE-3038 was discovered in New York City in 199█, in a mafia-owned warehouse. DSC-MATE-3038 stands at 1.2 meters tall on its hind legs and weighs approximately 11 kilograms. DSC-MATE-3038 is much stronger than an average rabbit of its size and species, with an ability to easily lift and move objects that are much larger than itself.

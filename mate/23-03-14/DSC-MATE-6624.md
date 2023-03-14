@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6624
+Description: DSC-MATE-6624 is a human female of average height and weight, with notable features including bright red lipstick, blue clown eyes, and an orange-dyed side of the head. A pair of goggles is worn atop the forehead, and a jade earring is present on each ear. DSC-MATE-6624 is often observed smoking a cigarette, though it is unsure whether the subject is physically addicted or merely enjoys the habit.

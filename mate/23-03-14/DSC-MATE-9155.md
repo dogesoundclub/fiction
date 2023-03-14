@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9155
+Description: DSC-MATE-9155 is a male rabbit, standing at approximately 1.6 meters in height, with an athletic build. DSC-MATE-9155 has a unique physical appearance, including red clown eyes, jade earrings, and a goggle on their forehead. DSC-MATE-9155 is often observed wearing a silver chain and smoking cigarettes. DSC-MATE-9155 is employed as a beautician and is known for their brilliant organizational skills and ambitious nature.

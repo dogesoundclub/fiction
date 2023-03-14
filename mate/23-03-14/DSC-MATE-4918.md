@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4918
+Description: DSC-MATE-4918 is a male tiger of the Bengal subspecies, with striking green hair and a purple cap on its head. Its eyes are fitted with VR rainbow LED lenses, giving it a unique and unsettling appearance. Additionally, DSC-MATE-4918 is prone to exhibiting a frightened mouth expression.

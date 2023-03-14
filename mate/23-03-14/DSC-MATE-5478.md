@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5478
+Description: Item 5478 is a male rabbit of average size and weight, with a frightened mouth and wearing a hoodie with a 2 color band on the forehead. The subject's eyes are obscured by nerd glasses. Item 5478's defining characteristic is its pragmatic and resourceful nature. The subject is very hands-on, often fixing or rigging solutions to problems in unconventional ways, such as using duct tape or paper clips. Despite its practicality, Item 5478 is easily intimidated and quick to flee from danger.

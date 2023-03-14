@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6590
+Description: DSC-MATE-6590 is a male human, standing at approximately 175 cm tall and weighing 90 kg. DSC-MATE-6590's most distinguishing feature is the presence of multiple spots on their face, with a permanent clown mouth on their face, which is composed of an unknown material. DSC-MATE-6590 has bloodshot red eyes with the appearance of clown makeup.

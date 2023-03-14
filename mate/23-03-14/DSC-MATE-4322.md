@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4322
+Description: Subject is a humanoid individual of the Homo sapiens species. Subject commonly appears as a banker, however, discrepancies in employment records have raised suspicion. Subject displays distinctive facial features, including spots and a purple lip. Eyes are noteworthy with orange eyebrows, and a retro cap adorns the head in most appearances. A two-color band adorns their forehead, and a medical mask is worn over the mouth.

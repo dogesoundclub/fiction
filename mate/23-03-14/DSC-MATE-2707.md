@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2707
+Description: DSC-MATE-2707 is a human male appearing to be in his mid-30s and works as an electrician. DSC-MATE-2707 exhibits several anomalous features, including bright blue clown eyes, a green cross earring on his left ear, and a retro cap on his head. DSC-MATE-2707's mouth has a small, circular spot on the corner and a frightened expression at all times. DSC-MATE-2707 is often seen wearing a silver chain and carrying a candy stick.

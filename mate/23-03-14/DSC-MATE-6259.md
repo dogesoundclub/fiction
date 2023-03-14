@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6259
+Description: DSC-MATE-6259 is a human female with distinctive facial features, including light spots across their face and a purple lower lip. DSC-MATE-6259 is often seen wearing normal glasses and a rainbow festival hat. Additionally, they have one gold hoop earring in their left ear. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5346
+Description: Subject 5346 is a humanoid individual and appears to be a female human. The subject has distinctive spots on their face, complemented by a bright red lip. Additionally, the subject's face is adorned with blue clown eyes, giving them a unique appearance. On their head, Subject 5346 wears a retro cap, with a two-color band and goggles positioned on the forehead.

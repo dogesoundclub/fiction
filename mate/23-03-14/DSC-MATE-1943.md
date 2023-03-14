@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1943
+Description: DSC-MATE-1943 appears to be a male primate of the species Macaca fascicularis, more commonly known as the crab-eating macaque. DSC-MATE-1943 is distinguishable from other members of its species by its heavily adorned appearance. DSC-MATE-1943 wears a pair of blue clown eyes, a jade earring in its left ear, a gold chain around its neck, and carries a candy stick in its hand. DSC-MATE-1943 also exhibits a constant expression of fear, with its mouth almost always slightly open.

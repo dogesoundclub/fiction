@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1938
+Description: DSC-MATE-1938 is a bipedal rabbit, standing at approximately 1.2 meters in height. It displays no physical abnormalities, other than its anthropomorphic features, and is able to communicate vocally in fluent English. DSC-MATE-1938's face prominently features a scared-looking mouth and a pair of glasses atop its rabbit eyes. The subject also wears a bucket hat on its head and a gold earring on each of its ears, with a pair of goggles resting atop its forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8984
+Description: DSC-MATE-8984 is a humanoid robot with a male identity, measuring 1.7 meters and weighing 75 kilograms. Its face features a frightened mouth and horn-rimmed glasses that cover its optical sensors. DSC-MATE-8984 has a short peak cap attached to its head and a gold earring on its left ear. It wears a medical mask over its vocal synthesizer and a gold chain around its neck.

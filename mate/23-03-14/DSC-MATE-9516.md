@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9516
+Description: DSC-MATE-9516 is a humanoid robot approximately 1.8 meters in height with a male appearance. Its face features a permanently frightened expression and a medical mask covers its mouth. DSC-MATE-9516's eyes are concealed behind a pair of normal-looking glasses. It wears a bucket hat atop its head and has a gold earring on its left ear. DSC-MATE-9516 frequently accessorizes with a silver chain around its neck.

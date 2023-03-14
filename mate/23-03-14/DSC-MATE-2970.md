@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2970
+Description: Subject 2970 is a human male of average height and build. Unique features include bright orange stripes on the face, a smile that never seems to fade, and a red victory band across the forehead. He wears a gold earring in one ear and sports a gold chain around his neck. Most notably, he wears a normal gas mask, which he claims is for his protection against toxins in the environment.

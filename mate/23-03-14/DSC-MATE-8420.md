@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8420
+Description: Subject 8420 is a female human of Mediterranean descent, standing at 5'6" and weighing approximately 130 pounds. She has a distinctive appearance, with spotted skin and a purple-colored bottom lip. She is usually seen wearing a pair of black goggles on her forehead, along with gold earrings and a silver chain. Subject 8420 is rarely seen without her signature cigarette, which she is known to smoke frequently.

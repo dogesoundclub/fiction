@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9147
+Description: DSC-MATE-9147 is a male human of average height and build with a small mole located near the right side of his mouth. The subject is often seen smiling and wearing nerdy glasses. The subject's headgear is a headset with LED lighting that illuminates in different colors depending on his emotions. DSC-MATE-9147 also wears a red victory band and a goggle on his forehead.

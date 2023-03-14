@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1015
+Description: DSC-MATE-1015 is a male rabbit humanoid measuring approximately 1.2m in height. The subject is employed as a news anchor for a local television station and is able to communicate fluently in English. DSC-MATE-1015's most notable feature is its green hair, which is often seen poking out from under a purple cap.

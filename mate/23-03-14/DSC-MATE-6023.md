@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6023
+Description: Subject 6023 is a female human of average height and build. Her most distinguishing feature is her bright red lipstick, which accentuates her lips. Her eyes are also a deep shade of red, reminiscent of a clown's.

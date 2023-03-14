@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2475
+Description: Item 2475 is a Veterinarian Robot that resembles a human male. The robot's body is composed of steel, and its one eye is a green cyclops lens, while his other facial feature is an eternally frightened mouth. The Robot wears a head-concealing police cap, and his eyes are covered by nerd glasses. Its ears feature a gold earring, and its mouth is shielded with a medical mask.

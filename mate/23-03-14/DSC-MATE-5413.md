@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5413
+Description: DSC-MATE-5413 appears as a humanoid robot resembling a firefighter, standing at 1.8 meters tall. Its body is predominantly gray in color with blue and yellow accents, and its face features a singular green cyclops eye, nerd glasses, a bucket hat, and a medical mask. DSC-MATE-5413 also has one earring which is identified as a red cross, as well as a silver chain around its neck.

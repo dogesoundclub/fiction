@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5057
+Description: DSC-MATE-5057 is a male human of unknown age with a distinct appearance. DSC-MATE-5057 has several spots on their face, which appear to be a natural feature. DSC-MATE-5057 is often seen wearing a retro cap and a jade earring, which further adds to their unique appearance. Their most distinctive feature, however, is their red clown eyes, which are unsettling to those who are not accustomed to them.

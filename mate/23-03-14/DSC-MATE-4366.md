@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4366
+Description: DSC-MATE-4366 appears to be a humanoid male, standing at a height of 1.79 meters with a slim build. DSC-MATE-4366's most notable physical trait are the orange stripes that run across his face. His eyes are red and he constantly wears a red scarf around his neck. On his head, he wears a retro cap, and a green cross earring on each ear.

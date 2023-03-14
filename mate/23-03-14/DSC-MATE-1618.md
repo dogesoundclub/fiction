@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1618
+Description: DSC-MATE-1618 appears to be a female human of indeterminate age, although they claim to be in their mid-thirties. They have spots on their face, and their lips are purple in color. Their hair is not arranged green, and they wear a green cross earring in each ear. They also wear a silver chain around their neck and smoke cigarettes regularly.

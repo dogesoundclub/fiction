@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1702
+Description: Subject 1702 appears to be a human male with distinctive spots on his face. He wears normal glasses and is often seen wearing a bucket hat with a goggle on his forehead. He has a jade earring in his left ear and tends to wear a gold chain around his neck.

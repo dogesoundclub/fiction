@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5939
+Description: DSC-MATE-5939 is a male tiger, standing at 8ft in height when on all fours. Its eyes are obscured by normal glasses, and its head is typically adorned with a bucket hat. DSC-MATE-5939 has been observed wearing a gold earring in its left ear, and often carries a whistle as its only known accessory. DSC-MATE-5939 is humanoid in appearance, with the ability to walk on two legs for extended periods of time.

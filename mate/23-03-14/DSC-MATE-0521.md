@@ -1,0 +1,2 @@
+ID # : DSC-MATE-521
+Description: Item 521 is a human female, approximately 27 years old, with orange stripes on its face and purple lip coloration. It has unusual red clown eyes, which have been theorized to have been caused by extensive exposure to hallucinogenics. Item 521 has a head reminiscent of a rainbow festival and gold earrings. It also wears a LED gas mask and a choker.

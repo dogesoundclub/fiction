@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4273
+Description: DSC-MATE-4273 is a male humanoid with distinctive facial features. The subject's face is adorned with orange stripes and a friendly smile. The eyes are obscured by a pair of nerd glasses, and a pair of goggles are often worn on their forehead. DSC-MATE-4273 also wears a jade earring, a red scarf, and is often seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5101
+Description: Subject 5101 is a human male with an odd sense of style. His head is adorned with green hair with a purple cap, and he sports a pair of nerd glasses over his eyes. A colorful band is wrapped around his forehead, and a pair of goggles rest on his head. His ears are pierced with a green cross earring. He wears a medical mask over his mouth, and a silver chain hangs from his neck.

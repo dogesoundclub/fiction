@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2908
+Description: DSC-MATE-2908 is a human female of average height and build. The subject has distinctive orange stripes on their face and purple lips. The eyes of DSC-MATE-2908 appear to be VR Rainbow LED. The subject's head is an unusual shade of bright green with a prominent edge curl. DSC-MATE-2908 wears a pair of gold earrings and a silver chain around their neck.

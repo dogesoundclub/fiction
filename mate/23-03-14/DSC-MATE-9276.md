@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9276
+Description: Subject 9276 appears to be a human female with orange stripes on her face, displaying an unnaturally wide smile. Her eyes are a bright, unnerving red color, reminiscent of a clown. Her unkempt green-tinted hair frames her forehead, which is adorned by a pair of goggles. She wears a pair of gold earrings and a silver chain around her neck, as well as always carrying a cigarette.

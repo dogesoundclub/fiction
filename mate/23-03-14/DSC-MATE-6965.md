@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6965
+Description: DSC-MATE-6965 is a mechanical humanoid entity of roughly human size, with an outer casing of various metals and polymers. Its appearance is that of a male human, with VR rainbow LED eyes, a red beanie, and a gold earring on its left ear. DSC-MATE-6965 habitually wears a red scarf and often carries a lit cigarette in its "mouth".

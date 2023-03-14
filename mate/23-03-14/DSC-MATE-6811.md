@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6811
+Description: DSC-MATE-6811 is a male human of average height and weight, with several distinct physical features. DSC-MATE-6811's face is covered in spots, and his smile is described as "unnerving" by some Foundation staff. DSC-MATE-6811's eyes are red, similar in appearance to those of a clown. DSC-MATE-6811's head is adorned with a peak spike, and he wears a green cross earring in one ear. DSC-MATE-6811 always wears a medical mask over his mouth.

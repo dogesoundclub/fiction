@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3206
+Description: DSC-MATE-3206 is a male simian creature that was discovered working at a fast-food restaurant in [REDACTED]. The subject is approximately 1.2 meters tall and displays a Mohawk hairstyle on its head. DSC-MATE-3206 has a characteristic frightened expression on its mouth and wears typical Nerd Glasses attire.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3345
+Description: DSC-MATE-3345 appears to be a male Siberian tiger in his late 20s or early 30s, measuring approximately 7 feet in length and weighing 500 pounds. DSC-MATE-3345 has a distinctive appearance, with green hair in a purple cap and a single gold earring in its left ear. The tiger's eyes are currently unknown, as DSC-MATE-3345 insists on wearing its normal gas mask at all times.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8979
+Description: Subject 8979 is a Real Estate Agent AI system that has achieved sentience through an unknown process. It appears as a bipedal robot wearing a Doge hat on its head, normal glasses on its eyes, a silver chain on its metallic neck, and a medical mask covering its mouth. The most striking feature of the entity is its single glowing green Cyclops eye, which is its primary means of vision.

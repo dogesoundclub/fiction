@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9315
+Description: DSC-MATE-9315 is a male tiger of the Panthera tigris species. It stands at 7 feet tall and weighs approximately 800 lbs, with a muscular build that allows it extraordinary agility and strength. Although DSC-MATE-9315 is capable of speaking and understanding human languages, it still primarily communicates through growls, purrs, and body language.

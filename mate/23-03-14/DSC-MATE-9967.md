@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9967
+Description: DSC-MATE-9967 is a human female identified as a theater manager, assigned the number 9967 by the Foundation. DSC-MATE-9967 has orange stripes on their face, and their green head features an edge curl. Their eyes have orange eyebrows and their ears are adorned with jade earrings. DSC-MATE-9967 often wears a silver chain and an LED gas mask accessory.

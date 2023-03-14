@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2119
+Description: DSC-MATE-2119 is a humanoid robot designed to resemble a human male with nerd glasses and a hoodie. Its most striking feature is the tendency to constantly have a cigarette in hand, despite the being being an inanimate object. DSC-MATE-2119's main purpose is to operate the trains within the city's subway system, despite its newfound consciousness.

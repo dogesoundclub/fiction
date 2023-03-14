@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9190
+Description: DSC-MATE-9190 is a male robot with a retro cap and a frightened mouth. DSC-MATE-9190 is fitted with a medical mask and a jade earring on each ear. It also wears a gold chain as an accessory. DSC-MATE-9190 is programmed to act as a security guard and is designed to be mobile.

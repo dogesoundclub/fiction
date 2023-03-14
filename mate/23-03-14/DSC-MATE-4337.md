@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4337
+Description: DSC-MATE-4337 is a female human identified as a lawyer by profession. They stand at 5'6" tall and possess a slim physique typical of a professional in sedentary-oriented work. DSC-MATE-4337 has distinct physical features, including blue clown eyes and witch short hair. They wear a silver chain and a green cross earring as their primary accessories.

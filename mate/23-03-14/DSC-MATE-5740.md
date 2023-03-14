@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5740
+Description: Subject 5740 appears to be a human female with distinctive spots on her face and purple lips. However, her head is that of a pink rabbit with large, pointed ears. One ear is adorned with a jade earring, and she is often seen wearing a gold chain around her neck. She also wears an LED gas mask, possibly as a form of artistic expression.

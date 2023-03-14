@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2411
+Description: DSC-MATE-2411 is a male monkey of undetermined sub-species serving as a Traffic Officer for the local law enforcement division. DSC-MATE-2411 measures at 30 cm in height and weighs approximately 1.5 kg. DSC-MATE-2411 possess round eyes similar to ski goggles along with pink parted head, gold chain and normal gas mask as accessories. Through external observation, DSC-MATE-2411 appears to employ standard protocol and behavior of a traffic officer which makes it difficult to identify as anomalous. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4234
+Description: DSC-MATE-4234 is a male tiger with the biological features of a normal tiger. DSC-MATE-4234 displays unique physical characteristics, including a police cap atop its head, a red victory band adorning its forehead, a red cross earring in its right ear, and a medical mask covering its mouth. DSC-MATE-4234 wears a red scarf around its neck, and it has been observed carrying a toolbox commonly used by beauticians.

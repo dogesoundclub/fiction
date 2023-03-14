@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6646
+Description: Dr. 6646 is a male monkey with a purple cap and headset. His eyes are red with a clown-like appearance, further adding to his unnerving visage. The subject is incredibly emotive and has been observed to be moved to tears by sentimental moments in movies or television shows. Despite his emotional nature, Dr. 6646 is also quite intelligent and is surprisingly vocal, displaying a grasp of language that far exceeds what would be expected of a non-human primate.

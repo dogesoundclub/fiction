@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6141
+Description: DSC-MATE-6141 is a human male of average height and build, with blue clown eyes and a constant smile. DSC-MATE-6141 wears a blue bandana and a gas mask, which it claims is necessary due to its job as an electrician. A pair of goggles are often seen resting on its forehead. DSC-MATE-6141 also wears a red scarf as an accessory.

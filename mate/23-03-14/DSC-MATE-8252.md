@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8252
+Description: DSC-MATE-8252 appears to be a human male in his mid-40s. DSC-MATE-8252's most noticeable features are his orange stripes on his face and his permanent smile. DSC-MATE-8252's eyes are covered with normal glasses, and the head is covered in a metal purple helmet. Other notable features are the gold earring and the goggle on his forehead. DSC-MATE-8252 is often seen wearing a gold chain around his neck.

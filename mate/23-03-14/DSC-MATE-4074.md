@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4074
+Description: DSC-MATE-4074 is a male humanoid with orange stripes on his face, giving the appearance of a clown. DSC-MATE-4074 also has a clown mouth and blue clown eyes. He wears a purple cap with a headset, a jade earring, a gold chain, and often carries a cigarette. DSC-MATE-4074's empathetic abilities allow him to sense the emotions of others and often makes him well-liked by those around him.

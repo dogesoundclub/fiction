@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3128
+Description: Item 3128 is a male human, approximately 6 feet tall, with distinctive features on his face, including orange stripes and a frightened mouth. Item 3128 has a mohawk hairstyle and wears nerd glasses, a gold earring, and a gold chain as accessories. Item 3128 also wears an LED gas mask, which appears to be connected to a unique air filtration system that allows the wearer to breathe normally in situations with harmful or noxious gases.

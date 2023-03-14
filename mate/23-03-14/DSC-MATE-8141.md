@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8141
+Description: Subject 8141 is a female human, known to the public as a Traffic Officer. They have unique facial features which include multiple spots and a purple lip. Their eyes are a bright blue, clown style, and they wear witch-style short hair. The subject is identified by a goggle on their forehead, jade earrings, a gold chain, and an LED gas mask.

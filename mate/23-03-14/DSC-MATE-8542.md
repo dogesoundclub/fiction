@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8542
+Description: DSC-MATE-8542 is a male monkey of unknown origin, standing at approximately 1.2 meters in height. DSC-MATE-8542 appears to possess a unique ability to manipulate electricity, which they use to perform electrical repairs and maintenance duties. DSC-MATE-8542 is able to easily identify areas of electrical malfunction and repair them, however, they are not able to explain how they are able to do so.

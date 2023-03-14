@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7120
+Description: Subject 7120, a human female, is a car salesman by profession. She sports distinct features such as spots on her face, a purple lip, and blue clown-eyed peepers. The subject's head is usually adorned with a retro cap and goggles, while a silver chain serves as her preferred accessory.

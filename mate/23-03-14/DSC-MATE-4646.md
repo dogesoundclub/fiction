@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4646
+Description: DSC-MATE-4646 is a human female of average build and height, with distinct facial features. The subject has spots on her cheeks, which appear to be natural pigmentation. Additionally, DSC-MATE-4646 has purple lipstick applied consistently. She wears normal glasses over her green-tinted hair, which is unstyled.

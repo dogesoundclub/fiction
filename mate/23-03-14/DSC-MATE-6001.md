@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6001
+Description: DSC-MATE-6001 is a human female in her mid-30s with features consistent with those of a 00s school girl. She has long, curly black hair and red lips, and her eyebrows are orange in color. She is often seen wearing a silver chain around her neck, paired with a gold earring in each ear.

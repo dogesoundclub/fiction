@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3975
+Description: DSC-MATE-3975 is a human male, approximately 32 years old, standing at 5'9" and weighing approximately 165 pounds. DSC-MATE-3975's distinctive features include a series of dark spots on his face, blue clown-like eyes, and a bucket hat worn on his head. The subject also wears a gold earring through one ear and a medical mask at all times.

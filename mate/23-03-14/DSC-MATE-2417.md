@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2417
+Description: DSC-MATE-2417 is an adult male human, identified as a Theater Manager with a keen sense of humor and a friendly disposition. DSC-MATE-2417 stands at approximately 6 feet in height and is often seen wearing a Retro Cap and a Red Scarf with a Jade Earring. DSC-MATE-2417 has been observed engaging in playful banter with Foundation personnel and telling jokes in social situations.

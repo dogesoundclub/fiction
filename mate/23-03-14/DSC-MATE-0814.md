@@ -1,0 +1,2 @@
+ID # : DSC-MATE-814
+Description: DSC-MATE-814 is a human male, identified as a high-ranking member of the Mafia. DSC-MATE-814's anomalous properties manifest in its strong sense of independence and rebellious behavior towards authority, which appears to be innate rather than acquired.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1647
+Description: DSC-MATE-1647 is a male tiger with distinctive accessories on its head and ears. The subject is often seen wearing a Doge hat and a red victory band on its forehead, and a gold earring on one ear. Additionally, DSC-MATE-1647 carries around a candy stick as an accessory. Despite its ferocious appearance, DSC-MATE-1647 displays a gentle and playful demeanor. The subject values social connections and camaraderie, often engaging in playful banter and jokes with others.

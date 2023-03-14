@@ -1,0 +1,2 @@
+ID # : DSC-MATE-578
+Description: Subject 578 appears as a female human, with striking red clown eyes and witch short hair. Their lips are painted red, and they wear a two-color band across their forehead as well as golden earrings. Subject 578 is often seen smoking a cigarette. 

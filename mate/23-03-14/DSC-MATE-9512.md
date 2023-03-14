@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9512
+Description: DSC-MATE-9512 is a female human who goes by the alias "The Purple Lip". She is the leader of a powerful mafia organization and has a reputation for ruthlessness and cunning. Despite her criminal activities, DSC-MATE-9512 shows no signs of remorse or empathy towards her victims.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6324
+Description: DSC-MATE-6324 is a male human identified as a delivery driver, approximately 30 years of age. It possesses a unique set of features, including a mouth spot and a ski goggle lens in place of eyes. DSC-MATE-6324's head is shaven and adorned with a Buddhist monk's traditional cap. The entity frequently wears a jade earring and a red scarf, as well as a candy stick.

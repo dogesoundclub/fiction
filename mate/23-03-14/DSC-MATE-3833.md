@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3833
+Description: Subject 3833 is a male rabbit in the guise of a traffic officer. The subject stands at 3'11" and has brown fur with a white underbelly. Its head is adorned with a Doge hat, and its ears are decorated with a jade earring. Subject 3833 frequently wears a silver chain around its neck and carries a whistle.

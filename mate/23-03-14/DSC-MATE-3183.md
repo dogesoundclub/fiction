@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3183
+Description: DSC-MATE-3183 appears to be a female human with purple lipstick wearing normal glasses and sporting pig tails. The subject possesses a goggle on their forehead and can often be seen wearing a gold chain and smoking a cigarette.

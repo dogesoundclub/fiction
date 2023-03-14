@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3912
+Description: DSC-MATE-3912 is a male monkey with a distinct appearance of blue clown eyes and a gold earring on each ear. It is known to carry a cigarette in its mouth at all times. DSC-MATE-3912 possesses extraordinary physical abilities, surpassing those of ordinary monkeys. It is also able to communicate with humans through sign language.

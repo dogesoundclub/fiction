@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1942
+Description: DSC-MATE-1942 is a male rabbit humanoid standing at approximately 1.2 meters in height. It displays distinct rabbit features such as pointed ears, sharp teeth, and a fluffy tail. Despite DSC-MATE-1942's appearance, it possesses humanoid behavior and cognitive abilities.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-924
+Description: DSC-MATE-924 is a delivery driver robot of unknown origin. It stands at 6 feet tall and has a metallic body with various attachments for carrying packages. The robot's most prominent feature is its green cyclops eye, which is used for navigation and detection of obstacles in its path. DSC-MATE-924 also has a unique feature of a frightened mouth, which is used to express fear or distress.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9545
+Description: Subject 9545 was a male human, aged [REDACTED], and worked as a car salesman in [REDACTED]. His most notable anomalous trait was the VR Rainbow LED eyes that replaced his natural eyes, which emitted a colorful and hypnotic effect on those who met his gaze. Subject 9545 also had a distinctive Mouth Spot and a Smile that never seemed to fade.

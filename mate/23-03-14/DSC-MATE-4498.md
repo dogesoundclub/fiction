@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4498
+Description: DSC-MATE-4498 is a humanoid robot, standing at approximately 1.85 meters in height. It is designed to resemble a male human real estate agent, with a red alarm for a head, and VR rainbow LED lights for eyes. DSC-MATE-4498's forehead features a goggles accessory that it rarely takes off. As a result of a "flavor of the month" trend at the time of its creation, DSC-MATE-4498 has been equipped with a gold chain and a cigarette accessory that regularly serve as conversation starters.

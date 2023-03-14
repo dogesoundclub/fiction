@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4903
+Description: DSC-MATE-4903 is a human female police officer with unique physical features. The subject's face features orange stripes and a distinctive red lip. DSC-MATE-4903's eyes emit a bright jade LED light, resembling virtual reality glasses. DSC-MATE-4903's head is adorned with green hair concealed beneath a purple cap, and she is known to wear Jade earrings and a gold chain.

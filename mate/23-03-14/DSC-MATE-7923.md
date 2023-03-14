@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7923
+Description: DSC-MATE-7923 appears to be a monkey of unknown species, with a green, unarranged head and distinctive two-color band across its forehead. The subject's eyes are unknown due to its proclivity for wearing sunglasses at all times. It is often seen clutching a red scarf and candy stick.

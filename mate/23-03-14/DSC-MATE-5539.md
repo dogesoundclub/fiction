@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5539
+Description: Subject 5539 appears to be a human female, with normal glasses covering her eyes and a bucket hat on her head. A goggle on her forehead and jade earring on each ear are also present. She is known to wear a medical mask and a silver chain as an accessory. While her appearance is somewhat unremarkable, her scatterbrained nature makes her a unique asset to the foundation.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1085
+Description: Subject 1085 is a human female with orange eyebrows and a penchant for retro fashion. Their head is adorned with a retro cap and a red cross earring. They also wear a gold chain around their neck as an accessory. Their personality is known to be analytical and logical, with a dry sense of humor that is often used to tease friends.

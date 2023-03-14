@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4101
+Description: Subject 4101 appears to be a male rabbit, standing at approximately 5 feet tall. It wears a doge hat on its head, and accessorizes with a gold chain and cigarette. Its most notable features are its horn-rimmed glasses, gold earring, and frightened mouth. Despite its seemingly harmless appearance, subject 4101 possesses an extremely rebellious personality, and has been known to disregard authority and rules it deems unnecessary.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9237
+Description: DSC-MATE-9237 is a female human of unknown age, with distinctive orange stripes on its face and a perpetual smile. Its eyes are red clown eyes and it has a head reminiscent of a rainbow festival. DSC-MATE-9237 wears a silver chain as a prominent accessory.

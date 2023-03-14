@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3575
+Description: Subject 3575 appears to be a male Bengal tiger, measuring 2.6 meters in length and weighing approximately 220 kilograms. The subject has a normal set of eyeglasses that give the appearance of nearsightedness. The head of the tiger is not arranged in a manner consistent to the wild, with strands of green hair growing out from the scalp. Forehead feature #1 includes two color bands that appear to be affected by the emotions of the subject.

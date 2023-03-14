@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9442
+Description: DSC-MATE-9442 is a humanoid robot measuring 1.8 meters in height. It resembles a typical Traffic Officer, sporting a short peak cap and an official uniform. DSC-MATE-9442's most notable feature is its singular green cyclops eye, which serves as its main visual input system. DSC-MATE-9442 also wears horned rim glasses over its eye for aesthetic purposes.

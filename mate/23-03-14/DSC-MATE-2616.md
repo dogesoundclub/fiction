@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2616
+Description: 2616 appears as a female human, age and identity unknown. She works as a real estate agent, using her natural charm and charisma to win clients over. Her most notable physical features are the orange eyebrows that match her radiant smile, and the purple cap she always wears with a headset atop it.

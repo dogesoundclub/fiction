@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2992
+Description: Subject 2992 appears to be a human male with blonde hair, red clown eyes, and distinctive spots across their face. They wear a green cross earring in one ear and a red victory band on their forehead. Their clothing typically includes a red scarf. Despite their unusual appearance, subject 2992 is capable of blending in reasonably well with human society.

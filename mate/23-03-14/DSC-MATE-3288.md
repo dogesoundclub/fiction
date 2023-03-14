@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3288
+Description: DSC-MATE-3288 is a human male with a charming smile and a strong sense of duty and responsibility. They possess a unique fashion sense, often incorporating playful and colorful elements into their designs. DSC-MATE-3288 is often seen wearing a police cap, a red scarf, and a jade earring on their left ear. They are known to carry a candy stick as a stress-reliever.

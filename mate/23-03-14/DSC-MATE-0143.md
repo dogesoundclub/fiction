@@ -1,0 +1,2 @@
+ID # : DSC-MATE-143
+Description: DSC-MATE-143 appears as an average-looking female human with a friendly smile, orange eyebrows, and medical mask covering her mouth. She is often seen wearing a choker, which is believed to be a personal choice rather than an anomalous effect. Despite her mundane appearance, DSC-MATE-143 possesses a unique ability to sense the emotions of those around her and empathize with them on an intense level.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6427
+Description: Subject 6427 is a male monkey of the unknown species with a frightened mouth appearance. They wear nerd glasses and a headset with LED lights. The subject's uniform indicates that he works at a fast-food establishment, adorned with a whistle often seen around his neck.

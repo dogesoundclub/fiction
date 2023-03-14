@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4550
+Description: DSC-MATE-4550 is a human male of Korean descent, standing at 1.7 meters tall and weighing approximately 68.2 kilograms. DSC-MATE-4550's most notable features are a mouth spot on the right side of their upper lip, and a perpetually smiling expression. DSC-MATE-4550 is typically seen wearing a pair of nerd glasses, a green cross earring on their left ear, a silver chain necklace, and a normal gas mask. DSC-MATE-4550's head appears to be made of a purple metallic material, and no explanation has been given for this anomaly.

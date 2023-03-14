@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7421
+Description: DSC-MATE-7421 is a humanoid figure appearing to be a human female, with the exception of a number of unusual physical features. They possess purple lips and red eyes similar in appearance to that of a clown. The top of their head is orange in color, and they wear a gold earring on each ear. DSC-MATE-7421 also wears a black choker.

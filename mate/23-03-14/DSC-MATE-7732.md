@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7732
+Description: DSC-MATE-7732 is a male rabbit with a frightened expression on its mouth that appears to indicate a high sense of anxiety. DSC-MATE-7732 has been observed using its VR Rainbow LED eyes to display various emotions including joy, excitement, and fear. DSC-MATE-7732's head is adorned with green hair concealed by a purple cap and a jade earring on each ear. DSC-MATE-7732 is capable of speech in a soft, timid voice.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1456
+Description: DSC-MATE-1456 appears to be a human female in her mid-twenties, with bright orange eyebrows and blond hair. She possesses what appears to be a pair of wings attached to her head, and a green cross earring on each ear. DSC-MATE-1456 generally wears a medical mask, which may be linked to a psychological compulsion.

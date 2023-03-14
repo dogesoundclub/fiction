@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3624
+Description: DSC-MATE-3624 is a male Monkey of undetermined subspecies. It has black hair on its head and wears horned rim glasses over its eyes. DSC-MATE-3624 also adorns a gold earring on each ear and wears a gold chain around its neck, as well as often being seen with a candy stick in its mouth.

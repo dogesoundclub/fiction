@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8264
+Description: 8264 is a male robot with a VR Rainbow LED eye and a Doge hat on its head. It possesses a Jade earring on each of its ears, and its mouth is equipped with a Medical mask. It identifies itself as a beautician and displays a pleasant and jovial disposition.

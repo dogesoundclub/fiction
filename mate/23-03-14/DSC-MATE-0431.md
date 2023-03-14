@@ -1,0 +1,2 @@
+ID # : DSC-MATE-431
+Description: Subject 431 is a female human standing at 5'11" and weighing 160 pounds. She has blue clown eyes that are known to produce empathetic responses in those who make eye contact with her. Her head is adorned with green hair kept in a purple cap while her ears bear a jade earring. The subject is known to wear a silver chain accessory around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4874
+Description: Item 4874 is a female human appearing to be in her mid-twenties. It stands at an average height of 5’7” and has a slender build. The most distinctive features of Item 4874 are the bright red lips, blue clown eyes, and a retro cap atop its head. A set of goggles rests on its forehead, and it wears a green cross earring on each ear.

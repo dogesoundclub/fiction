@@ -1,0 +1,2 @@
+ID # : DSC-MATE-923
+Description: DSC-MATE-923 is a female human politician, often referred to as "The Idealist." The most notable physical features of DSC-MATE-923 is their orange striped facial markings and red lips. DSC-MATE-923 is often seen wearing retro style headgear, including a cap with a red cross earring on one ear. DSC-MATE-923 also adorns themselves with a gold chain and a gas mask that they consider to be "normal."

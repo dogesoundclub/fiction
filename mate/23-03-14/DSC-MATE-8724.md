@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8724
+Description: DSC-MATE-8724 appears to be a male rabbit of standard size and build, with green fur that has not been arranged. DSC-MATE-8724 has been observed wearing normal glasses and a gold earring in each ear. It also wears a gold chain around its neck and a LED gas mask as a form of respiratory protection.

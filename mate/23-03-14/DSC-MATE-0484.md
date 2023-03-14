@@ -1,0 +1,2 @@
+ID # : DSC-MATE-484
+Description: Item 484 is a male tiger, standing at approximately 6 feet tall and weighing around 600 pounds. Its most distinctive feature is its ski goggle-like eyes which have been observed to change color depending on its mood. Its head is adorned with green hair styled in a purple cap, and a gold earring dangles from its left ear.

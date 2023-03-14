@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6774
+Description: DSC-MATE-6774 was a humanoid robot with a number of unique features that set it apart from conventional models. Its most prominent feature was a single, green cyclops eye installed in the center of its face. Its mouth also appeared to be in a perpetual state of fright, with teeth clenched and lips downturned. DSC-MATE-6774's eyes were obscured by a pair of normal glasses.

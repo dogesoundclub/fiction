@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9534
+Description: DSC-MATE-9534 is a human female, standing at approximately 5'9" in height. DSC-MATE-9534's face exhibits prominent orange stripes, accompanied by striking red lips, and blue clown-like eyes. DSC-MATE-9534 wears a bucket hat on their head, with a two-color band and goggles on their forehead.

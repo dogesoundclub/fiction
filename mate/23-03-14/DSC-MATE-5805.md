@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5805
+Description: DSC-MATE-5805 is a male human train driver equipped with jade LED eyes, a blue bandana around his head, a gold earring on his right ear, and a silver chain around his neck. DSC-MATE-5805 displays no anomalous properties through physical means, and can be considered otherwise normal in appearance.

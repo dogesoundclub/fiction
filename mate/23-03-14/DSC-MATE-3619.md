@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3619
+Description: DSC-MATE-3619 is a human male news anchor, standing at 1.8 meters tall and weighing approximately 76 kilograms. The subject's most notable feature is their red clown eyes, which have shown no adverse effects on DSC-MATE-3619's vision.

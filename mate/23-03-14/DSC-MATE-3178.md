@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3178
+Description: Subject 3178 is a male Faunus (half human and half tiger) with ski goggles for eyes. They bear resemblance to a Bengal tiger, with orange fur and black stripes. Subject 3178 measures 5’5” and weighs around 180 pounds. They carry a whistle around their neck at all times, which they tend to blow as a means of communication.

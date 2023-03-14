@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5856
+Description: DSC-MATE-5856 is a human female of average height and weight. In terms of physical appearance, DSC-MATE-5856 possesses bright orange stripes across her face, which appears to be natural. Her eyes are blue in color with the distinct shape of clown eyes, another feature that appears to be natural. She has green hair that is often unkempt or not arranged. DSC-MATE-5856 has a set of jade earrings that appear to have been worn for an extended period.

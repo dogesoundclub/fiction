@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6138
+Description: DSC-MATE-6138 is a male monkey of the genus Macaca. It stands approximately 1 meter in height and often wears a variety of eccentric clothing items. Its most notable accessory is a pair of horned rim glasses and a gold chain around its neck. DSC-MATE-6138 possesses a unique talent for fashion design, and it has created several award-winning lines of clothing.

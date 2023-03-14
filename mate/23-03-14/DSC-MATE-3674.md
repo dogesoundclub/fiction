@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3674
+Description: Subject 3674 is a female human currently working as a beautician. They possess a unique appearance, with spots of varying sizes and shapes covering their face. Their lips are almost always adorned with a vibrant red hue, greatly accentuating the overall aura of their appearance. Their eyebrows are an unnatural orange color, further adding to their otherworldly nature.

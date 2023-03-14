@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7152
+Description: DSC-MATE-7152 appears to be a fully grown male tiger with a frightened expression and blue bandana covering its head. Additionally, DSC-MATE-7152 has a red cross earring in each ear, a red scarf around his neck, and a whistle hanging from its neck.

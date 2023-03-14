@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8486
+Description: DSC-MATE-8486 is a humanoid male of the species Homo sapiens, standing at approximately 6'2" in height. DSC-MATE-8486's most distinct feature is a dark spot located on the left corner of the mouth. DSC-MATE-8486 can often be seen wearing nerd glasses and a jade earring in the right ear. DSC-MATE-8486 also wears a silver chain around their neck at all times.

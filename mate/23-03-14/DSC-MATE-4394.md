@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4394
+Description: Subject 4394 is a male human of average height and weight with a frightened mouth as a distinguishing facial feature. The subject is usually found wearing a hoodie and a gold chain as an accessory. Despite their ordinary appearance, Subject 4394 exhibits spontaneous behavior, often taking risks and acting on whim.

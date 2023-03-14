@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4897
+Description: DSC-MATE-4897 is a humanoid entity that identifies as a human female. DSC-MATE-4897's most notable feature is a series of bright orange stripes that run horizontally across its face. Its eyebrows are also orange, corresponding to the color of the stripes. DSC-MATE-4897 appears to be of average height and build for a human female of its age.

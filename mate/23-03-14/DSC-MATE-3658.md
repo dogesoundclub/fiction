@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3658
+Description: DSC-MATE-3658 appears to be a humanoid robot, standing approximately 6 feet tall. Its head is covered with a hoodie and its eyes emit a rainbow of colors through VR LED technology. The mouth area is covered by a medical mask that appears to be integrated into the headpiece.

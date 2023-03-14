@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7529
+Description: DSC-MATE-7529 is a human male with distinctive facial and body features. He has orange stripes on his face, a mohawk on his head, a red victory band on his forehead, a gold earring on both ears, and wears a medical mask and red scarf as accessories. Despite his unique appearance, he has shown no signs of abnormal physical abilities or traits.

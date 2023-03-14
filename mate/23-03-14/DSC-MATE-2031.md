@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2031
+Description: Subject 2031 is a humanoid male of the human species, appearing to be in his late forties. His most notable feature is his head, which is covered in a metallic purple material that appears to be fused to his scalp. His ears are adorned with a single gold earring on each side. The subject is known to wear normal glasses and a silver chain as additional accessories. He is often seen smoking a cigarette.

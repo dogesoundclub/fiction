@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4581
+Description: DSC-MATE-4581 appears to be a human male of average build, standing at 6'2". Its face is distinguishable by orange stripes and a frightened mouth. DSC-MATE-4581 has jade LED eyes and wears a jade earring on its left ear. Its mouth is fully covered by a medical mask at all times.

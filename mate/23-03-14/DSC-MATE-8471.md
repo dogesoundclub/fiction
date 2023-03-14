@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8471
+Description: DSC-MATE-8471 appears to be a female human farmer, standing at approximately 168 cm in height. They have spotted facial features and bright red lips. DSC-MATE-8471's most distinctive feature is their eyes, which appear to be VR Jade LED. DSC-MATE-8471's head is always covered by a black hoodie, and they wear a gold chain around their neck.

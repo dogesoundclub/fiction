@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5290
+Description: DSC-MATE-5290 is a male human identified as a real estate agent named ████████████████, born on ██/██/19██. DSC-MATE-5290 has a distinct appearance due to multiple spots on its face, which it often highlights with a wide smile. Its eyes are covered by ski goggles, and it has a not arranged green head. DSC-MATE-5290 typically wears a medical mask over its mouth and gold earrings in its ears. It is also frequently seen wearing a gold chain around its neck.

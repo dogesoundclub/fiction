@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4112
+Description: DSC-MATE-4112 is a female humanoid, approximately 25 years old, and of average height and build. Her most distinctive feature is her pink rabbit head, which she is capable of removing to reveal a human face. DSC-MATE-4112 has blue clown eyes, spots on her face, and a smile that is nearly always present. She also has a two-color band on her forehead, gold earrings, and a choker around her neck. She is often seen smoking a cigarette.

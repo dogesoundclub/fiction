@@ -1,0 +1,2 @@
+ID # : DSC-MATE-278
+Description: DSC-MATE-278 is a male simian of the genus Macaca, commonly known as the Monkey species. DSC-MATE-278's appearance is characterized by their ski goggle-like eyes, followed by a not arranged green head, and the unique feature on their forehead - which is a goggle - as well as a gold earring on each ear.

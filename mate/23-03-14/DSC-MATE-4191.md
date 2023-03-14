@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4191
+Description: DSC-MATE-4191 is a female human of average height and build, with noticeable facial features including an orange stripe-patterned marking on its right cheek and purple lipstick. The subject's head is green in color and is crowned with distinct curly edges, while its eyebrows are orange and shaped with sharp angles. DSC-MATE-4191 also wears a green cross earring on its left ear.

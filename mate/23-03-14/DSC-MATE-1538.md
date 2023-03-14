@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1538
+Description: DSC-MATE-1538 is a male Bengal tiger in its mid-40s. It stands at a height of 7.3 feet and weighs around 350 lb. DSC-MATE-1538 consistently wears a green conductor's uniform, which it may occasionally pair with a utility vest. DSC-MATE-1538 exhibits exceptional psychiatric tendencies, anthropomorphizing inanimate objects and caring for them as though they were sentient beings capable of receiving affection.

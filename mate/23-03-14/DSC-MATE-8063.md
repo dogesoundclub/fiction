@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8063
+Description: Officer 8063 is a male rabbit, standing at approximately 3ft tall. His frightened mouth is noticeable, as it is always trembling with an underlying sense of anxiety. He can usually be seen wearing horned rim glasses and a red beanie, which he never seems to take off. Additionally, he has a gold earring and a gold chain that he wears around his neck.

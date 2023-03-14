@@ -1,0 +1,2 @@
+ID # : DSC-MATE-713
+Description: Subject 713 is a humanoid of the male sex, identified as a news anchor. They possess a unique appearance, their face bears spots and a clown mouth, with piercing blue clown eyes. Their head is often adorned with a red beanie and a single jade earring. They are also known to wear a silver chain and a normal gas mask accessory.

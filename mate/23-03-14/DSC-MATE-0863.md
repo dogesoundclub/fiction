@@ -1,0 +1,2 @@
+ID # : DSC-MATE-863
+Description: DSC-MATE-863 appears to be a female security guard with a unique appearance. DSC-MATE-863 possesses blue clown eyes, a pink rabbit head, and green cross earrings. DSC-MATE-863's mouth is obscured by a medical mask, and they frequently wear a black choker as an accessory.

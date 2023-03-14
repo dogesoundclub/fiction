@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7976
+Description: DSC-MATE-7976 is a human male who works as a train driver. He stands approximately six feet tall and has a slender build. DSC-MATE-7976 has a large mouth spot that extends from the corner of his lips to his left cheek. He wears normal glasses over his brown eyes and a blue bandana on his head. DSC-MATE-7976 also sports a jade earring in his right ear and a gold chain around his neck. He is often seen with a candy stick in his mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5942
+Description: DSC-MATE-5942 is a male monkey of an unknown species that possesses the ability to communicate fluently in human languages. They appear to have received training in the media industry, evident by their proficiency as a news anchor. DSC-MATE-5942 wears horned rim glasses, has a two-color band on their forehead, and an earring made of gold. They are often seen with a cigarette, which does not appear to cause any physical harm to them.

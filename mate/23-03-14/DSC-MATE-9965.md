@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9965
+Description: DSC-MATE-9965 is a delivery driver who appears to be a human female with orange stripes on their face and a constant smile. DSC-MATE-9965's eyes are blue clown eyes and their head is a metallic blue color. They wear a jade earring on each ear and a medical mask covering their mouth. They also wear a choker as an accessory.

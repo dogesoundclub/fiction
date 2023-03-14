@@ -1,0 +1,2 @@
+ID # : DSC-MATE-947
+Description: DSC-MATE-947 is a female human of unknown origin, possessing a number of physical features that are non-standard for members of her species. Her most notable features include her bright purple lips, VR jade LED eyes, and an orange side. DSC-MATE-947 also sports a goggle on her forehead, gold earrings on her ears, and a choker necklace around her neck.

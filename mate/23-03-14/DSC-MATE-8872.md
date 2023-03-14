@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8872
+Description: 8872 is a political robot designed to simulate humanoid appearances. It stands at 6 feet tall and appears to have an average build similar to that of humans. The head features a purple cap with a headset while one of the eyes is replaced with a green cyclops. The mouth is covered with a medical mask and the eyes have nerd glasses for added disguise. The robot also wears a silver chain accessory around its neck.

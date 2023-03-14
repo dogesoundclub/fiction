@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5516
+Description: Item 5516 is a human male, approximately 35 years of age, with spots on his face. He has a distinctive police cap on his head and one jade earring on each ear. He wears a red scarf as an accessory. 

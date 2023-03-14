@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2109
+Description: Item #2109 is a male human, approximately 35 years of age, standing at 6 feet 2 inches (188 cm). Item #2109 displays a unique mouth spot and a smile as facial features. Item #2109's eyes are replaced with VR Rainbow LED implants. Item #2109 has a distinctive mohawk hairstyle and wears a jade earring. Item #2109 is commonly seen wearing a red scarf and smoking a cigarette.

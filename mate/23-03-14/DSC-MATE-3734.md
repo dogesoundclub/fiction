@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3734
+Description: DSC-MATE-3734 is a robotic humanoid, resembling a male doctor with a purple cap and a headset. It stands at 1.85 meters and weighs approximately 90 kilograms. DSC-MATE-3734 is equipped with advanced technology, allowing it to function as a highly skilled medical practitioner.

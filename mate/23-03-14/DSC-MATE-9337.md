@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9337
+Description: 9337 was a male monkey that worked as a delivery driver for a small courier company. Its face featured a frightened look at all times, and it often wore a pair of horn-rimmed glasses over its eyes. It also had a jade earring on one ear and a gold chain around its neck. 

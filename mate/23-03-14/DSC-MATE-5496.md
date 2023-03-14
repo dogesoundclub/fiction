@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5496
+Description: DSC-MATE-5496 is a female human in their mid-thirties, working as a local electrician. DSC-MATE-5496's appearance is notable for their purple lips, orange eyebrows, and spotted facial features. DSC-MATE-5496's head is also a metallic blue.

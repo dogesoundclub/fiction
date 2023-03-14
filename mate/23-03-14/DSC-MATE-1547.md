@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1547
+Description: DSC-MATE-1547 is a male monkey of unknown origin, standing at 3 feet in height and weighing approximately 30 pounds. They possess a distinctive mohawk hairstyle and wear a single jade earring in each ear. One notable feature is the red scarf that they wear around their neck, which has become their signature accessory of sorts. Additionally, DSC-MATE-1547 always carries a candy stick with them, which they use to relieve stress or anxiety.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7716
+Description: DSC-MATE-7716 is a humanoid robot of unknown origin, standing at 1.8 meters in height. Its body is composed of a metallic alloy, painted in a matte black finish. Its face features a single green cyclops eye and a frightened mouth, with goggles serving as its visual receptors. DSC-MATE-7716 wears a retro cap, gold earring and a red scarf as accessories.

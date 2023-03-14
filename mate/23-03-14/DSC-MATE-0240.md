@@ -1,0 +1,2 @@
+ID # : DSC-MATE-240
+Description: DSC-MATE-240 is a male human with spots on his face and a frightened mouth. DSC-MATE-240 is easily recognizable by his VR Jade LED eyes, which are a result of a surgical procedure to enhance his vision. DSC-MATE-240 is also often seen wearing a red beanie on his head and a pair of goggles resting on his forehead.

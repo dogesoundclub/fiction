@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8338
+Description: Officer 8338 is an adult male monkey that stands at approximately 3 feet tall. 8338 bears the mark of frightened-mouth, the curved stretch of the lips peered through by an unerring stare, a mixture of fear and intense curiosity. He wears a retro cap that covers his hairy, brown head with a pair of goggles strapped around his forehead, which he refuses to wear. He also wears a police uniform and carries a whistle around his neck.

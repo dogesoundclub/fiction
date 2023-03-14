@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8533
+Description: DSC-MATE-8533 is a sentient, sapient rabbit species with an unusual set of features. It stands at 70 centimeters and weighs 5.5 kg. Its nerdy glasses grant enhanced sight abilities and allow it to see in the dark. DSC-MATE-8533 also wears a retro cap, with a two-color band on its forehead and goggles resting on top of its cap.

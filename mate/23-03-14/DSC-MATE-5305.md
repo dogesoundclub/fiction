@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5305
+Description: DSC-MATE-5305, also known as "The Boss," is a male human known for his striking appearance. His face features are marked with orange stripes and a mouth that appears to be in a frightened state. DSC-MATE-5305 wears Nerd Glasses that mask his eyes, and a two-color band is visible on his forehead. He also sports a jade earring on one ear and a gold chain around his neck.

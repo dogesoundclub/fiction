@@ -1,0 +1,2 @@
+ID # : DSC-MATE-536
+Description: DSC-MATE-536 is a male monkey of the species [REDACTED]. DSC-MATE-536 stands at approximately 1.2 meters tall with brown fur and normal glasses. A goggle is often seen sitting on DSC-MATE-536's forehead. DSC-MATE-536 is often seen wearing a red scarf and a gold earring. DSC-MATE-536 exhibits human-like behavior, including verbal communication in English and the ability to manipulate human objects.

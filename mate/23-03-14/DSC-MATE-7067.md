@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7067
+Description: DSC-MATE-7067 appears externally as a male Bengal tiger, with striking facial features of wide-open eyes inside normal glasses, frightened mouth, accompanied by a silver chain around its neck and a cigarette in its mouth. The subject's head is adorned by a police cap with two colored band-like decoration around its forehead. The subject's behavior is similar to that of a typical adult male human, possessing natural leadership skills and a commanding presence.

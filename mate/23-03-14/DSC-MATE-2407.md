@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2407
+Description: Subject 2407 is a male monkey that stands approximately 1 meter tall. The monkey is known to have a frightened mouth and red clown eyes that are often only visible through the gas mask that it wears at all times. The monkey has adopted the appearance of a young hooded male human in a red scarf and a normal gas mask. The true appearance of the subject is yet to be determined.

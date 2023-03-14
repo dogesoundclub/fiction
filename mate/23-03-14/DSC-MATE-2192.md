@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2192
+Description: 2192 is a male monkey with vibrant red clown eyes, adorned with a bucket hat on their head. The forehead features a two-color band while they sport a single gold earring on each ear. They can often be seen wearing a shimmering gold chain around their neck.

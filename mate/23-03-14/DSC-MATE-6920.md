@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6920
+Description: 6920 appears to be a male robot with a red beanie on his head. His face is adorned with a frightening mouth and a single green cyclops eye. His eyes are made of Virtual Reality Jade LED. Additionally, he is seen wearing a silver chain and a whistle.

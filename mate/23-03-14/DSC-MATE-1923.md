@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1923
+Description: Subject 1923 appears to be a female human of average height and build. Her unique features include orange stripes on her cheeks, red lips, and orange eyebrows. She has a blond head with a wing protruding from the side. On her forehead, she wears a pair of goggles. She adorns herself with jade earrings in both ears.

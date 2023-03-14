@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3834
+Description: 3834 is a female human characterized by her bright green hair, purple cap, and red cross earring. She is often seen wearing a gold chain around her neck and smoking a cigarette. Her most notable feature is her wide, infectious smile that seems to charm those around her.

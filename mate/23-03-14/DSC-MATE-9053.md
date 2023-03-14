@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9053
+Description: DSC-MATE-9053 appears externally as a tiger with a frightened mouth and ski goggle eyes. The tiger has an earring with the Red Cross symbol on one ear, and a gold chain around its neck. DSC-MATE-9053 also wears a goggle on its forehead.

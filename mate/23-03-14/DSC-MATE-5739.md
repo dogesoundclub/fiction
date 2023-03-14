@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5739
+Description: DSC-MATE-5739 is a male rabbit with red clown eyes, dressed in a hoodie, red victory band across the forehead, red scarf, and carrying a whistle. Its mouth is consistently displayed in a frightened expression. DSC-MATE-5739 displays a high level of intelligence, and the ability to communicate with other humanoids with relative ease.

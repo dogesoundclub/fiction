@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3315
+Description: DSC-MATE-3315 is a human female of undetermined age, with pig tails on either side of their head. DSC-MATE-3315 is often seen wearing a pair of normal glasses, a gold chain necklace, and gold earrings. Of particular note is DSC-MATE-3315's propensity to don a normal gas mask as an accessory. DSC-MATE-3315's primary job is that of a fashion designer, and they often speak at a pace that is reflective of their energetic and enthusiastic character.

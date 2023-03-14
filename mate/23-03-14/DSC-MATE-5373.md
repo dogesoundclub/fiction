@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5373
+Description: DSC-MATE-5373 is a male human of average height and build, with distinctive orange stripes on his face. These stripes are a unique facial feature that is not consistent with any known human genetic marker. DSC-MATE-5373's most striking feature is its blue clown eyes, which are a result of a rare genetic mutation. Its head is usually covered with a retro cap, and it wears a green cross earring in its left ear. DSC-MATE-5373 frequently accessorizes with a silver chain and an LED gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2063
+Description: Subject 2063 is a male human of average height and build, with blue clown eyes and a characteristic mouth spot on his face. He is usually seen wearing his police officer uniform, complete with a police cap and a red scarf.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2033
+Description: DSC-MATE-2033 is a male rabbit with the ability to communicate effectively in human languages. Its appearance is distinguished by its purple cap, nerd glasses, jade earring, and red scarf. Notably, DSC-MATE-2033 is also outfitted with a headset that allows for communication with mechanical equipment and systems.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8205
+Description: DSC-MATE-8205 is a human male of unknown age. DSC-MATE-8205 works as a train driver, and possesses a keen analytical mind. DSC-MATE-8205's face is marked with spots, and it often sports a gold earring in its right ear. DSC-MATE-8205's most distinctive feature is its red clown eyes, which it seems to have acquired during a previous anomalous encounter.

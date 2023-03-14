@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2773
+Description: DSC-MATE-2773 is a male monkey with a frightened mouth and unknown eye color. DSC-MATE-2773 wears a blue bandana on its head and goggles on its forehead. DSC-MATE-2773 is capable of language and has been observed to display a strong sense of empathy, often attuned to the emotions of others. DSC-MATE-2773's personality is often humorous, using its empathetic abilities to make others feel better or to find humor in difficult situations.

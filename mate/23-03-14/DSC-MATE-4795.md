@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4795
+Description: DSC-MATE-4795 is a male humanoid entity with the physical features of a rabbit. Its eyes are concealed behind normal glasses, and it wears a hooded sweatshirt and a gold chain around its neck. DSC-MATE-4795 is often seen carrying a candy stick, which has not yet been determined to have anomalous properties.

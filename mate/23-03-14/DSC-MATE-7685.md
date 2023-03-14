@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7685
+Description: Subject is a male anthropomorphic tiger with blue clown eyes, identified as a firefighter by their purple cap with a headset. Subject's forehead features a unique two-color band, with a jade earring on each of their ears. Additionally, Subject wears a gold chain and an LED gas mask as accessories.

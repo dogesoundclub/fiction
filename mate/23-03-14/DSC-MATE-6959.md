@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6959
+Description: Subject 6959 is a male monkey standing at 4 feet tall with black eyes. The creature wears a worn-out retro cap and a two-color band on his forehead. On his forehead, he also keeps a pair of goggles, which are often observed to be tinted red, blue, or green.

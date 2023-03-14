@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3739
+Description: DSC-MATE-3739 is a humanoid male with orange stripes on its face. DSC-MATE-3739's eyes are blue and have the appearance of a clown. Its head is covered by a purple cap with a headset for communication purposes. 

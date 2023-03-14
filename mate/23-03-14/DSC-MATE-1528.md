@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1528
+Description: DSC-MATE-1528 is a male monkey species wearing a blue bandana with a jade earring on its left ear, and appears to be in possession of a gold chain at all times. The creature has disturbing red clown eyes which seem to emit negative emotional energy. DSC-MATE-1528 is very energetic and enthusiastic, and may enjoy getting others excited about things. However, this tendency to over-excite others can lead to some humorous situations, which has been noted in numerous reports.

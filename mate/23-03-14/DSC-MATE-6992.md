@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6992
+Description: DSC-MATE-6992 appears to be a monkey of the genus Cebus, with a frightened expression permanently fixed on its face. DSC-MATE-6992 often exhibits behavior similar to that of a human, including the ability to communicate through sign language, the use of tools, and the ability to reason and plan.

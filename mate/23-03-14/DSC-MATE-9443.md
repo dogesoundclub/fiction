@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9443
+Description: DSC-MATE-9443 is a humanoid robot standing at 1.8 meters tall. It has one large, green cyclops eye in the center of its forehead, with a pair of regular glasses over its normal eyes. DSC-MATE-9443 typically wears a short peak cap, a gold chain, and carries a whistle. It identifies itself as a programmer.

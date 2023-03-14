@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8746
+Description: 8746 is a human male in his mid-thirties with a distinctive mouth spot. His eyes are a unique VR Rainbow LED configuration and his head features peak spikes. 8746 also dons a gold earring as an adornment. While appearing ordinary on the surface, 8746 possesses a creative and artistic personality, which they express through various hobbies and interests such as painting, writing, or drawing. 

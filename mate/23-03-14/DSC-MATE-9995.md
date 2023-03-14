@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9995
+Description: DSC-MATE-9995 is a human male who works as a news anchor. It exhibits distinctive physical characteristics, including orange stripes on its face, normal glasses for eyes, a peak spike for a head, a goggle on its forehead, jade earrings on both ears, and a red scarf as an accessory.

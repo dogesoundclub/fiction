@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9805
+Description: DSC-MATE-9805 is a human female with spots on her face and red lips. She wears normal glasses and a medical mask over her mouth. Her unique appearance is further highlighted by her green hair, which she keeps in a purple cap. DSC-MATE-9805 also wears a choker and has a two-color band on her forehead. In addition, she is often seen with goggles resting on her forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1614
+Description: DSC-MATE-1614 is a human male of average height and build. The most notable feature is the orange stripes that run down the face and neck. DSC-MATE-1614's eyes are replaced with VR Rainbow LED, which appears functional and acts as a normal pair of eyes. The subject's hair is parted pink, styled in a voluminous manner. DSC-MATE-1614 also wears a green cross earring on their right ear, a gold chain around their neck, and a normal gas mask.

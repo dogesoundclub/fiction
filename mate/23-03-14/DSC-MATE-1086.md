@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1086
+Description: Subject 1086 appears as a standard issue traffic officer, with a humanoid shape and metallic features. Its head is adorned with a red alarm light, and it wears a medical mask over its frightened mouth. Its eyes are large and glowing, sporting jade LED technology. Upon closer examination, it becomes clear that 1086 is not a human, but a highly advanced robot.

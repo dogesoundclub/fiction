@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2960
+Description: DSC-MATE-2960 appears to be a male human of average height and weight, approximately 42 years old. The subject's most notable feature is a dark spot located at the corner of its mouth. DSC-MATE-2960's eyes are bright red, resembling those of a clown. DSC-MATE-2960 is consistently seen wearing a bucket hat and a silver chain around its neck. Additionally, DSC-MATE-2960 is often seen smoking a cigarette.

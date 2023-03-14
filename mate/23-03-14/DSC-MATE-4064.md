@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4064
+Description: DSC-MATE-4064 appears to be a female human of average height and build. However, DSC-MATE-4064 has distinctive orange stripes along her cheeks and nose, and her eyes are a bright blue similar to those of a clown. DSC-MATE-4064 wears a headset with LED lights, a gold chain, and a normal gas mask as her accessories.

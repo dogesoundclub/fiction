@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1765
+Description: Subject is a monkey-like humanoid with bright blue clown eyes. He wears a hoodie as his preferred headgear, together with a silver chain and a cigarette as accessories. His fur is mostly brown with shades of grey.

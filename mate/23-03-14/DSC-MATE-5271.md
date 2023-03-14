@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5271
+Description: DSC-MATE-5271 is a human male with a distinctive face marked by spots and a permanent smile. He wears thick-rimmed nerd glasses over his eyes and a colorful Doge hat on his head. Additionally, he has a jade earring in each ear and a two-color band across his forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2235
+Description: DSC-MATE-2235 appears to be a human male of average height and build. Its distinguishing features include bright orange stripes on its cheeks, a short peak cap on its head, and a red scarf around its neck. The subject also wears normal glasses and a gold earring in its left ear. It is often seen wearing an LED gas mask over its mouth and nose.

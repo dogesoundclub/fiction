@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2981
+Description: DSC-MATE-2981 is a humanoid robot, with a green-colored head that is not arranged in a traditional humanoid manner. DSC-MATE-2981 has two jade earrings fixed onto its ear structures and a silver chain around its neck. DSC-MATE-2981 is designed to function as a mechanic, and its internal circuitry and components are of advanced technology. 

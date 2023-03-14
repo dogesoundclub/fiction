@@ -1,0 +1,2 @@
+ID # : DSC-MATE-507
+Description: DSC-MATE-507 is a human male, approximately 30 years old. They have orange stripes across their face which appear to be a permanent feature. DSC-MATE-507 often wears a red scarf and a green cross earring in their left ear. They work as an electrician for Foundation sites and participate in social events with other personnel. DSC-MATE-507 demonstrates a strong desire for harmony and social connections, which can manifest as playful banter or practical jokes.

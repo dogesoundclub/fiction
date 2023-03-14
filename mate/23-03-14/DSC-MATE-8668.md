@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8668
+Description: DSC-MATE-8668 is a humanoid robot resembling a firefighter. It stands approximately 6 feet tall and weighs 400 pounds. DSC-MATE-8668's body is made of a combination of steel and industrial-grade plastics. DSC-MATE-8668's face has a green cyclops eye and a frightened mouth. DSC-MATE-8668's eyes are fitted with normal glasses, and it wears a blue bandana around its forehead. DSC-MATE-8668 has a pair of goggles on its forehead, and an LED gas mask serves as its accessory.

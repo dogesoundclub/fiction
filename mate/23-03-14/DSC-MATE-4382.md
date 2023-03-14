@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4382
+Description: DSC-MATE-4382 appears to be a female traffic officer with notable distinguishing features. These include numerous spots on her face, red clown eyes, a green head with edge curl, and gold earrings. DSC-MATE-4382 is a human being of unknown origin.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7597
+Description: Subject 7597, known by the name Athena, is a human female with notable features which include spots on her skin, red clown eyes, jade earrings, pig-tails and a silver chain. Athena prefers to wear a medical mask when in public or when interacting with other people. The subject has displayed an idealistic personality, often seeking to make the world a better place by all means necessary, including protesting and boycotting against institutions or corporations that go against their values.

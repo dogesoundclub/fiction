@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7872
+Description: DSC-MATE-7872 is a security guard robot with a humanoid body structure. The robot is equipped with VR Rainbow LED eyes and a frightened mouth, giving it a unique appearance. It wears a police cap, a medical mask, and a gold chain. DSC-MATE-7872 is also adorned with a jade earring on its left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1544
+Description: DSC-MATE-1544 appears as a male human with a mouth spot and a constant smile. Their eyes are blue clown eyes and their head is made of a metallic purple material. DSC-MATE-1544 wears a jade earring and a silver chain, both of which have tested negative for any anomalous properties.

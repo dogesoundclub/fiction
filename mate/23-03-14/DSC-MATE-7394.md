@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7394
+Description: DSC-MATE-7394 is a human male in their mid-30s, with a smile that is often seen on their face. DSC-MATE-7394 wears a doge hat atop their head, with a pair of ski goggles covering their eyes, and a gold earring on each ear. They often wear a gold chain and carry a candy stick as an accessory. DSC-MATE-7394 is a police officer.

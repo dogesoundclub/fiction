@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3957
+Description: DSC-MATE-3957 appears to be a robotic humanoid of average height and build, with red alarm for a head which emits a loud noise when activated. Its eyes are horned rim glasses, and on top of its forehead is a goggle. DSC-MATE-3957's ears have red cross earrings and a silver chain around its neck. It also carries a whistle as an accessory.

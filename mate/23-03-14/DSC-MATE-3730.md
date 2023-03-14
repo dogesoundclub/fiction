@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3730
+Description: DSC-MATE-3730 is a male human of average height and build, displaying several distinct physical features. The most notable feature is a black spot present on the lips, which gives the illusion of a strawberry-shaped mouth. DSC-MATE-3730's eyes are cybernetic, featuring VR jade LED technology. The head is adorned with green hair in a purple cap, and the ears have green cross earrings. DSC-MATE-3730 commonly wears a gold chain and carries a candy stick with them.

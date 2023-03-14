@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8384
+Description: DSC-MATE-8384 is a male rabbit standing at approximately 20 cm in height, with noticeable red eyes that resemble the eyes of a clown. He has a blue bandana on their forehead, under which sits a small pair of goggles. DSC-MATE-8384 also sports a single gold earring in their left ear. Despite the unusual appearance of DSC-MATE-8384, it remains friendly and somewhat docile.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-338
+Description: DSC-MATE-338 appears to be an adult male of the Homo sapiens species with the following distinctive traits: orange stripes on the face, ski goggle eyes, parted pink hair, gold earring in the ears, and a medical mask covering the mouth. DSC-MATE-338 is known to wear a red scarf as accessories.

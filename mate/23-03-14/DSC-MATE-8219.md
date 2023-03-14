@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8219
+Description: Item 8219 is a human male, approximately 32 years of age, standing at 5'9" and weighing 170 pounds. The subject has distinct spots on their face, with a frightened mouth and normal glasses. When in containment, the subject is always seen wearing a medical mask and a red scarf.

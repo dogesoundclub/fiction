@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1953
+Description: DSC-MATE-1953 is a human male, approximately 32 years of age, with distinct orange stripes on the cheeks. A silver chain is observed hanging around the subject's neck. A medical mask is worn over the mouth and nose, making it difficult to determine facial expressions. The subject is noted for possessing ski goggles and a jade earring on the left ear. DSC-MATE-1953's retro cap is observed to be yellow in color.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3109
+Description: DSC-MATE-3109 is a female human with blonde hair that resembles an avian wing, and has an orange-stripe pattern on her face. DSC-MATE-3109 additionally wears a green cross earring on her left ear, a silver chain, and is frequently seen smoking a cigarette.

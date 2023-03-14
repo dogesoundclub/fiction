@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9247
+Description: DSC-MATE-9247 is a male monkey of unknown origin. DSC-MATE-9247 stands at approximately 1.4 meters in height and weighs 52 kilograms. DSC-MATE-9247 has ski goggle eyes and a not-arranged green head. DSC-MATE-9247 also has gold earrings and a gold chain as accessories.

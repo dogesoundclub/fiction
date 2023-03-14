@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2597
+Description: DSC-MATE-2597 is a female human of above-average height and weight, with bright red clown eyes and green hair in a purple cap. The forehead features two color bands and they wear a choker and smoke cigarettes on occasion. Despite their unusual physical features, DSC-MATE-2597 is capable of blending in with humans with moderate success when not drawing attention to themselves.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2984
+Description: DSC-MATE-2984 is a male rabbit of an unknown species, measuring 1.2 meters in height and weighing approximately 75 kg. DSC-MATE-2984 displays several anomalous properties, including red clown eyes and a red beanie on its head. Its forehead features a two-color band, and it wears a jade earring on each ear. DSC-MATE-2984 also wears a gold chain around its neck and carries a candy stick as an accessory.

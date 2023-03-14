@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7915
+Description: DSC-MATE-7915 is a male tiger standing approximately 7ft tall, with distinctive red clown eyes that glow in the dark. It sports a jade earring on the left ear and an industrial goggle on his forehead. Its mouth is always hidden behind a medical mask. DSC-MATE-7915 is capable of human speech and seems to have an affinity for comedy. They frequently tell jokes and engage in humorous antics to amuse themselves and their audience.

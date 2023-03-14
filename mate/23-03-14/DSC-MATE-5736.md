@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5736
+Description: DSC-MATE-5736 is a male Capuchin monkey standing at 0.9 meters tall. DSC-MATE-5736 dons a bucket hat, a silver chain, a gold earring on its left ear, and candy stick in its mouth as common wear. DSC-MATE-5736 shows no signs of intelligence beyond what is normally exhibited by its species. It communicates in broken English with an erratic speech pattern independent of its unknown language capability.

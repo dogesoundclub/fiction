@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1330
+Description: DSC-MATE-1330 is a human male with a thin build and stands 5 feet and 9 inches tall. He sports a pair of nerd glasses with a gold chain and a blue bandana covering his head. DSC-MATE-1330 also has a medical mask over his mouth, ostensibly for personal health reasons.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4071
+Description: Item 4071 is a male rabbit who, despite its small size, is capable of performing as an electrician. It has displayed an impressive knowledge of electrical work, allowing it to jump-start any electrical equipment with ease. Its appearance is topped off with normal glasses, a blue bandana, a silver chain, and a cigarette as its favorite accessory.

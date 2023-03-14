@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6466
+Description: DSC-MATE-6466 is a Caucasian male, standing at approximately 5'11" and weighing 185 lbs. Their most distinctive features include a short peak cap, normal glasses, a red victory band, a jade earring in their left ear, a goggle on their forehead, a red scarf, and an LED gas mask.

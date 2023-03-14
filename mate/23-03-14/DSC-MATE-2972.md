@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2972
+Description: DSC-MATE-2972 is a humanoid rabbit of male gender who appears to be employed in the sales industry. The subject's body is covered in white fur, with long and floppy rabbit ears. During his initial containment, the subject was discovered to be wearing a green bucket hat, gold earrings and a chain, and goggles on his forehead. The subject's glasses also appear to be a permanent feature, which may contribute to its "nerdy" appearance.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-463
+Description: DSC-MATE-463 is a human male of approximately 30 years of age. He stands at an average height of 175cm, with a lean build and short, spiky hair styled carefully with gel. Two distinct facial features set DSC-MATE-463 apart from a typical human. He has a pattern of black and white spots scattered across his skin, giving him a distinctive appearance. Additionally, his mouth is almost always open in a state of extreme anxiety. DSC-MATE-463 compensates for the appearance with oversized nerd glasses.

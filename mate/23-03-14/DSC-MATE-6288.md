@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6288
+Description: Subject 6288 is a human male, approximately 38 years of age. The subject is of average build and height with patches of uneven spots on his skin. He is often seen wearing a short peak cap on his head, a green cross earring on his left ear, and a medical mask over his mouth.

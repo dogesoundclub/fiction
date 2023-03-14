@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3177
+Description: DSC-MATE-3177 is a male monkey, approximately 35 years old in human years, with a special headgear that includes a headset and LED lights. The monkey is capable of communicating with others through the headset, producing sounds in the form of short phrases and responses which sound like human speech. DSC-MATE-3177 is observed to have extraordinary intelligence and creativity, and has been observed performing tasks in a manner similar to a human.

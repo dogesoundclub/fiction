@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9033
+Description: DSC-MATE-9033 is a female human mechanic with unique physical features. She possesses orange stripes on her face, which extends from her left cheek to her right temple. Her head is predominantly orange, and her forehead features two-color bands with a goggle accessory located above it.

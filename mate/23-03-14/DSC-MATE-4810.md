@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4810
+Description: DSC-MATE-4810 is a humanoid male known to be a villain in various urban legends and folk tales around the world. He has a charming smile and blue eyes, which are almost always covered by his normal glasses. DSC-MATE-4810 has green hair, which he keeps under a purple cap. He wears a gold earring on his left ear and a golden chain around his neck.

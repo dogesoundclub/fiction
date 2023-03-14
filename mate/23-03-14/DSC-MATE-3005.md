@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3005
+Description: DSC-MATE-3005 is a humanoid male, approximately 32 years of age, with distinctive orange stripes on his face. The subject displays a prominent frightened expression and wears a red beanie, red victory band on his forehead, and green cross earring on his right ear. DSC-MATE-3005 has been identified as a journalist currently employed as a reporter for [REDACTED]. The subject's appearance is permanently altered and cannot be attributed to any known medical condition.

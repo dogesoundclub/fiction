@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3052
+Description: DSC-MATE-3052 is a human male, with a frightened mouth and blue clown eyes. DSC-MATE-3052 is observed to wear a headset with LED and has a 2-color band on their forehead, along with goggles placed on their forehead. DSC-MATE-3052 exhibits no outward signs of abnormality and perceives their surroundings in the same manner as a regular human.

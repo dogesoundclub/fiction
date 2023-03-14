@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2681
+Description: DSC-MATE-2681 appears to be a male rabbit standing at approximately 80 cm at the shoulder from his hind legs. DSC-MATE-2681 wears a doge hat on its head, and its forehead has a 2-color band. DSC-MATE-2681's ears have a jade earring, and it wears a gold chain around its neck. It also wears an LED gas mask that obscures its face, making it difficult to differentiate its eyes.

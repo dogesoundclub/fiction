@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8008
+Description: DSC-MATE-8008 is a male human with distinct physical features such as spots on his face, a mohawk on his head, and a jade earring on his ear. The subject always wears a medical mask, but it has been determined that this is purely for fashion purposes. DSC-MATE-8008 displays extensive energy and enthusiasm, and often tries to rally others around him to share his interests, which can range from benign to potentially dangerous.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4881
+Description: DSC-MATE-4881 is a human female with blue clown eyes and spotted skin. They have green hair styled in a purple cap, and wear a pair of goggles on their forehead. DSC-MATE-4881's most notable feature, aside from their appearance, is their practical and hands-on approach to problem-solving. They have a tendency to fix things in unconventional ways using everyday materials like duct tape and paper clips.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6684
+Description: DSC-MATE-6684 is a male monkey with blue clown eyes who wears a purple cap with a headset. It possesses a deep curiosity about the world and may frequently spout off obscure facts or trivia to others. DSC-MATE-6684 is equipped with a gold earring, gold chain, and a whistle.

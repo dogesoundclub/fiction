@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2663
+Description: DSC-MATE-2663 is a male human with a distinctive spot on his mouth and normal glasses. He sports a mohawk and a goggle on his forehead. DSC-MATE-2663 also bears a gold earring and gold chain. Despite his non-anomalous physical appearance, DSC-MATE-2663's traits are noteworthy considering his unusual behavioral pattern.

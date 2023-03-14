@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5745
+Description: DSC-MATE-5745 is a human male with a friendly demeanor and a distinctive ski goggle-like appearance to their eyes. DSC-MATE-5745 is often seen with a gold earring and a candy stick as an accessory. DSC-MATE-5745's most notable feature is their infectious smile, which they often use while engaging with clients.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5571
+Description: DSC-MATE-5571 is a male human, approximately 28 years old, and a former delivery driver for a local pizza restaurant. DSC-MATE-5571 is distinguishable by the orange stripes on their face, which are of unknown origin. Their green hair has not been arranged, giving them a scruffy appearance.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4144
+Description: DSC-MATE-4144 is a female human of unknown age, standing at 172 cm tall and weighing 73 kg. DSC-MATE-4144's most notable features are its red clown eyes and orange stripes on its face. Its head is covered in green hair and wears a purple cap. It also has a green cross earring and a silver chain around its neck.

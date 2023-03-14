@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4015
+Description: Subject 4015 is a human male of average build and height, with red clown eyes and a distinctive spot on their mouth. They wear a red scarf and a candy stick at all times. The subject frequently smiles and appears to be approachable, though their scatterbrained tendencies prove otherwise. It is known that their head is shaven bald and resembles that of a traditional monk.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6
+Description: Item 6 is a male tiger with unknown eye color, equipped with a bucket hat and a red cross earring on its left ear. It has an inherent charm and charisma that makes it the center of attention in any social gathering. Item 6's presence can amuse and entertain people with jokes, humorous story-telling, and spontaneous dancing. Despite its amiable personality, it can pose a significant threat to human life due to its predatory instincts.

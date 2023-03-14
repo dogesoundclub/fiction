@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9463
+Description: DSC-MATE-9463 is a humanoid entity identified as a female veterinarian. DSC-MATE-9463 is not believed to possess any anomalous abilities or properties beyond their physical appearance and dry sense of humor. DSC-MATE-9463 is adorned with a silver chain accessory and frequently wears a hoodie, although the reason for this is currently unclear.

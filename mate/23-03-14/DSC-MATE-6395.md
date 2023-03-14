@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6395
+Description: Subject 6395 is a female of human origin with prominent spots on her face. Her blue clown-like eyes give her a peculiar and noticeable appearance. She usually styles her hair in the form of pigtails and bears a two-color band across her forehead. Her ears feature a green jade earring that seems to hold a certain significance for her. More often than not, she can be seen with a cigarette in hand.

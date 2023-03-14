@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3330
+Description: Subject 3330 is a female human of average build and height. She is easily recognizable by her orange striped face and green, curled head. She has a tendency to wear gold accessories, specifically a gold chain and earring. Her eyesight necessitates the usage of normal glasses.

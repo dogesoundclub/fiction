@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4673
+Description: DSC-MATE-4673 appears as a male Bengal tiger dressed in human clothing, topped with a blue bandana as headwear, with a pair of goggles resting on his forehead. DSC-MATE-4673's ears are adorned with a green jade earring, a gold chain around its neck, and always has a candy stick in its hand/paw. They possess an anomalous ability to transform into a train engine, complete with train horns, whistles, and engines, whenever they hear the sound of train tracks at work.

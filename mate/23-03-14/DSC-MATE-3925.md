@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3925
+Description: DSC-MATE-3925 is a human male identified as a reporter. He stands approximately 6’1” tall and weighs 170 lbs. DSC-MATE-3925 has a frightened mouth with ski goggle eyes, a short peak cap on his head, jade earrings in both ears, a silver chain necklace, and a cigarette as an accessory.

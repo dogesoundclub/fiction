@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4206
+Description: 4206 is a male humanoid with a unique appearance, sporting bright orange stripes on its facial features. It wears opaque nerd glasses over its eyes and a retro cap atop its head. Its ears are adorned with a bold green cross earring, while its neck is graced with a gold chain. Subject 4206's most notable feature is the standard gas mask it wears at all times, regardless of the situation.

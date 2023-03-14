@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3245
+Description: DSC-MATE-3245 is a male tiger with blue clown eyes, a frightened mouth, and wears a police cap on his head and a medical mask over his mouth. DSC-MATE-3245 is known for his charismatic personality and the ability to connect deeply with others. He has a talent for getting strangers to open up and share their life stories, and is known to share humorous anecdotes that bring people closer together. DSC-MATE-3245 is particularly skilled at using his charm to diffuse tense situations.

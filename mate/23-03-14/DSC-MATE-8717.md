@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8717
+Description: DSC-MATE-8717 is a female humanoid of unknown age and nationality. DSC-MATE-8717 is approximately 1.60 meters tall and weighs 50 kilograms. DSC-MATE-8717 has orange stripes on her face, which are believed to be caused by an unknown cosmetic substance. DSC-MATE-8717 has green cross earrings and a silver chain around her neck. DSC-MATE-8717 wears an LED gas mask at all times. DSC-MATE-8717's clothing consists of a witch's robe.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7487
+Description: DSC-MATE-7487 appears to be a female human of average height and weight, with short witch-like hair and red clown eyes. DSC-MATE-7487 is commonly seen wearing a medical mask over their mouth and a silver chain around their neck. They also have a distinctive feature of a two-color band on their forehead and a red cross earring on each ear. DSC-MATE-7487 has a fondness for wearing red lipstick.

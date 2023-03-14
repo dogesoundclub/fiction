@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2400
+Description: DSC-MATE-2400 is a robotic beautician designed to mimic human features. DSC-MATE-2400 is approximately 6 feet in height and weighs approximately 250 pounds. DSC-MATE-2400's most notable feature is its green cyclops eye, which has illumination properties and is capable of scanning and mapping its environment in real-time. DSC-MATE-2400's eyes are made up of VR jade LED. DSC-MATE-2400 has a head full of green hair in a purple cap, jade earring on both ears, and a medical mask covering its mouth.

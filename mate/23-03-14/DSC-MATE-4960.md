@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4960
+Description: 4960 is a Human male who manages a local theater establishment. Despite his seemingly mundane profession, 4960 is anything but ordinary. His face is marked by unique spots and a permanent smile, which can be disarming to many who encounter him. However, his most distinguishing features are his ski goggle eyes, which give off an eerie and unsettling feeling to those who dare look directly into them. Additionally, he is known to frequently wear a police cap, jade earring, and gold chain as part of his typical attire.

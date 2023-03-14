@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2162
+Description: DSC-MATE-2162 appears as an average, middle-aged male specimen of Homo sapiens, with the notable inclusion of orange stripes on the sides of its face. It is often seen sporting a retro cap and green cross earring, as well as sporting nerd glasses over its eyes. DSC-MATE-2162 also wears a silver chain as an accessory, and often uses it for sensory input while on duty.

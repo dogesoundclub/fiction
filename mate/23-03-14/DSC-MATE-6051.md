@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6051
+Description: Subject 6051, also known as "The Joker," is a female human of unknown age and origin. She is the leader of one of the most powerful mafia families in existence and is known for her sadistic sense of humor. Her physical appearance is highly abnormal, with rainbow-colored hair and a face that appears to be permanently frozen in a wide smile. Her eyes are bright blue with clown-like makeup around them.

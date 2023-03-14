@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1745
+Description: DSC-MATE-1745 is an Asian male, with spots covering their face, and a unique smile. DSC-MATE-1745's appearance is enhanced with a pair of ski goggle-like eyes, an edgy mohawk, and a jade earring on each ear. DSC-MATE-1745 is frequently seen with a cigarette, which they hold with casual elegance.

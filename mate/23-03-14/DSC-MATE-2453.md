@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2453
+Description: DSC-MATE-2453 is a human female with unique physical characteristics. She has spots on her face, a purple lip, and orange eyebrows. Her head is adorned with a purple cap and green hair. DSC-MATE-2453 also wears a medical mask and a gold chain as an accessory.

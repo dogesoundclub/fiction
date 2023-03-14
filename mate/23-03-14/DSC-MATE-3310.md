@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3310
+Description: 3310 is a middle-aged human male that stands at 6'2" in height. Their most notable facial feature is a small spot near their mouth that resembles a birthmark. Despite their otherwise nondescript appearance, they are often seen wearing a retro cap and a pair of jade earrings.

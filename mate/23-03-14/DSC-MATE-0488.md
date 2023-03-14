@@ -1,0 +1,2 @@
+ID # : DSC-MATE-488
+Description: DSC-MATE-488 is a male tiger with blue clown eyes and wears a bucket hat on its head. DSC-MATE-488's forehead features a red victory band and a goggle is strapped onto its forehead. DSC-MATE-488 wears a gold earring in its ear and carries a whistle as an accessory.

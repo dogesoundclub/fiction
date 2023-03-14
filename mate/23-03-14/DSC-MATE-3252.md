@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3252
+Description: DSC-MATE-3252 is a male rabbit with a frightened mouth, ski goggle eyes, a bucket hat on its head, and a gold earring on its left ear. DSC-MATE-3252 regularly wears a gold chain and carries a candy stick in its mouth. DSC-MATE-3252 displays a great sense of humor and enjoys making people laugh with funny stories, jokes, and silly impersonations.

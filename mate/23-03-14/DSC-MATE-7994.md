@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7994
+Description: Subject 7994 is a human male with unusual facial features. The subject has a prominent spot located on their mouth, and their mouth assumes a frightening expression when they are agitated or in shock. The subject's eyes are a bright blue, with a unique appearance similar to clown eyes. The subject's head is adorned with a shaved monk-like hairdo.

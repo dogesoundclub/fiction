@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6392
+Description: 6392 is a male rabbit, weighing approximately 6 pounds. The most notable feature of 6392 is its constant expression of fear, with its mouth agape and trembling when approached or spoken to. 6392 wears a bucket hat at all times, which has exhibited a calming effect on the rabbit’s behavior.

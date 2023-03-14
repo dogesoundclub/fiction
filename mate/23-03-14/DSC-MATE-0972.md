@@ -1,0 +1,2 @@
+ID # : DSC-MATE-972
+Description: DSC-MATE-972 is a human female politician with distinctive orange stripes on her cheeks. DSC-MATE-972 is often seen wearing a retro cap, gold earring, and gold chain. Her most peculiar feature is the constant smile present on her face even during times of extreme stress. DSC-MATE-972 is often observed wearing a medical mask for unknown reasons.

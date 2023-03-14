@@ -1,0 +1,2 @@
+ID # : DSC-MATE-159
+Description: DSC-MATE-159 is a human male of Hispanic descent and occupation as an electrician. The subject's most prominent feature is a permanent, red-lipped grin. His eyes are consistently a bright red, reminiscent of a clown's makeup. The subject dons a head-mounted LED light and a red victory band around his forehead. DSC-MATE-159 carries a cigarette in his hand at all times.

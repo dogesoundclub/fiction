@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7230
+Description: DSC-MATE-7230 is a female humanoid of human species, with distinctive spots across its face and purple-colored lip. DSC-MATE-7230's head is not aligned and leans to the left side. The forehead of DSC-MATE-7230 features a pair of goggles, and it wears a red cross earring on each ear. It is frequently seen with a gold chain necklace and a cigarette in hand.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3915
+Description: Subject 3915 is a human female with striking red lips and a distinct two-color band across her forehead. She is often seen wearing a green cross earring on either ear. Subject 3915 has a keen analytical and logical mind, with a proclivity towards dry and sarcastic humor. 

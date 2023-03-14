@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8497
+Description: DSC-MATE-8497 is a male robot real estate agent with a green cyclops eye as its primary face feature, which emits a scanning beam. Its body is made of metallic steel, painted red, and has a dome-shaped head with a red alarm on top. The robot's ears have a jade earring, and it wears a LED gas mask as its primary accessory.

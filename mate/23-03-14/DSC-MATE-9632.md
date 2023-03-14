@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9632
+Description: DSC-MATE-9632 is a male monkey, of the species unknown, standing at approximately 60cm tall. DSC-MATE-9632 has red clown-like eyes, a mouth that displays constant fearfulness, and its head is adorned with a retro cap. DSC-MATE-9632's left ear features a jade earring, and it wears a red scarf around its neck. Despite its small size, DSC-MATE-9632 displays above-average intelligence and is capable of limited communication with Foundation personnel.

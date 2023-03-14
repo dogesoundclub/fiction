@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3696
+Description: DSC-MATE-3696 is a male human with a unique physical appearance. Most notable is a dark-colored spot on its upper lip that resembles a birthmark. Despite this spot, it's able to smile in a wide and friendly manner. Its eyes appear to be enclosed in black ski goggles and it wears a green cross earring in its ear. The head of DSC-MATE-3696 is shaved and resembles that of a bald monk, while its neck is often covered with a normal gas mask, a preference that the DSC claims allows it to work efficiently.

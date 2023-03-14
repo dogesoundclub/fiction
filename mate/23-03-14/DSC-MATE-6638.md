@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6638
+Description: Officer 6638 is a Caucasian male with spots on his face, along with a normal blonde hairstyle. He wears a jade earring and a red scarf as accessories, which he never removes. Officer 6638 has a strong addiction to cigarettes and is often seen smoking heavily when on duty. 

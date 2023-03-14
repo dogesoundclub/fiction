@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6541
+Description: DSC-MATE-6541, also known by its public persona as "The Purple Politician," is a humanoid entity identified as a female human. DSC-MATE-6541 exhibits several distinct physical characteristics, including red clown eyes, a purple lip, and a metallic tiara on its head. A two-color band adorns its forehead, and DSC-MATE-6541 sports a medical mask over its mouth, and a jade earring in each ear. It wears a black choker with a silver chain and a diamond-encrusted centerpiece.

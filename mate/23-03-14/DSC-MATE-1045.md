@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1045
+Description: Subject 1045 appears to be a human female in their late twenties. Their most distinctive feature is their dark purple lipstick, applied neatly over their full lips. They wear a pair of normal glasses to correct near-sightedness, and a small red cross earring adorns their left earlobe.

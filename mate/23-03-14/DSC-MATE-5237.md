@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5237
+Description: Subject 5237 is a male robot with a humanoid appearance. The subject is equipped with a blue bandana on its head, and its eyes are covered with horned rim glasses. The subject's forehead also includes a goggle attachment. There is a single golden earring present in the subject's right ear, while a red scarf is draped around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6662
+Description: DSC-MATE-6662 appears to be a human male of average height and build. Notably, DSC-MATE-6662's face is adorned with orange stripes, possibly indicating a connection to an anomalous entity. DSC-MATE-6662's head is covered by a retro cap, and a pair of goggles rest on their forehead. DSC-MATE-6662 wears a green cross earring, a medical mask over their mouth, and a gold chain around their neck.

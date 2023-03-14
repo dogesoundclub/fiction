@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1662
+Description: DSC-MATE-1662 is a young adult human male, with striking orange stripes adorning his facial features. His mouth is consistently in a frightened expression, and his eyes are comprised of a VR jade LED. 1662’s head is covered by a novelty Doge hat, with a green cross earring attached to his left ear. He is also often seen sporting a red scarf and an LED gas mask.

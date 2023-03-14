@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3939
+Description: DSC-MATE-3939 is a human female designated as a programmer. They possess unusual facial features, including orange stripes on their cheeks and a blonde ushanka fur hat on their head. DSC-MATE-3939 also sports goggles on their forehead and a gold chain accessory. 

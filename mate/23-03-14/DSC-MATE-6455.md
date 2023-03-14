@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6455
+Description: DSC-MATE-6455 is a male monkey with shade glasses, a police cap, and a red scarf. DSC-MATE-6455's notable feature is the jade earring it wears on its left ear. DSC-MATE-6455 identifies itself as a news anchor and has a strong sense of independence. It is capable of sophisticated language use and has demonstrated an extensive knowledge of current events.

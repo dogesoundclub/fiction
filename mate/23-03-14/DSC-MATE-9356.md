@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9356
+Description: Subject 9356 is a female human, aged 33 years. Their distinguishing features include orange stripes on their face and a retro cap on their head. The subject wears normal glasses to assist with their eyesight and a medical mask over their mouth. Their ears sport a red cross earring, and they wear a choker around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5889
+Description: Item 5889 is a human female of average height and build. Their face is distinguished by their red lips and normal glasses. Their head is a shade of green with edge curl, while their forehead is marked by a two-color band. Item 5889 is often seen wearing a set of gold earrings and a gold chain accessory. Additionally, they regularly smoke a cigarette.

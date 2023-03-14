@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9373
+Description: DSC-MATE-9373 is a human female with an unusual appearance. She has spots covering her face, which she is typically seen wearing a bucket hat and goggles on her forehead as well as a purple lipstick. DSC-MATE-9373 also wears a choker and large gold earrings. She is often seen smoking a cigarette.

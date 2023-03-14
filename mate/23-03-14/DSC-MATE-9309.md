@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9309
+Description: DSC-MATE-9309 is a female human with green hair styled in a purple cap. They are often seen wearing normal glasses and a medical mask. DSC-MATE-9309’s most prominent accessory is a silver chain, which is believed to hold sentimental value.

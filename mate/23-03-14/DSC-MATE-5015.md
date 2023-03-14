@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5015
+Description: DSC-MATE-5015 is a human female in her mid-thirties, standing at 5'7" and weighing approximately 145 pounds. DSC-MATE-5015's most notable features are her bright orange striped hair and large red clown eyes, which are always visible beneath a medical mask. DSC-MATE-5015 often wears her hair in two pigtail braids and accessorizes with a red cross earring and a black choker.

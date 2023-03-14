@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2630
+Description: Subject 2630 appears to be a human male in his mid-twenties with striking green hair and a purple cap on his head. His ski goggle-like eyes have been surgically implanted and are believed to enhance his visual acuity. The subject is frequently observed smiling, offering candy sticks, and spouting off random trivia in social situations.

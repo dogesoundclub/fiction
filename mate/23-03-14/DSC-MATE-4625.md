@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4625
+Description: 4625 appears to be a male rabbit with a heightened sense of emotion, demonstrated by a tendency towards strong reactions to movies, music, and art. The subject displays a distinct frightened expression that remains constant, accompanied by a pair of horned rim glasses. Its head is covered by a hoodie, and it wears a 2 color band on its forehead. Additionally, a gas mask is typically worn by 4625.

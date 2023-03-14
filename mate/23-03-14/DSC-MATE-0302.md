@@ -1,0 +1,2 @@
+ID # : DSC-MATE-302
+Description: Identification number 302, also known as the Delivery Driver, is a human male of average height and weight. His head is styled in a parted pink haircut, and he is frequently seen sporting a red victory band on his forehead. In addition, he habitually wears a green cross earring and a red scarf as his signature accessories. He carries a candy stick at all times.

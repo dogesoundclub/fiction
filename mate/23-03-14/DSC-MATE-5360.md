@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5360
+Description: Subject 5360 is a human male that stands at approximately 5'10". He is often seen wearing a blue bandana on his head, a jade earring in his left ear, and a gold chain around his neck. Subject 5360 also possesses unique facial features, including spots on his face and a smile that seems to be ever-present. He wears normal glasses and often carries a candy stick with him.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4077
+Description: DSC-MATE-4077 is a male human with distinctive physical features. DSC-MATE-4077 has spots covering their face and a "clown mouth" with red eyes resembling those found in clown makeup. DSC-MATE-4077 shows no signs of discomfort with these features and has refused any attempts to alter them.

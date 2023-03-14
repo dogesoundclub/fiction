@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4621
+Description: DSC-MATE-4621 is a human female of average height and weight. DSC-MATE-4621's face is adorned with spots of varying size, and their lips are naturally purple. DSC-MATE-4621's eyebrows are orange and their hair is blonde, with a single wing protruding from their head. DSC-MATE-4621 is often seen wearing a silver chain around their neck.

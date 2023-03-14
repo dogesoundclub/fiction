@@ -1,0 +1,2 @@
+ID # : DSC-MATE-464
+Description: DSC-MATE-464 appears to be a human female of average height and build, with blue clown eyes and a tiara on their head. DSC-MATE-464's primary anomalous effect is the ability to charm and manipulate others with their natural charisma, often making them the life of the party. This effect is similar to that of a memetic agent and can alter the perceptions and behaviors of those within proximity to DSC-MATE-464.

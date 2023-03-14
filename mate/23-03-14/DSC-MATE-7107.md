@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7107
+Description: Subject 7107 is a male robot of unknown origin. Its most notable feature is its green cyclops eye, which appears to be its primary means of visual perception. It also possesses a set of VR jade LED eyes that are used for enhanced visualization capabilities. The subject's head is adorned with a blue bandana, and it sports a gold earring in its ear.

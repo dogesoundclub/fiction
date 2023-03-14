@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1283
+Description: DSC-MATE-1283 is a human male, approximately 35 years of age, with spots covering the face and a frightened mouth. DSC-MATE-1283 has brown eyes resembling ski goggles, and frequently wears a doge hat on its head. DSC-MATE-1283 possesses green cross earrings on its ears and wears a silver chain around its neck. DSC-MATE-1283 frequently smokes cigarettes regardless of any non-smoking policy in place.

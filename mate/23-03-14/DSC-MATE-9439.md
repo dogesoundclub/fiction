@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9439
+Description: DSC-MATE-9439 is a human female with a unique appearance. Their eyes are replaced by VR Rainbow LED technology, while their head resembles that of a 00s schoolgirl. DSC-MATE-9439's ears feature a distinctive green cross earring, and they are typically found wearing a choker and a normal gas mask.

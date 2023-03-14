@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8978
+Description: Item 8978 is a male human farmer with blue clown eyes, spots on his face, and a wide smile. The item adorns a blue bandana on its head, with a green cross earring on its left ear. Item 8978 is often seen sporting a goggle on its forehead and a normal gas mask.

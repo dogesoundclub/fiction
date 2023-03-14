@@ -1,0 +1,2 @@
+ID # : DSC-MATE-377
+Description: DSC-MATE-377 is a male human of average height and build. DSC-MATE-377's most notable feature is their constant smile which is seemingly present at all times, regardless of the situation. DSC-MATE-377 sports a Short Peak Cap on their head with a 2 Color Band on the forehead. DSC-MATE-377 has an affinity for connecting with individuals on a deep level using their charisma, often leading to humorous situations.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9052
+Description: DSC-MATE-9052 is a male monkey sporting a red beanie and carrying a whistle at all times. While outwardly appearing to be a typical monkey, DSC-MATE-9052 possesses enhanced observational skills and attention to detail.

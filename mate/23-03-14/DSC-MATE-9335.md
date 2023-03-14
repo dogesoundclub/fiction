@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9335
+Description: Subject 9335 is a male monkey species, known for its distinct green hair and purple cap. The subject also possesses a goggle on its forehead and a gold earring on its left ear for decorative purposes. Lastly, the subject may be seen wearing a silver chain and carrying a whistle in case of emergency.

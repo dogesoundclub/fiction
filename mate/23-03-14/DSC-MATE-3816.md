@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3816
+Description: Subject 3816, also known as Officer [REDACTED], is a human female with unique physical traits. She bears a distinctive purple lip, which is theorized to be the result of excessive use of chemical dyes or other such substances. Her eyes are covered by standard prescription glasses, and her head is adorned with witch short hair. A set of goggles is consistently found resting atop her forehead, while a red cross earring adorns each of her ears.

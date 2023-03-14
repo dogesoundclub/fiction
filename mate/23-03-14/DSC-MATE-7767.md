@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7767
+Description: Item 7767 is a human female with orange stripes on her face, resembling patterns seen on certain species of big cats. The subject's eyes are red, resembling those of a clown. The subject's head appears to be from the early 2000s school era, with a goggle resting on her forehead. Additionally, the subject wears a jade earring on each ear.

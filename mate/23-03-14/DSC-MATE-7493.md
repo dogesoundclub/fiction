@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7493
+Description: DSC-MATE-7493 appears as an anomalous rabbit with a frightened mouth and nerdy glasses. DSC-MATE-7493 is typically seen wearing a retro cap, gold chain, and carrying a whistle around their neck. DSC-MATE-7493 is classified as sentient and capable of speech in English.

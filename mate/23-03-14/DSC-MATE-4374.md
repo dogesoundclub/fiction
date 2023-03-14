@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4374
+Description: DSC-MATE-4374 is a female human identified as the theater manager of [REDACTED]. DSC-MATE-4374 is 1.7 meters tall and weighs 59.9 kilograms. DSC-MATE-4374's most notable physical features include spots on her face and red lipstick. DSC-MATE-4374 also has blue clown eyes, and her blonde hair has an attached wing on the right side.

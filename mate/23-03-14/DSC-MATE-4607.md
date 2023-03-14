@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4607
+Description: Subject 4607 is a Human male standing at 6 feet tall, weighing approximately 180 pounds. He is mostly identifiable by his signature "Mouth Spot" and "Frightened Mouth," which are a distinctive characteristic of the subject's visage. This seems to be a result of an acute Oropharyngeal dystonia that affects the subject's vocal cords. His eyes resemble ski goggles and his hair is parted in a "Pink" color. His ears are pierced and bear a "Jade Earring." The subject is typically sighted sporting a "Red Scarf," which covers his lower face.

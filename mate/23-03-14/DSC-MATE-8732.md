@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8732
+Description: DSC-MATE-8732 is a male Tiger humanoid, standing at 6'2". 8732 has green hair and wears a purple baseball cap. Red Cross earring adorned on his left ear lobe, and he carries a candy stick in his right paw.

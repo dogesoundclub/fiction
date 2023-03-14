@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5054
+Description: DSC-MATE-5054 is a human male with unusual facial features. His mouth is marked with a black spot, resembling a birthmark. He also wears a pair of glasses common among intellectuals or bookworms. The subject's head is bald and closely shaven, resembling that of a monk. As a firefighter, DSC-MATE-5054 is well-muscled and trained in various firefighting techniques.

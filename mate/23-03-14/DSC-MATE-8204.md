@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8204
+Description: Subject 8204 is an anomalous monkey with horned rim glasses that serves as its eyes. The creature boasts a police cap on its head, giving it an aura of authority. Subject 8204 sports a gold chain around its neck and is almost always seen with a cigarette between its lips.

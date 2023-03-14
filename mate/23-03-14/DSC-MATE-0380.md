@@ -1,0 +1,2 @@
+ID # : DSC-MATE-380
+Description: DSC-MATE-380 is a humanoid robot designed to function as a delivery driver. DSC-MATE-380's head is not arranged and is painted green. It has a single green cyclops eye, which glows in low light conditions. The robot has one gold earring on its left ear and wears a red scarf and carries a whistle at all times.

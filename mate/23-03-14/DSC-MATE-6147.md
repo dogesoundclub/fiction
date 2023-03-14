@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6147
+Description: Subject 6147 appears to be a human male, with a unique appearance. They have spots on their face, and red clown-like eyes that seem to glow in low light environments. Subject’s head is adorned with a brightly-colored mohawk, and they frequently wear a medical mask over their mouth. The subject is often seen sporting a gold chain accessory.

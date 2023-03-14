@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6358
+Description: DSC #6358 is a male white rabbit, measuring approximately 30 centimeters in length. They have broad blue clown eyes and a distinctive orange hoodie, wearing a thick gold chain as an accessory. DSC #6358 displays a remarkable level of intelligence, showing the ability to understand human speech and communicate via a device specially designed for a rabbit interface.

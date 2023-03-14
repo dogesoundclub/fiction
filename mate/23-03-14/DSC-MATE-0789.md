@@ -1,0 +1,2 @@
+ID # : DSC-MATE-789
+Description: DSC-MATE-789 is a human female with blue clown eyes and green hair in a purple cap. Her forehead has two colored bands and she wears a red cross earring. DSC-MATE-789 is fond of wearing red lipstick and a gold chain, often seen smoking a cigarette. 

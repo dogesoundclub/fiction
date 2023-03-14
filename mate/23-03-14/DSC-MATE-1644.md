@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1644
+Description: DSC-MATE-1644 is a humanoid of the female gender, whose physical appearance is unremarkable aside from several anomalous features. DSC-MATE-1644 is a theater manager by profession and is known for their ambitious and goal-oriented nature. However, their most notable anomalous features are the VR Jade LED eyes and the green Edge Curl head.

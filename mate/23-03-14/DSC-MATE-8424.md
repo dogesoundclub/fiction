@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8424
+Description: Subject 8424 is a human male with unique features that distinguish him from the general populace. The subject's face is adorned with spots that appear to be permanent, and he wears nerdy glasses that give him an intellectual aesthetic. He often dons a retro cap and a gold earring, as well as a red scarf, which he wears loose around his neck.

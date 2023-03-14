@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2386
+Description: DSC-MATE-2386 appears to be a human female in her late teens or early twenties. She has orange stripes across her face, a bright red clown nose, and her head resembles that of a pink rabbit. Her eyes are red and her ears are adorned with green cross earrings. She wears a choker around her neck at all times.

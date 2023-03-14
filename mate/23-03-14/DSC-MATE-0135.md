@@ -1,0 +1,2 @@
+ID # : DSC-MATE-135
+Description: DSC-MATE-135 is a 35-year-old human male of average build and height with striking blue clown eyes. DSC-MATE-135's most notable features include a two-color band on its forehead, a jade earring on its right ear, a mohawk on its head, and a normal gas mask as an accessory. DSC-MATE-135 is a fashion designer by profession.

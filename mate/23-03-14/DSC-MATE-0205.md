@@ -1,0 +1,2 @@
+ID # : DSC-MATE-205
+Description: Subject 205 appears to be a human with a 90s brown hairdo, highlighted by a pair of green cross earrings. She is most notable for her infectious smile, which she often uses to diffuse potentially stressful situations. A medical mask is usually present on her mouth, which gives credence to her profession as a firefighter.

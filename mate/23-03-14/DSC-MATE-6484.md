@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6484
+Description: DSC-MATE-6484 is a genetically modified rabbit, standing approximately 1.2 meters tall and weighing approximately 45 kilograms. DSC-MATE-6484 is male and typically seen wearing a blue bandana and horn-rimmed glasses. DSC-MATE-6484 has a high level of intelligence and is capable of mastering complex tasks and using tools designed for humans.

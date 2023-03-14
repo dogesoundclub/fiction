@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4837
+Description: DSC-MATE-4837 appears to be a species of monkey, standing at approximately 1.5 meters tall. It has a unique pink head which is parted down the middle, revealing a small jade earring in each ear. DSC-MATE-4837 is often seen wearing a normal set of glasses and a standard gas mask, which it has grown accustomed to wearing due to its profession as a firefighter. 

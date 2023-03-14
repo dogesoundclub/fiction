@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4817
+Description: DSC-MATE-4817 is a male, monkey-like creature with a frightened mouth and eyes that are obscured by horn-rimmed glasses. It is approximately 45 cm in height and weighs 3.2 kg. DSC-MATE-4817 is capable of speaking and possesses remarkable wit, which it uses primarily for argumentative purposes. It has a gold earring in its left ear and a silver chain around its neck.

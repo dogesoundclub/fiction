@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5448
+Description: Item 5448 appears to be a standard issue news anchor robot. It stands approximately six feet tall and has a slender metal frame. Its exterior is unremarkable, save for a few unique features. Namely, Item 5448 has one large green cyclops eye which is positioned atop its metal frame. Additionally, Item 5448 wears horned rim glasses over its eye, a red cross earring in one ear, and a red scarf around its neck. Lastly, Item 5448 can often be seen smoking a cigarette.

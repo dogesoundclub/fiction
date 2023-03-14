@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7409
+Description: Item 7409 appears to be a robot with a frightened mouth as its primary facial feature. Its eyes take the form of ski goggles while its red cross earrings make up its ears. Its mouth is always covered with a medical mask.

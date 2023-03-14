@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2569
+Description: Subject 2569 is an anomalous feline humanoid creature similar in appearance to a Bengal tiger. Its physical features include sharp claws, pointed ears, orange-and-black striped fur, and hooded sweatshirt on top. The color of its eyes is unknown, as they are usually hidden by the hood. Around its neck, it wears a whistle as an accessory which is very important to it.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7659
+Description: DSC-MATE-7659 is a white male tiger of the Bengal subspecies. In its natural form, DSC-MATE-7659 presents with a frightened mouth and horned rim glasses for eyes. It is covered in fur with a doge hat on its head and a gold earring in its right ear. DSC-MATE-7659 has a philosophical attitude towards life and enjoys challenging conventional wisdom within its species. 

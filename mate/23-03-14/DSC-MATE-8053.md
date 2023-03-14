@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8053
+Description: DSC-MATE-8053 is a male humanoid robot measuring 1.8 meters in height and weighing approximately 80 kg. Its body is made of a high-strength alloy and is mostly black with silver accents. DSC-MATE-8053's head is fitted with a headset with LED lights, which it uses to communicate with others. DSC-MATE-8053's eyes consist of nerd glasses, which are able to display video and images. DSC-MATE-8053 has been identified as a theater manager.

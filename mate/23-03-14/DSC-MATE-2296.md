@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2296
+Description: Dr. 2296 is a human male with a unique appearance, featuring ski goggles for eyes and a medical mask for a mouth, with a hoodie on their head. Dr. 2296 is often seen wearing a silver chain, with some reporting it to possess supernatural properties. The subject's rebellious approach to authority and rules may pose significant problems to containment if left unchecked.

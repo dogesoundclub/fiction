@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3660
+Description: Subject 3660 is a male humanoid of unknown origin. Their most distinctive feature is the orange stripes present on their face. Their eyes are fitted with VR Rainbow LED lenses, which provide enhanced vision and augmented reality capabilities. The subject's head is adorned with green hair, which is often worn under a purple cap. A gold earring is present in one ear. They are often seen with a cigarette in their hand.

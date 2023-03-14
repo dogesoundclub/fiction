@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4270
+Description: 4270 is a male monkey that exhibits peculiar physical features, including blue clown eyes, a mohawk, and a gold earring. He is often seen wearing a gold chain around his neck, which he claims is a lucky charm.

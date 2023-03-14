@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9326
+Description: DSC-MATE-9326 is a male robotic entity operating as a mechanic. Its physical appearance includes a green cyclops eye and a frightened mouth, with nerdy glasses as its eyes, a police cap on its head, and a goggle on its forehead, completing the head’s features. It also has a jade earring and a red scarf for accessories.

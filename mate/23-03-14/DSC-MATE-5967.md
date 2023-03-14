@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5967
+Description: DSC-MATE-5967 is a male monkey of the species Macaca fascicularis, with brownish-red fur and green eyes resembling ski goggles. Its mouth is permanently in a frightened state, and its head is often seen wearing a Doge hat, with a jade earring on one of its ears.

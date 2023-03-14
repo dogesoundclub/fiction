@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1731
+Description: DSC-MATE-1731 appears to be a male monkey, standing at approximately 0.6 meters in height. It wears a purple cap with a headset and a red scarf around its neck. Its mouth is in a continual expression of fear and its eyes appear as if they are ski goggles. DSC-MATE-1731 displays intelligence consistent with its species, but its behavior is atypical and unpredictable.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8657
+Description: DSC-MATE-8657 is a female humanoid with distinctive facial features. Its skin is covered in spots, and its lips are a shade of purple not found in humans. Its eyes resemble those of a clown, blue and far larger than normal human eyes. DSC-MATE-8657 has green hair, which it wears in a purple cap. Betwixt its eyebrows is a single, round goggle.

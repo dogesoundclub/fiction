@@ -1,0 +1,2 @@
+ID # : DSC-MATE-816
+Description: DSC 816 is a humanoid robotic entity identified as a theater manager. It has a green Cyclops eye and VR jade LED eyes, with a hoodie covering its head, and accessorized with a gold chain. Despite its robotic nature, DSC 816 has a strong and decisive personality, sometimes perceived as bossy or intimidating to humans it encounters. It strives to maintain efficiency and effectiveness by ensuring the completion of any given task.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7932
+Description: DSC-MATE-7932 appears to be a male rabbit, measuring approximately 90 cm in height when standing on its hind legs. Its fur is a vibrant shade of green, which does not appear to be the result of dye or other artificial methods. DSC-MATE-7932's most prominent physical features are its frightened mouth and horned rim glasses, which it wears at all times. The reason for its constant frightened expression is currently unknown.

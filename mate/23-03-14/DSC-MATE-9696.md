@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9696
+Description: DSC-MATE-9696 is a human female with spots on their face and a permanent smile. Their eyes are red, resembling those of a clown, and they have blonde hair with a wing-shaped design on their head. DSC-MATE-9696 wears a single green cross earring and a silver chain. They are commonly seen wearing a gas mask, though it does not appear to be a necessary accessory for their survival.

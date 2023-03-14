@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2303
+Description: Subject 2303 is a human male of average height and weight with a distinct appearance. Their face features a dark spot around the mouth area and a perpetual smile, which creates an eerie effect on the observer. Subject 2303 also wears a pair of nerd glasses, a retro cap, a red scarf, and a gold earring on their left ear. A two-color band adorns their forehead. They work as a fast-food worker outside of the containment cell, but their position requires no interaction with civilians. 

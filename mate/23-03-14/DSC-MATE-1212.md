@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1212
+Description: DSC-MATE-1212 appears to be a human male, approximately 30 years of age. He has a distinctive smile which he wears at all times, regardless of his emotional or mental state. DSC-MATE-1212's eyes are often concealed behind nerd glasses, and his hair is parted in a shade of bright pink. He wears a jade earring in his right ear and a silver chain around his neck.

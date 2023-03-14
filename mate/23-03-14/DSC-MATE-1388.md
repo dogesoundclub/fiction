@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1388
+Description: Subject 1388, also known as "The Clown Electrician," is a male human with a unique appearance. His facial features include a clown mouth, red clown eyes, and a red beanie with a two-color band on his forehead. He wears a green cross earring on each ear and a red scarf as an accessory. His most notable feature is his medical mask, which he wears at all times.

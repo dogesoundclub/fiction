@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2764
+Description: Subject 2764 is a female human with spotted facial features and a bright, infectious smile. Her most peculiar feature is her clown-like, red eyes often accentuated with heavy makeup application. Her head is a metallic blue, and she sports goggles on her forehead and gold earrings on her ears. Subject's neck is often adorned with a choker, which is speculated to possess anomalous properties. 

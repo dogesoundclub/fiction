@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3032
+Description: Subject 3032 is a human female of average height and build, with an unremarkable appearance save for her unique physical features. Her face is characterized by a perpetual smile, which seems to indicate a positive and friendly disposition. However, her eyes are outfitted with VR Rainbow LED ocular implants, which evokes a sense of other-worldliness or technological advancement.

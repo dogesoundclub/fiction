@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1185
+Description: DSC-MATE-1185 is a male human with unique facial features. Their skin has multiple spots, and they exhibit a frightened expression at all times, resulting in a perpetually open mouth. Their eyes resemble ski goggles, and they often wear a police cap and a jade earring. DSC-MATE-1185 works as a beautician when not contained.

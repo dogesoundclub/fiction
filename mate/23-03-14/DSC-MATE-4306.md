@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4306
+Description: DSC-MATE-4306 appears to be a monkey of the species Macaca Fascicularis, approximately 1m tall and weighing 10kg. DSC-MATE-4306 possesses a human-like face, with a frightened mouth and normal glasses. Its head is covered by a retro cap and its ears bear a jade earring. DSC-MATE-4306 is often seen wearing a silver chain and smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-53
+Description: DSC-MATE-53 is a human female with distinctive orange stripes on her face and purple lips. Her eyebrows are bright orange and she wears a pair of goggles on her forehead. DSC-MATE-53 also has jade earrings and a gold chain around her neck. Her mouth is covered by a medical mask.

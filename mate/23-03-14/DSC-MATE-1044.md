@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1044
+Description: DSC-MATE-1044 is a male human, approximately 35 years old with spots on his face and a friendly smile. He wears nerd glasses over his hazel eyes and a red scarf around his neck. DSC-MATE-1044 has a two-color band on his forehead and a medical mask covering his mouth. He has a green cross earring in his left ear.

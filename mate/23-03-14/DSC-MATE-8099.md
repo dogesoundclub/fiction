@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8099
+Description: DSC-MATE-8099 is a female human with distinctive facial spots. They sport normal glasses, short witch-like hair, and are often seen wearing a silver chain and jade earring with a cigarette in their hand. DSC-MATE-8099 exhibits a tendency towards impulsive behavior and often acts on their emotions rather than thinking things through. This can lead to amusing situations for others, but also puts the subject at risk of making poor decisions.

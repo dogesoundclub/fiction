@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6091
+Description: DSC-MATE-6091 is a female human of average height with several unique physical features. Her face is marked by distinct orange stripes and purple lips, with matching orange eyebrows. DSC-MATE-6091's head is blonde, with a wing protruding from the crown. She also has a two-color band on her forehead, and jade earrings.

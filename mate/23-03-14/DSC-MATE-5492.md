@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5492
+Description: DSC-MATE-5492 is a human female in their late thirties, standing at 5'8" and weighing approximately 155 pounds. DSC-MATE-5492 possesses distinctive purple lips and wears normal glasses, witch short hair, gold earrings, and is almost always seen with a lit cigarette. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1373
+Description: 1373 is a male robot train driver with a frightened mouth and horned-rim glasses serving on the urban railroad. Its head is adorned with a red beanie, and its mouth is fitted with a medical mask, which it wears at all times. While its appearance seems docile, 1373 is highly observant and attentive to details, providing the perfect opportunity for personnel to receive a thoughtful gift. However, its obsession with providing the "perfect" gift can lead to overzealousness.

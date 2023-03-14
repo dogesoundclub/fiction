@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8954
+Description: DSC-MATE-8954 is a humanoid robot, designed to resemble a traffic officer. Standing at 7 feet tall, DSC-MATE-8954's entire body is made of metal, with various nuts and bolts visible on its surface. DSC-MATE-8954's most notable feature is its singular green Cyclops eye, accompanied by a frightened mouth underneath.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3356
+Description: DSC-MATE-3356 is a human female with distinct features, including purple lips and orange eyebrows, and a unique head resembling the Rainbow Festival. They possess a golden earring on each ear, a silver chain around their neck as an accessory, and often hold a cigarette as an additional habit.

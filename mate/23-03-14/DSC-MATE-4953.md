@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4953
+Description: DSC-MATE-4953 is a male human identified as a banker. DSC-MATE-4953's face features a distinctive mouth spot where a small birthmark is present, alongside rainbow LED eyes and golden piercing earrings. DSC-MATE-4953 is often seen wearing a red scarf accessory and smoking a cigarette.

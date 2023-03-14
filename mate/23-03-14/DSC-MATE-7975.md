@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7975
+Description: DSC-MATE-7975 is a human male, aged 45 years, standing at 6 feet tall. The subject wears a bucket hat on his head and normal glasses with a green cross earring on both ears. The subject also wears a two-color band on his forehead and a gold chain as an accessory.

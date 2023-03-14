@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8704
+Description: Item 8704 is a male individual with a mouth spot and normal-looking glasses. They wear a distinctive red victory band around their forehead, which is suspected to be a religious or cultural symbol. Additionally, they have a green cross earring on their left ear, and they often wear a red scarf around their neck. Finally, item 8704 is commonly observed smoking cigarettes.

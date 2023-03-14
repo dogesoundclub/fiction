@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2637
+Description: DSC-MATE-2637 is a humanoid male of the species Homo sapiens. Its face is distinguished by orange stripes, and its eyes resemble those of a clown, being blue with oversized irises. DSC-MATE-2637 wears a short peak cap on its head, with a two-color band on its forehead and a gold earring on each ear. It is often seen holding a candy stick.

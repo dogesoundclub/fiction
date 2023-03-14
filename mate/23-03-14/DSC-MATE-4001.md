@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4001
+Description: Subject 4001 is a human male with spotted facial features and a perpetual frightened expression. The subject's eyes are jade LED screens, displaying images of varying landscapes and animals. He is often seen wearing a doge hat and a medical mask, with a red scarf as his only other accessory.

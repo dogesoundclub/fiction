@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6385
+Description: DSC-MATE-6385 is a human female of average height and weight, with a striking appearance that sets them apart from other individuals. Their blonde hair is styled in an elaborate up-do, with a single large wing protruding from the left side of their head. DSC-MATE-6385's most notable feature is their bright red clown-like eyes, framed by long red lashes and accented with matching red lips.

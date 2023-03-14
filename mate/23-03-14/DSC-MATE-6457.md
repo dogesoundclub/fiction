@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6457
+Description: Subject 6457 is a security guard robot designed for patrolling and protecting urban areas. The robot is approximately 6 feet tall, with a green head and gold earrings on its ears. Its face features a frightened mouth expression and nerd glasses covering its eyes. The robot has a silver chain accessory which it wears at all times.

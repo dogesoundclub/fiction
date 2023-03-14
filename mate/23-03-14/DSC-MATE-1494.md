@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1494
+Description: Subject 1494 is a humanoid creature, specifically a human female, with distinct physical features such as orange stripes and red clown eyes. Subject 1494's forehead has a goggle that it keeps in place and ear an adornment featuring a red cross. The subject prefers to wear a silver chain and an LED gas mask as their main accessory.

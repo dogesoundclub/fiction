@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1368
+Description: DSC-MATE-1368 is a female human train driver with blue clown eyes. Her head is often covered with a bucket hat, and she has a two-color band on her forehead. She also wears a green cross earring on both ears.

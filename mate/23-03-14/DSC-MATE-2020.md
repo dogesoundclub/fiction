@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2020
+Description: DSC-MATE-2020 is a female human with unusual features that set it apart from ordinary humans. It has orange stripes on its face, with red clown eyes and a red lip. DSC-MATE-2020 also has a jade earring and a silver chain that it wears around its neck. The most notable feature is the two-color band on its forehead, which appears to have a hieroglyphic symbol engraved on it.

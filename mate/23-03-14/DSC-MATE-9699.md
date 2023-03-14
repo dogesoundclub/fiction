@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9699
+Description: DSC-MATE-9699 is a male rabbit of unknown origin. DSC-MATE-9699 appears to be a standard domestic rabbit, except for the red beanie it wears on its head and the normal glasses it wears over its eyes. DSC-MATE-9699 possesses the ability to communicate in fluent English and is highly skilled in computer programming and hacking.

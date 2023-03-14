@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9804
+Description: DSC-MATE-9804 is a male robotic entity, resembling a humanoid figure at 1.83 meters in height. Its headwear consists of a bucket hat with a red cross earring resting on its right ear. Its unique feature is the single, green cyclops eye located in the center of its forehead. DSC-MATE-9804 speaks in a monotonous tone and is notable for its tendency to stick to a routine.

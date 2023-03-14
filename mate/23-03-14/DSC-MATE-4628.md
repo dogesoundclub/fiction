@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4628
+Description: Standing at approximately 3 feet tall, Doctor Rabbit is an anthropomorphic rabbit with a distinctive Doge Hat perched on his head. He also sports a gold earring in his left ear, which gives him an air of sophistication. He is often seen wearing a silver chain around his neck, which he uses to hold his tools, and a whistle, which he uses to command his assistants.

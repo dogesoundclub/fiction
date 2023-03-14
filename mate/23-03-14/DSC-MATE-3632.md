@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3632
+Description: DSC-MATE-3632 appears to be a female human of average height and build, with VR Jade LED eyes and a retro cap. DSC-MATE-3632's most notable feature is the goggle worn on her forehead, the only identifying mark indicating DSC-MATE-3632's anomalous properties. DSC-MATE-3632 possesses the ability to repair any object through unconventional means, often utilizing duct tape, paper clips, or other makeshift solutions. The use of these methods has proven effective and have not shown any adverse effects. 

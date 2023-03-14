@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9062
+Description: Subject 9062 is a human female with distinctive spots on their facial complexion. Their eyes are a striking orange color with matching eyebrows, and they wear their hair in pig tails. A two-tone band rests on their forehead and they possess golden earrings and a chain as accessories. They are known to wear a standard gas mask.

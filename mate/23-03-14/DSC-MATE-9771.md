@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9771
+Description: DSC-MATE-9771 is a female humanoid of the Homo sapiens species. Despite its human appearance, DSC-MATE-9771 possesses a number of abnormal physical features. DSC-MATE-9771 has spotted skin and red clown eyes, with a green head that has a curled edge. Two color bands are apparent on DSC-MATE-9771's forehead, and it wears goggles and a jade earring. DSC-MATE-9771 is often seen wearing a silver chain and an LED gas mask.

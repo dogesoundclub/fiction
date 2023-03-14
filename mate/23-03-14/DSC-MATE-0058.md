@@ -1,0 +1,2 @@
+ID # : DSC-MATE-58
+Description: Identification Number 58 appears to be a middle-aged human male of average height and build. His most notable physical feature is a series of spots covering his face, which have been identified as a rare genetic condition. He wears a police cap on his head and an earring made of jade in his left ear. He also wears a silver chain around his neck and frequently smokes a cigarette.

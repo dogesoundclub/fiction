@@ -1,0 +1,2 @@
+ID # : DSC-MATE-616
+Description: DSC-MATE-616 appears to be a humanoid robot with a green Cyclops eye and a frightened mouth. The robot also wears nerd glasses over its eye and a silver chain around its neck. Its head is shaped like a red alarm, and its mouth is covered by a medical mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-677
+Description: Subject 677 is a male human of average height and build. Its physical features include a mouth spot and clown mouth on its face, accessorized with blue clown eyes. Its head is adorned with green hair in a purple cap, and it has a two-color band on its forehead. Its ears wear green cross earrings, and it often dons a gold chain.

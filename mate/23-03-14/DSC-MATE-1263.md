@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1263
+Description: Agent 1263 is a female human of average height and build, with a contagious smile that can put anyone at ease. However, her eyes are the most remarkable feature, as they are of a piercing bright blue color, resembling clown eyes.

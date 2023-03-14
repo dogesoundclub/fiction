@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7238
+Description: DSC-MATE-7238 is a male Bengal tiger, standing at approximately 2.2 meters. DSC-MATE-7238 appears to have two distinct humanoid traits: a stocky build and an opposable thumb on each paw. DSC-MATE-7238 is capable of verbal communication and expresses fluency in English. While fully capable of walking on all fours, DSC-MATE-7238 predominantly moves around on its hind legs. DSC-MATE-7238 has also been observed to display intelligence and cognitive functions consistent with a human being.

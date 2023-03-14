@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4136
+Description: DSC-MATE-4136 is a male tiger, exhibiting an unusual appearance for his species. DSC-MATE-4136 can be easily identified by the red beanie atop its head, silver chain around its neck, and the medical mask covering its mouth. DSC-MATE-4136 is also known to wear nerd glasses and a 2-color band on its forehead, as well as a jade earring adorning each ear. DSC-MATE-4136 exhibits a highly analytical and logical personality, as well as a tendency to engage in debates or arguments with others for its personal amusement.

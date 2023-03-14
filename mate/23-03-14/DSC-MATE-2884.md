@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2884
+Description: DSC-MATE-2884 is a human male with several unique physical features. On their face, DSC-MATE-2884 has a noticeable mouth spot and a constant smile, revealing their set of red clown eyes. DSC-MATE-2884 regularly wears a bucket hat and has a pair of goggles rest atop their forehead. They have a jade earring pierced in one of their ears, and a medical mask covering their mouth. DSC-MATE-2884 is also often seen with a gold chain accessory around their neck.

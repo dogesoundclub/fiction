@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4752
+Description: 4752 appears to be a male monkey of the species Macaca Fascicularis, approximately 1.2 meters tall when standing, and weighing 20 kilograms. The entity's face displays a frightened expression with a small mouth, and is often seen wearing nerd glasses. A two-color band marks its forehead, and it features a jade earring in its left ear, as well as a red scarf around its neck.

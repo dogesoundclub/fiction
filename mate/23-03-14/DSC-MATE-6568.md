@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6568
+Description: 6568 is a male rabbit with a frightened expression on their mouth. Their eyes are hidden behind normal glasses, but they often seem to be looking around nervously. Their head is not arranged neatly, with green fur sticking out in various directions. On their forehead, there is a two-color band that seems to be permanently attached to their fur.

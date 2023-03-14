@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1973
+Description: Item 1973 is a police robot designed and programmed for law enforcement activities. Its robotic body is approximately 6 feet tall and is made out of a lightweight alloy that makes it extremely durable. Its head is not arranged green with a single green cyclops eye that provides clear images of the surrounding area. A goggle is permanently affixed to its forehead. Item 1973 has one ear that is adorned with a red cross earring. It carries a silver chain and a whistle as its primary accessories.

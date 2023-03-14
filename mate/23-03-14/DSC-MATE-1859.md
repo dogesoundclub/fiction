@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1859
+Description: DSC-MATE-1859 is a male robot known for his on-point fashion sense. It has a single, green cyclops eye and wears normal glasses. DSC-MATE-1859's signature style consists of a hooded jacket, a red scarf, and carries around a whistle.

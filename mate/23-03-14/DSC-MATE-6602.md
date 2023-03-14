@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6602
+Description: DSC-MATE-6602 is a highly advanced robot designed to mimic a human politician. It stands at 1.8 meters in height, with a slender frame and a distinctive retro cap on its head. Its eyes are obscured by normal glasses, and it is often seen wearing a red scarf and smoking a cigarette.

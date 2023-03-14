@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1571
+Description: Subject 1571 is a male monkey of an unknown species. The subject stands at approximately 50 centimeters tall and weighs 11 kilograms. The subject's eyes are covered by ski goggles, and it has normal black hair on its head with a gold earring on its left ear. Subject 1571 behaves similarly to other monkeys in captivity, with a few notable exceptions.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7325
+Description: 7325 is a human male with a twisted sense of righteousness. His Blue Clown Eyes and unmistakable Smile are often accentuated by his Purple Cap with a Headset, a pair of goggles that remain affixed to his forehead, and a Jade earring that dangles from his left earlobe. Subject tends to wear a medical mask that may or may not conceal any sinister intentions.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6446
+Description: DSC-MATE-6446 is a male human with orange stripes on his face and a doge hat on his head. He wears a medical mask over his mouth, which is adorned with a smile. On his forehead, he has a two-color band, and he sports gold earrings on his ears. DSC-MATE-6446 is often seen wearing a gold chain around his neck as well.

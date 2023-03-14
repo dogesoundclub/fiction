@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8827
+Description: Subject 8827 appears to be a standard human male, standing at approximately 5’11’’ in height with a lean build. The most notable physical trait is the spot on their mouth, which is always visible and appears as if a portion of the lips is missing. Subject 8827 usually wears nerd glasses, which seem to serve no functional purpose as their vision is within normal range.

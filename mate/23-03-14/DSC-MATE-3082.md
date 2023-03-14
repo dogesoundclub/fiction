@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3082
+Description: DSC-MATE-3082 appears to be a female human with distinct features including orange stripes on their face, a smile, and VR rainbow LED eyes. DSC-MATE-3082 has green hair styled in a purple cap and is often seen wearing gold earrings. DSC-MATE-3082 is a banker by profession and displays a logical and analytical personality. They possess a quirky sense of humor, often making dry, deadpan remarks and teasing their friends. 

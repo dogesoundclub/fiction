@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2781
+Description: DSC-MATE-2781 is a male Tiger of Southeast Asian origin standing at approximately 1.9 meters tall with distinctive nerd glasses and a red cross earring on the left ear. DSC-MATE-2781 wears a medical mask over their mouth at all times and tends to accessorize with a gold chain. The most unusual feature of DSC-MATE-2781 is the two-color band on their forehead, which glows when triggered by specific emotions.

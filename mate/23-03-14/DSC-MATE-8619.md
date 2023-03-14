@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8619
+Description: DSC-MATE-8619 is a human male, appearing to be in their mid-20s. They work as a delivery driver for a local fast food chain. DSC-MATE-8619 has been noted to possess a unique facial marking resembling a dark spot on their right cheek, referred to as the Mouth Spot.

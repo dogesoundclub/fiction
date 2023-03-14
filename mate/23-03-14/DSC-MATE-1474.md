@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1474
+Description: DSC-MATE-1474 appears to be a human male, working as a mechanic. They are distinguishable by their unique features, including a spot on their mouth and a constantly present smile. Their eyes are covered by VR Rainbow LED, and they are often seen wearing a doge hat and a jade earring. DSC-MATE-1474 also wears a gold chain and can often be observed smoking a cigarette.

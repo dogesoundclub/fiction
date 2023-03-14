@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3459
+Description: DSC-MATE-3459 is a Caucasian human male, believed to be in their mid-30s. Their physical appearance appears normal except for the following features on their face: orange stripes, red clown eyes, and a smile.

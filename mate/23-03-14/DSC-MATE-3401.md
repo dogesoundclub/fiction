@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3401
+Description: DSC-MATE-3401 appears as a male Bengal Tiger, approximately 2 meters in height when upright. Its mouth is constantly in a frightened expression, while its eyes resemble ski goggles. DSC-MATE-3401's head is covered in green fur that appears to be unkempt and not arranged. A pair of goggles is often seen resting on its forehead, and it wears a normal gas mask.

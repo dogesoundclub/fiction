@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9130
+Description: Subject 9130 is a male monkey approximately 1.2 meters tall, with a frightened expression on its mouth and blue clown eyes. Its head is covered with black hair, and it has a two-color band on its forehead. It also wears a silver chain as an accessory.

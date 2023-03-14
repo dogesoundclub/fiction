@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3765
+Description: DSC-MATE-3765 is a humanoid female of average height and build, with blonde hair and an unexplainable pair of wings. The eyes of DSC-MATE-3765 are a normal blue colour, however, she has distinctive orange stripes on her face and a red cross earring on her left ear. Her lips are always red, regardless of whether she is wearing lipstick or not. The entity is often seen wearing a gold chain and smoking a cigarette.

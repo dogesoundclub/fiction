@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8596
+Description: 8596 is a highly advanced robot, designed specifically for the purpose of maintaining security in urban areas. Its body is constructed from a variety of metallic materials, and while it does not resemble a human in any way, it is equipped with a police cap and a pair of normal glasses. 8596 is male and sports a gold chain and red cross earring. 

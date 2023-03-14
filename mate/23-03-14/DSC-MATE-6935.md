@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6935
+Description: DSC-MATE-6935 is a human female with distinctive facial features including a purple lip and blue clown eyes. DSC-MATE-6935 also wears a retro cap with a 2 color band and goggles on their forehead. A medical mask is worn over their mouth.

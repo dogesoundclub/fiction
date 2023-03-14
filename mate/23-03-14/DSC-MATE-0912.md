@@ -1,0 +1,2 @@
+ID # : DSC-MATE-912
+Description: Subject 912 is a female human politician, with noticeably purple lips and normal glasses. She is often seen wearing a retro cap and a green cross earring, as well as a choker around her neck. Despite her seemingly innocuous appearance, her strong sense of duty and responsibility have made her a dangerous and unpredictable entity.

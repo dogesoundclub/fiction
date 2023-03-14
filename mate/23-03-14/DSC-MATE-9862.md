@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9862
+Description: DSC-MATE-9862 is a tiger anthropomorphic entity, estimated to be approximately 2.2 meters tall standing upright. DSC-MATE-9862 typically wears a red scarf and gold earring, along with a candy stick.

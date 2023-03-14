@@ -1,0 +1,2 @@
+ID # : DSC-MATE-755
+Description: DSC-MATE-755 is a humanoid entity with orange stripes across her face, orange eyebrows and a distinctive smile. She identifies as a human and presents no anomalous biological or anatomical features. DSC-MATE-755’s head features short hair, which they style according to their mood. DSC-MATE-755 is often seen wearing a gold chain, of which the purpose is unknown.

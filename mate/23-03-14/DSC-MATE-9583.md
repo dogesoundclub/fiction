@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9583
+Description: DSC-MATE-9583 is a human female, identified as a reporter. DSC-MATE-9583's most prominent facial feature is a pattern of spots that cover her cheeks and forehead. DSC-MATE-9583's eyes are blue and have been surgically altered to resemble the eyes of a clown. DSC-MATE-9583's head is often adorned with various accessories associated with rainbow festivals, such as flower crowns and feathered headbands. DSC-MATE-9583's forehead also bears a two-color band.

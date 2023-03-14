@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6211
+Description: DSC-MATE-6211 is a male simian of the species Macaca fascicularis, with the appearance of a sentient humanoid mammal. DSC-MATE-6211 is approximately 1.2 meters tall and weighs roughly 20 kilograms. DSC-MATE-6211 exhibits no anomalous physical attributes aside from its appearance.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5100
+Description: DSC-MATE-5100 is a Caucasian female police officer, identified as Police Officer Hannah Blackwood. DSC-MATE-5100 is observed to have orange stripes on its face and blue clown-like eyes. DSC-MATE-5100's hairstyle is that of 90s Brown Hair. DSC-MATE-5100 has a 2-color band on its forehead and a pair of goggles on its forehead. DSC-MATE-5100's ears are adorned with a red cross earring, and it wears a choker around its neck. It is frequently observed smoking a cigarette. 

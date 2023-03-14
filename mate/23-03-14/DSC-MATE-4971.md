@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4971
+Description: 4971 is a female human identified as a mechanic. She has orange stripes on her face, possibly tattooed, and often wears a smile. Her glasses and gold earring are normal, but she is frequently seen wearing a silver chain and a gas mask.

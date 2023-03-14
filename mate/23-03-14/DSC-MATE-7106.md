@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7106
+Description: The Guard is a humanoid robot, standing at 6 feet tall with a slim build. Its casing is composed of a metallic alloy that appears to be immune to ordinary wear and tear, with the exception of a few minor cosmetic scratches. It has been equipped with a variety of weapons and defensive mechanisms, including a retractable arm-mounted laser blaster and titanium armor plating.

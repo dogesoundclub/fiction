@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6791
+Description: Subject 6791 is a human male, identified as a delivery driver for a local courier service. The subject has a distinctive appearance with a mohawk hairstyle, green cross earring, and nerd glasses. Their most notable feature is a perpetual smile on their face, accompanied by a candy stick in their mouth at all times.

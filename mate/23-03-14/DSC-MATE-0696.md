@@ -1,0 +1,2 @@
+ID # : DSC-MATE-696
+Description: DSC-MATE-696 is a humanoid robot with green cyclops eye and a frightened mouth. DSC-MATE-696 identifies itself as a car salesman, and displays an exceptional level of charm and charisma, making it difficult for buyers to resist making a purchase.

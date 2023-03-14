@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4745
+Description: DSC-MATE-4745 is a male rabbit humanoid, standing at approximately 1.2 meters in height. DSC-MATE-4745 is wearing a retro cap on its head, with a goggle resting on its forehead. It is often seen sporting a red scarf and an LED gas mask, which it claims is for "fashion reasons."

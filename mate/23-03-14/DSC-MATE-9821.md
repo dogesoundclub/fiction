@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9821
+Description: Subject 9821 is a human female of unknown origin. The subject's face is mostly covered in spotted markings, with blue clown eyes that emit an unsettling aura. Her purple cap is adorned with a headset, and her forehead bears two colored bands. She wears a jade earring and a silver chain around her neck. The subject is said to wear a normal gas mask to protect herself from lethal fumes that may be produced during her villainous acts.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8052
+Description: DSC-MATE-8052 is a humanoid individual of the species Homo Sapiens with the appearance of a young adult male. They stand at approximately 5'10" tall and weigh around 155 lbs. Their face features a distinct mouth spot and a smile with nerd glasses resting on their nose. DSC-MATE-8052's head is crowned with a bright green and black mohawk, and they possess a two-color band across their forehead.

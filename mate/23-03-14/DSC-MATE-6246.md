@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6246
+Description: DSC-MATE-6246 is a male rabbit, standing at approximately 5 feet tall. The object has blue clown eyes, a red beanie on its head, and a gold earring in one of its ears. DSC-MATE-6246 is often seen wearing a gold chain necklace and a LED gas mask, which is used for unknown reasons.

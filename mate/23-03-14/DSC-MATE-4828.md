@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4828
+Description: DSC-MATE-4828 is a humanoid robotic creature resembling a male real estate agent. DSC-MATE-4828 sports a retro cap on its head and horn-rimmed glasses over its green cyclops eye. DSC-MATE-4828's mouth is in a perpetual state of fright, which is believed to be the result of a malfunction in its programming. DSC-MATE-4828 also features a red cross earring and is often seen with a cigarette hanging out of its mouth.

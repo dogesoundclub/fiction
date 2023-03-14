@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6482
+Description: DSC-MATE-6482 is a male tiger who has the appearance of being dressed like a banker. It wears a red beanie and goggles on its forehead, along with a normal gas mask for breathing. Its eyes are red clown eyes, which give it an eerie appearance. DSC-MATE-6482 exhibits a strong sense of responsibility and duty, yet knows how to have fun as well. Its humor is often infectious, and it is known for being the life of the party. DSC-MATE-6482 is a master of getting others to join in on the fun, often leading sing-alongs and dances.

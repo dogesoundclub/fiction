@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1575
+Description: Subject 1575 is a male monkey of the Capuchin species. It stands at approximately 15 inches tall and has brown fur with white patches on its neck, face, and paws. The subject is observed wearing a police cap and a gold earring on its left ear. It also has a silver chain around its waist, which it often uses to swing from the bars of its cage. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2427
+Description: DSC-MATE-2427 is a male human politician with orange stripes on his face. His eyes are of the VR Jade LED variety, while his head is adorned with a bucket hat, and his ears feature a jade earring. DSC-MATE-2427 constantly wears a medical mask over his mouth, which has been found to be unnecessary due to his lack of any infectious diseases.

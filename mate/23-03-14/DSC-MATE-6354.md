@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6354
+Description: DSC-MATE-6354 is a male monkey, standing at approximately 1 meter in height. Its body is covered with dark fur and its eyes remain unknown due to its habit of wearing a pair of goggles on its forehead. On its left ear, DSC-MATE-6354 wears a gold earring. A red scarf is usually worn around its neck along with a candy stick. 

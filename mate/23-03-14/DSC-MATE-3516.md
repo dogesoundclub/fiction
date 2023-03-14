@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3516
+Description: Item 3516 is a humanoid designated as a "Theater Manager". It has several unique features that distinguish it as anomalous. Item 3516 is a female human with red clown eyes and a smile that can be disconcerting to those who come into contact with it. Item 3516 is also known to wear a bucket hat with a goggle on the forehead accompanied by a single jade earring.

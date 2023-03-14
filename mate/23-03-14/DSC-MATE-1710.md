@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1710
+Description: Item 1710 is a humanoid entity identified as a human male. Their most noticeable physical features are the mouth spot and smile on their face. Item 1710's eyes resemble ski goggles and their head is adorned with green hair in a purple cap. There is a gold chain accessory draped around their neck, and a goggle is worn on their forehead.

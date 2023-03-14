@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9264
+Description: DSC-MATE-9264 is a female human with green hair and a purple cap. She always wears a medical mask over her mouth, and normal glasses over her eyes. DSC-MATE-9264's most prominent feature is her red lipstick, and the two-color band on her forehead. A pair of goggles is also always present on her forehead, positioned between the two-color band.

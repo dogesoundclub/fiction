@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2604
+Description: DSC-MATE-2604 is a human female of unknown origin, with orange stripes on its face that resemble tiger markings. It wears normal glasses over its eyes, a bucket hat on its head, and a gold earring on its left ear. DSC-MATE-2604 also wears a silver chain as an accessory. It is known to exhibit a volatile personality, displaying a great sense of humor that often leads to inappropriate behavior and violence.

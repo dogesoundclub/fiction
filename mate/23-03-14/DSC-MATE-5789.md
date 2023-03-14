@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5789
+Description: DSC-MATE-5789 appears to be a male humanoid creature of the species Panthera Tigris with a distinctive green hair in purple cap on its head, adorned with a red victory band around its forehead. DSC-MATE-5789 also wears a silver chain around its neck. Its eyes appear to have a hypnotic effect, with red sclera matching its hair and pupils resembling the eyes of a clown.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2190
+Description: Subject 2190 is a human female with distinctive features, which include spots on her face and bright red lipstick. Her eyes are rainbow colored and appear like a virtual reality headset with LED lights. 2190 also wears a pair of goggles on her forehead and a gold earring in one ear. To keep her identity a secret, she wears a medical mask to obscure her mouth.

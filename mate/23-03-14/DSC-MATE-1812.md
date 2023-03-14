@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1812
+Description: Subject 1812 appears to be a female human, with distinct facial features. Noted features include several spots on her face, a prominent purple lip, and unsettling red clown eyes. A two-color band sits upon her forehead, with jade earrings decorating her unnaturally pointed ears. Subject 1812 is often seen wearing a choker necklace and an LED gas mask.

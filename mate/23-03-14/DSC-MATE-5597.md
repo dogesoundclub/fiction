@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5597
+Description: Subject 5597, codenamed Riker, is a male Bengal tiger with blue clown eyes. Riker is an anomaly in his species as he is capable of wearing a headset with LED light that allows him to communicate with humans in their language. He often dons a red scarf, and carries a whistle, which he uses to alert his fellow guards of potential threats.

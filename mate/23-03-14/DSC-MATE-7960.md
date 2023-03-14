@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7960
+Description: DSC-MATE-7960 is a female human appearing to be approximately in her mid-thirties who practices as a Real Estate Agent. DSC-MATE-7960 has striking jade green LED eyes and frequently sports a cigarette in her left hand. DSC-MATE-7960 is usually seen with a set of Jade Earrings and most often seen sporting bright red lipstick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4552
+Description: Subject 4552 is a female human, standing at 1.65 meters in height with an average build. The subject possesses red lips, normal glasses, and an orange side of the head. The subject's ears are adorned with red cross earrings, and they are often seen sporting a gold chain necklace and a normal gas mask.

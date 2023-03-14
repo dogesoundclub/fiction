@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2965
+Description: Officer 2965 is a male human of average height and build. They possess distinct facial features, including orange stripes across their forehead and cheeks and a consistently frightened mouth. Their head appears to consist of multiple green layers, similar to that of an onion, and is adorned with a jade earring in one ear. Officer 2965 habitually wears a medical mask to cover their mouth.

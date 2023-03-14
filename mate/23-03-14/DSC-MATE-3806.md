@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3806
+Description: 3806 is a human male, roughly 6 foot tall, and of average build. There is no obvious sign of abnormality, except for the fact that the subject has red clown eyes that emit a strange glow in the dark. The subject typically wears a purple cap with a headset and a two-color band on his forehead. He is often seen wearing a gold chain around his neck.

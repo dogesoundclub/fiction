@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4179
+Description: DSC-MATE-4179 is a human female of average height and weight with orange stripes present on their facial features. Their eyes are blue with a distinct clown-like shape, and they consistently wear a bucket hat and matching gold chain. While DSC-MATE-4179's appearance may be surprising to some individuals, their physical features have not been found to have any effect on their abilities or actions.

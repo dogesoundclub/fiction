@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2053
+Description: DSC-MATE-2053 is a male Bengal Tiger with striped fur and a frightened expression on its mouth. Its eyes are replaced with VR Rainbow LED, and it wears goggles on its forehead and a red cross earring on its left ear. DSC-MATE-2053 is often seen wearing a red scarf and smoking a cigarette. It has the ability to communicate using spoken language, but prefers to use telepathy.

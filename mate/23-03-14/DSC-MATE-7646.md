@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7646
+Description: Subject 7646 is a humanoid male of average height and build. The subject's eyes are obscured by standard corrective glasses, and his head is adorned with a cap resembling that of the popular internet meme "Doge." The subject's forehead is marked by two distinct color bands, and a green jade earring is visible on his left ear. A cigarette is often found dangling from the subject's lips.

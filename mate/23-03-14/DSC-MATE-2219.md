@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2219
+Description: DSC-MATE-2219 is a male monkey of the Macaca family, standing approximately 1 meter tall and weighing 25 kg. It has a furry body with a black and white coloration, and its most distinctive features are the ski goggles covering its eyes and a gold earring on the left ear. DSC-MATE-2219 also wears a gold chain and carries a candy stick on its left hand at all times.

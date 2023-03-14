@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8374
+Description: DSC-MATE-8374 appears as a male monkey with a frightened expression on its face. Its ears are adorned with jade earrings, and it wears a silver chain around its neck. The monkey is often seen smoking a cigarette.

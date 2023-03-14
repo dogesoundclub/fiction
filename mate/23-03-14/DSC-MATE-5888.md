@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5888
+Description: Subject 5888 is a human male in his mid-30s, standing at 183cm tall and weighing approximately 75kg. His distinct physical features include a mouth spot, ski goggle eyes, and a peak spike on his head. He also has a green cross earring on each ear and is often seen wearing a silver chain and a normal gas mask as accessories.

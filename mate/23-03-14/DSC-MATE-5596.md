@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5596
+Description: 5596 is an anomalous entity resembling a Bengal tiger (Panthera tigris tigris). The entity is outfitted with a bucket hat and a pair of rainbow-colored LED eyes, giving it an eerie and unsettling appearance. It is also frequently spotted wearing a gold chain and a normal gas mask for unknown reasons. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3146
+Description: DSC-MATE-3146 is a male Siberian tiger that possesses the ability to mimic human speech, despite lacking vocal cords and proper mouth anatomy. DSC-MATE-3146's vocalizations are often described as sounding electronic or distorted, with a metallic quality that causes discomfort in human listeners.

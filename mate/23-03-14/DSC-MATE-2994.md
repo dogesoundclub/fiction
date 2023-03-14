@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2994
+Description: DSC-MATE-2994 is a Male Robot Security Guard. Its physical appearance resembles that of a typical security guard, with VR Jade LED for eyes and a Red Cross Earring for ears. It has a Gold Chain and a Whistle as accessories. DSC-MATE-2994’s programming includes its role as a security guard and carrying out routine patrols within its designated area.

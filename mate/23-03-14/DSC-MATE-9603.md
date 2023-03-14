@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9603
+Description: DSC-MATE-9603 is a male human with a unique physical appearance. Their head is made of a purple metal material, with a set of rainbow LED lights in place of traditional eyes. A pair of goggles is often seen resting on their forehead, and they wear a single jade earring in one ear.

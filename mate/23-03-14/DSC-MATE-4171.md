@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4171
+Description: 4171 is a female human, with unique features including orange stripes on her face and jade LED eyes. She also wears a goggle on her forehead and a medical mask over her mouth. Her head is adorned with 90s brown hair, and she wears a jade earring and gold chain as accessory. 

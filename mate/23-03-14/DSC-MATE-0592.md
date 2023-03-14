@@ -1,0 +1,2 @@
+ID # : DSC-MATE-592
+Description: DSC-MATE-592 is a male monkey with blue clown eyes and a frightened mouth. DSC-MATE-592 is humanoid in shape, standing at approximately 1.8m tall and weighing approximately 78kg. DSC-MATE-592 wears a blue bandana on his head and has a goggle on his forehead. DSC-MATE-592's ears are pierced, and he wears a jade earring, a gold chain, and a candy stick as accessories.

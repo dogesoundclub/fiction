@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3961
+Description: DSC-MATE-3961 appears to be a robot, with one Cyclops eye and a mouth that appears scared or frightened. It wears a blue bandana over its head and sports horn-rimmed glasses as its eye coverings. A goggle can be observed situated on the subject's forehead, and a red cross earring adorns its right ear. 

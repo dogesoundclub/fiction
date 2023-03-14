@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6041
+Description: DSC-MATE-6041 is a human female identified as a delivery driver. She exhibits unique physical characteristics, including spots on her face and a prominent red lip. However, her most distinctive feature is her eyes, which emit a rainbow LED glow that resembles virtual reality technology. Her ears are adorned with a jade earring, and she is often seen smoking a cigarette.

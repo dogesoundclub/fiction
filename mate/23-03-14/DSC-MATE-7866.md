@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7866
+Description: DSC-MATE-7866 is a human male that identifies as a traffic officer. They possess a frightened mouth and wear LED glasses that project a rainbow display. The subject's head is shaven, wearing a Celtic monk headdress.

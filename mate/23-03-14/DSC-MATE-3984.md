@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3984
+Description: DSC-MATE-3984 is a humanoid robot standing at approximately 1.8 meters tall. It appears to be a male with a green cyclops eye and a frightened mouth feature on its metallic face. Its eyes glow in various colors due to the use of VR Rainbow LED technology.

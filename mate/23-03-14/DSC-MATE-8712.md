@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8712
+Description: 8712 is a sexually-male, robot Train Driver. They have a retro cap on their head with a goggle resting on their forehead. 8712's ears consist of cross-shaped earrings colored in red, and they wear a silver chain around their neck.

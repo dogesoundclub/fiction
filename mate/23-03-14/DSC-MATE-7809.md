@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7809
+Description: Item 7809 is a female human of unknown age and origin. It stands at 1.75m tall and weighs approximately 68 kg. Its most distinctive features are the orange stripes across its face and the blue clown eyes. Its head seems to be made of a metallic blue material, and it wears a normal gas mask and a gold earring on one ear.

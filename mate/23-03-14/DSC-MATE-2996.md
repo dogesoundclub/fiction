@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2996
+Description: DSC-MATE-2996 is a female human of average build and height. DSC-MATE-2996 has distinctive spots on her face and a charming smile, often used to disarm others. DSC-MATE-2996's hair is blonde and accompanied by a wing growing out of the right side of her skull, which measures approximately one and a half feet in length. DSC-MATE-2996 also sports a gold earring on her right ear and a silver chain around her neck.

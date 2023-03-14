@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8574
+Description: DSC-MATE-8574 appears to be a male fashion designer of robotic nature, standing at 1.8 meters tall. DSC-MATE-8574's most noticeable feature is a large green cyclops eye situated in the center of his face, which appears to be able to move independently from DSC-MATE-8574's head. DSC-MATE-8574 also wears a bucket hat and goggles on its forehead.

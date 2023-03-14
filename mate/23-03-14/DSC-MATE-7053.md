@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7053
+Description: DSC-MATE-7053 is a male Bengal Tiger that has been subjected to an unexplained transformation. The creature appears to be fully cognizant and able to communicate in a language similar to that of a typical human, though its vocalizations are heavily accented and gutteral. DSC-MATE-7053 possesses a green head that appears to be natural, and a pair of gold earrings embedded in its ears. Additionally, DSC-MATE-7053 is often seen wearing a red scarf and carrying a whistle, presumably related to its previous occupation as a security guard.

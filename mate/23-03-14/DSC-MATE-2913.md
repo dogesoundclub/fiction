@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2913
+Description: 2913 is a human female with distinct spots on her face. Her smile is often described as charming and disarming. She bears the appearance of an 00s school girl with a silver chain accessory. Her personality conveys a strong sense of independence and resistance to authority or unnecessary rules. 2913 has shown rebellious tendencies such as leaving work without permission or taking days off at her discretion.

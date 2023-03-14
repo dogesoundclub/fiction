@@ -1,0 +1,2 @@
+ID # : DSC-MATE-156
+Description: DSC-MATE-156 is a human male police officer with distinctive physical features. His most notable traits include red clown eyes, a spot on his mouth and a constant smile which never fades. His head is adorned with green hair under a purple cap and a silver chain around his neck.

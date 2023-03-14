@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4678
+Description: DSC-MATE-4678 is a human female with spots on her face and a distinctive smile. It resembles a fashion designer, with blonde hair, gold earrings, and a silver chain around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6672
+Description: Officer 6672 has a unique appearance, sporting spotted facial features and red clown eyes. Her blonde hair is often covered by an Ushanka and she wears a choker as an accessory. One can often see her with a cigarette in her hand. 

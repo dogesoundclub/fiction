@@ -1,0 +1,2 @@
+ID # : DSC-MATE-537
+Description: Item 537 is a male tiger, standing at 2.4 meters at the shoulder and weighing approximately 400 kilograms. Item 537 appears to have undergone extensive cybernetic enhancements. Its eyes have been replaced with Jade LED and it wears a purple cap fitted with an advanced communications headset. It is equipped with a retractable set of claws, which it uses with deadly efficiency.

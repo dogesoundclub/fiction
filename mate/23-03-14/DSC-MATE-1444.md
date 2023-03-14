@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1444
+Description: DSC-MATE-1444 appears as a male rabbit standing at 2 feet tall with red clown eyes and a frightened mouth. DSC-MATE-1444 wears a goggle on its forehead and a gold chain around its neck. It also wears a jade earring on its right ear and regularly contains LED gas masks for respiration.

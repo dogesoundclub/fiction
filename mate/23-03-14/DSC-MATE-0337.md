@@ -1,0 +1,2 @@
+ID # : DSC-MATE-337
+Description: Item 337 appears to be a male tiger with a frightened mouth expression. This particular specimen is often seen wearing horned rim glasses, a doge hat, and a red victory band on its forehead, with a red cross earring on each ear. Item 337 is often seen wearing a medical mask when in the field.

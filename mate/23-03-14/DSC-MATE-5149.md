@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5149
+Description: Subject 5149, also known as "Stripedhead," is a male human with distinctive orange stripes on his face. The subject has a metal purple head, green cross earring ears, and wears a silver chain accessory along with an LED gas mask. He stands at a height of 6 feet and is of average build.

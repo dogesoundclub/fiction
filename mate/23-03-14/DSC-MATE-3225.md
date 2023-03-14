@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3225
+Description: DSC-MATE-3225 is a female human in their early thirties and works as a firefighter in the local Fire Department. The subject stands at 169 cm tall and weighs 65 kg. They have an unusual lip color of dark purple, with a golden tiara on their head. A two-color band on their forehead, and a pair of gold earrings in their ears. The subject carries a standard gas mask as a primary accessory during firefighting.

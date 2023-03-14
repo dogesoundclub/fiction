@@ -1,0 +1,2 @@
+ID # : DSC-MATE-499
+Description: Subject 499 is a male human of average height and build. His facial features include a prominent mole, located just below the lips, with a bold red coloration, and his eyes are an unsettling shade of red. He is commonly seen wearing a bright red beanie, paired with a medical mask that conceals his mouth. Subject 499 also wears an exquisite jade earring and a thick chunk of gold chain.

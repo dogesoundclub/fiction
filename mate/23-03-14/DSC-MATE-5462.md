@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5462
+Description: 5462 is a male human of average height and weight, often seen wearing a retro cap and silver chain. Notably, 5462's face contains several spots and has unusual ski goggle-like eyes. 5462 is often seen carrying a candy stick, which it claims helps with stress.

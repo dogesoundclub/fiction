@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2259
+Description: DSC-MATE-2259 appears to be a female human, working a low-wage, fast food job. Despite its mundane appearance, DSC-MATE-2259 possesses anomalous properties that make it a potentially dangerous entity. 

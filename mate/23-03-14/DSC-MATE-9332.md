@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9332
+Description: DSC-MATE-9332 is a male rabbit species approximately 132cm in height when upright. DSC-MATE-9332 has the appearance of a mid-20th century train engineer, wearing a retro cap and ski goggles. The goggles sometimes used as a forehead accessory. DSC-MATE-9332 also wears an LED gas mask that obscures its facial features.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7052
+Description: DSC-MATE-7052 appears as a female human with distinctive orange stripes on their face and purple lips. Their eyebrows are also orange, and they have green hair worn under a purple cap. DSC-MATE-7052's forehead features two colored bands and they wear a red cross earring as an accessory. They also wear a gold chain and smoke cigarettes regularly.

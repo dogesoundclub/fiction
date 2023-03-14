@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9826
+Description: DSC-MATE-9826 is a male human train driver with unique identifying features. DSC-MATE-9826 sports a retro cap and frequently wears a silver chain around their neck. DSC-MATE-9826's face is characterized by spots and a constant smile. DSC-MATE-9826 is noteworthy for their uninhibited personality, which often leads to comic situations involving silly dance moves or antics.

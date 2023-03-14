@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8385
+Description: Subject 8385 is a male tiger, standing at 6'6" and weighing approximately 500lbs. Subject 8385's face displays a look of constant fear with his mouth open as if he is constantly in distress. His eyes are replaced by ski goggles which appear to be surgically attached to his face. Subject 8385 wears a blue bandana around his head and a gold earring on his left ear.

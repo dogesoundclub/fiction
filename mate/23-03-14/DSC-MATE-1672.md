@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1672
+Description: 1672 is a male human with blonde hair and gold earring in his ear. He has a unique facial feature in the form of a small spot on his mouth. His eyes are obscured behind nerdy glasses, and his mouth is usually covered by a medical mask. He appears to be of average height and build, but his movements are often nervously anxious.

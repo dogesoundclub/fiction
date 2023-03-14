@@ -1,0 +1,2 @@
+ID # : DSC-MATE-421
+Description: DSC-MATE-421 is a human female, identified as a lawyer prior to containment. DSC-MATE-421 exhibits unusual physical features, including orange stripes on her face, red clown eyes, a forehead with a two color band, and red cross earrings. DSC-MATE-421 also wears a gold chain as a common accessory.

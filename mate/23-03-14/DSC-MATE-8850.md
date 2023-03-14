@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8850
+Description: Item #8850 takes the form of a robotic humanoid with a single green cyclops eye as its primary facial feature. It is a male entity with a frightened mouth, horned rim glasses, and a red alarm as its head. Item #8850's ears contain a gold earring, and its mouth is covered by a medical mask. Additionally, it wears a gold chain as an accessory.

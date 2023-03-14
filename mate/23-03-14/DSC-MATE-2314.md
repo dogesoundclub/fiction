@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2314
+Description: Subject 2314 appears to be a human female with distinct features including spots on her face, an orange eyebrow, and pigtail hair. Her mouth is covered with a medical mask, and she wears a silver chain as an accessory. Additionally, the subject exhibits a unique two-color band on her forehead and gold earrings.

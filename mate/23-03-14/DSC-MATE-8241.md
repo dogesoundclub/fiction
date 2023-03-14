@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8241
+Description: DSC-MATE-8241 is a human female with spots on her face and a cheerful smile. Her head resembles that of an 00s school girl, and she wears a pair of gold earrings and a gold chain around her neck. DSC-MATE-8241's most distinctive feature is the normal gas mask that she wears over her face at all times.

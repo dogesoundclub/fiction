@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2615
+Description: Subject 2615 is a male human with a distinctive mouth spot and a friendly smile. Their eyes are covered by normal glasses while a police cap partially obscures their forehead's 2 color band. Subject 2615 wears a jade earring on their left ear. They work as a banker by day, but their analytical mind and quirky sense of humor make them stand out amongst their peers.

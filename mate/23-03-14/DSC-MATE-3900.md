@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3900
+Description: DSC-MATE-3900 is a human female, identified as an electrician named [REDACTED]. DSC-MATE-3900 stands 167cm tall and weighs approximately 61kg. DSC-MATE-3900 has spots on their face and a noticeable smile. Their eyes are a unique shade of red, resembling clown makeup. DSC-MATE-3900's head is covered by green hair in a purple cap. They wear goggles on their forehead and a red cross earring in their left ear. DSC-MATE-3900 wears a silver chain around their neck and carries cigarettes on their person.

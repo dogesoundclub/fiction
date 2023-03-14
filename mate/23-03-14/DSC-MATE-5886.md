@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5886
+Description: Subject 5886 is a male human with orange-striped facial features and ski goggle eyes. He wears a purple cap with a headset and a medical mask to conceal his facial features. The subject also wears a silver chain as an accessory.

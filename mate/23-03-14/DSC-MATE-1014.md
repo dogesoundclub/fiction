@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1014
+Description: DSC-MATE-1014 is a female human with spotted skin and red clown eyes. Its head is green with edge curl, and it wears a single jade earring. DSC-MATE-1014 works as a banker and appears to possess a no-nonsense attitude, but also has a playful side that can lead to humorous situations. DSC-MATE-1014 values tradition and often shares jokes and stories that have been passed down through its family or community.

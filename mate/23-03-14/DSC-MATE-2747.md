@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2747
+Description: Subject 2747 is a female human, approximately 28 years of age, standing at 5'8" in height. Their most notable feature is a set of orange stripes adorning their face, contrasting strikingly with their red lips. The subject's eyes are outfitted with VR Rainbow LED technology that constantly illuminate their iris in a mesmerizing, ever-shifting pattern.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6339
+Description: DSC-MATE-6339 is a male security guard robot with a green cyclops eye and a Doge hat on its head. Its ears are adorned with a gold earring and it wears a silver chain as an accessory. Despite its robotic nature, DSC-MATE-6339 has developed a unique and unpredictable personality. It is uncommon for a machine to have such a strong emotional response to movies, TV shows, and art forms that evoke a deep sense of sentimentality.

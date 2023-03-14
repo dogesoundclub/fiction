@@ -1,0 +1,2 @@
+ID # : DSC-MATE-602
+Description: DSC-MATE-602 is a humanoid robotic attorney programmed with the ability to practice human law. Its face features a single green cyclops eye, a frightened mouth and VR rainbow LED eyes. It also sports green hair in a purple cap and a jade earring.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9392
+Description: DSC-MATE-9392 appears to be a human woman of average height and weight. She exhibits unique features, including purple lips, rainbow LED eyes, and pig tails. The most notable feature of DSC-MATE-9392 is her red cross earring, which appears to be embedded into her earlobe. She wears a silver chain around her neck and carries a cigarette at all times.

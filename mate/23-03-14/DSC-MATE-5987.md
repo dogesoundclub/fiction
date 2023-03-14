@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5987
+Description: Subject 5987 is a male monkey with a distinctively unique appearance. He sports a bucket hat on his head, with a two-color band on his forehead and a jade earring on each ear. He also likes to wear a red scarf around his neck. The subject behaves like a human, displaying advanced cognition and vast knowledge of various subjects despite his simian appearance.

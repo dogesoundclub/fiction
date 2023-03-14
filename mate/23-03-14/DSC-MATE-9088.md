@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9088
+Description: DSC-MATE-9088 is a human male with a unique physical feature in the form of a spot on its mouth. DSC-MATE-9088 also regularly wears nerd glasses and a silver chain around its neck, as well as carrying a candy stick as an accessory. It has been observed that DSC-MATE-9088 has a head inclined towards monk-like behavior, indicating a tendency towards peaceful and humble living.

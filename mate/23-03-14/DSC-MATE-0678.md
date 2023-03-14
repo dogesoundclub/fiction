@@ -1,0 +1,2 @@
+ID # : DSC-MATE-678
+Description: DSC-MATE-678 is a human male commonly referred to as "The Clown Beautician" by Foundation personnel. DSC-MATE-678 possesses facial features that resemble those of a clown, including red eyes, a mouth spot, and a clown mouth. DSC-MATE-678 is typically seen wearing a short peak cap and a red scarf, as well as a green cross earring on each ear.

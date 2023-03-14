@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2827
+Description: DSC-MATE-2827 is a male tiger with distinct features, including a frightened mouth, blue clown eyes, a purple cap with a headset, and a jade earring. Additionally, DSC-MATE-2827 is known to adorn a silver chain. DSC-MATE-2827's physical form and unique features make it easy to distinguish from other members of its species.

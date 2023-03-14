@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7232
+Description: Subject 7232 is a male of the human species with unique facial characteristics, including spots on their face. Their eyes are VR jade LED, which can sometimes make them appear more robotic than human. Additionally, their head is not arranged in the usual green color, which may indicate a history of cosmetic experimentation or genetic modifications. Subject is often seen wearing a gold earring in their ear and smoking a cigarette as a form of stress relief.

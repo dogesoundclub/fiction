@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7399
+Description: Subject 7399 is a male tiger of indeterminate age. His height and weight are within normal limits for a large predator of his species. As a fast food worker, he wears a hoodie that obscures his features and normal glasses that he claims he needs to see. He also sports a two-color band on his forehead, marking him as a member of a local artistic community. When engaged in creative pursuits, he wears a normal gas mask, which he claims improves his focus and concentration.

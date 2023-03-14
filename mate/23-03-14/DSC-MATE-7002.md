@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7002
+Description: DSC-MATE-7002 is a human male, identified as a doctor by profession. His face is characterized by a frightened mouth, and his eyes resemble ski goggles. DSC-MATE-7002 is always seen wearing a bucket hat and a jade earring on each ear. His mouth is covered with a medical mask, and he wears a red scarf as an accessory.

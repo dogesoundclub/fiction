@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5968
+Description: 5968 is a female human believed to be in their mid-thirties, employed as a train driver for a local transport company. Their physical appearance is notable for several anomalous features, including spots scattered across their face and a purple lip. Their eyes are blue and resemble those of a clown, and they have a singular wing protruding from their light blonde hair. They also possess a single gold earring and wear a gold chain around their neck.

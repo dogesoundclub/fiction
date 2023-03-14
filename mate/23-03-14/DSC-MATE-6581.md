@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6581
+Description: Officer 6581 appears as a male human with normal blonde hair, wearing a green cross earring, gold chain, and a cigarette. Its most notable traits, however, are its red clown eyes and frightened mouth. Officer 6581 is known for caring and nurturing its surroundings, which it applies to objects such as its car, plants, and even household appliances.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4527
+Description: DSC-MATE-4527 is a male human, identified as a powerful Mafia boss operating within urban areas. Possessing distinctive facial features, including orange stripes on his cheeks, a perpetual smile, and red clown eyes, DSC-MATE-4527 is a unique and potentially dangerous individual. The subject's head is characterized by a peak spike, adding to his overall intimidating appearance. Accessories worn by DSC-MATE-4527 include a red scarf and normal gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-22
+Description: Item 22, also known as the "Real Estate Rabbit," manifests itself as a male Rabbit of an unknown species. Its most notable feature is its bright red Clown Eyes, due to a magical spell that was cast on it before its capture. Item 22 wears a customized Retro Cap, with two Color Bands on its forehead and Goggles placed on top.

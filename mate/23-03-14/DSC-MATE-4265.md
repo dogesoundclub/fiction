@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4265
+Description: DSC-MATE-4265 appears to be a human male of Italian descent, approximately 45 years old, with green, unarranged hair, and wears normal glasses. DSC-MATE-4265 is always seen wearing a distinctive red scarf looped around his neck. DSC-MATE-4265's powers and abilities are still unknown, but it is known that assigning him high-risk or morally questionable tasks are carried out with ease.

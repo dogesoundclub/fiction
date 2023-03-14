@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1869
+Description: DSC-MATE-1869 appears to be a middle-aged human male of average height and build, standing at 5'9" and weighing approximately 170lbs. He has a distinct mark on his mouth resembling a candy stick, which is likely linked to his habit of carrying one around with him as an accessory. DSC-MATE-1869 frequently exhibits behavior consistent with having a nervous disposition, with his mouth appearing frightened or anxious when faced with stressful situations.

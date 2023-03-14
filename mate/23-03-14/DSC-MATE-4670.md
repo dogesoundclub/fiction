@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4670
+Description: DSC-MATE-4670 is a human male approximately 30 years of age. It possesses orange stripes on its face and wears a red beanie on its head. DSC-MATE-4670's eyes are obscured by normal glasses, and it wears a jade earring. It is often seen wearing a gold chain and LED gas mask.

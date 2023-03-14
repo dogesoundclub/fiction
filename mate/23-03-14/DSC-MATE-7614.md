@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7614
+Description: Subject 7614 is a 57-year-old male of human origin, measuring approximately 185 cm in height and weighing approximately 85 kg. His most notable physical features include a red beanie, orange stripes on his face, and green cross earrings on his earlobes. Subject's eyes are concealed by ski goggles, and he is often seen wearing a gold chain around his neck and carrying a candy stick. 

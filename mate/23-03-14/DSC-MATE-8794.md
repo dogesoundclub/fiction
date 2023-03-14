@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8794
+Description: DSC-MATE-8794 is a human male police officer, standing at 1.9 meters with an athletic build. DSC-MATE-8794 has orange stripes on their face that are similar in appearance to those of a tiger, giving them an intimidating presence. However, this is offset by a perpetual smile on DSC-MATE-8794's face, making them appear very approachable. DSC-MATE-8794 always wears a red scarf around their neck and a jade earring in their left ear. DSC-MATE-8794 also carries a standard gas mask in case of anomalous gas exposure.

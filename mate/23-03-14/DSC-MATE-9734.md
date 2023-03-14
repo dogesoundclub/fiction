@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9734
+Description: DSC-MATE-9734 is a humanoid entity, designated as a female human. It has blue clown eyes, which appear to be cosmetic in nature. DSC-MATE-9734's head is orange in color, with two color bands on its forehead and a goggle on the forehead. DSC-MATE-9734's ears have green cross earrings, and it wears a silver chain as its accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8687
+Description: Item 8687 is a female human of average build and height. She has brown hair that appears to be from the 1990s and a green cross earring in each ear. Her most noticeable feature is the orange eyebrows and smile that she sports at all times. Item 8687 is always seen wearing a medical mask on duty, possibly due to allergies or sensitivity.

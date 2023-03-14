@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7157
+Description: DSC-MATE-7157 is a male Tiger, standing at 2 meters tall and weighing approximately 160 kilograms. It has a frightened mouth feature, with ski goggles as eyes, and a blue bandana on its head. DSC-MATE-7157 also has a golden earring in one of its ears, and is usually found wearing a gold chain around its neck. DSC-MATE-7157 is skilled at beautician tasks and has demonstrated a sensitive and nurturing personality, even towards inanimate objects. 

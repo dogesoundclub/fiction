@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4349
+Description: DSC-MATE-4349 is a male monkey, approximately 1.2 meters in height, with jade earrings and a gold chain around its neck. It is currently serving as a traffic officer in [REDACTED] City. 

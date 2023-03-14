@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4567
+Description: DSC-MATE-4567 is a human male with facial feature #1 consisting of orange stripes. The subject's eyes resemble ski goggles and his head has green hair in a purple cap. DSC-MATE-4567 wears a green-cross earring, a red scarf, and carries a candy stick as an accessory. The subject speaks fluent English and displays a friendly personality.

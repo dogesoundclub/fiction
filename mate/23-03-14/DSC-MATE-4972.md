@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4972
+Description: DSC-MATE-4972 is a humanoid female of average height and weight. DSC-MATE-4972 is a fashion designer by profession, and her wardrobe displays a notable sense of style and flair. DSC-MATE-4972's most prominent features are her bright red lips and blue clown eyes. DSC-MATE-4972's hair is styled in two pigtails, and she frequently wears a black choker around her neck.

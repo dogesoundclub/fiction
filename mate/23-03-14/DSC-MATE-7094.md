@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7094
+Description: DSC-MATE-7094 is a female human with distinctive spots on their skin. They are frequently seen wearing a bucket hat and a gold chain, along with a normal gas mask for protection. Their forehead has a unique two-color band marking, and their ears are adorned with green cross earrings.

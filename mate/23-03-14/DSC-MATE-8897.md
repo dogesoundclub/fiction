@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8897
+Description: DSC-MATE-8897 is a human male with nerd glasses and a bucket hat. The subject's forehead bears a two-color band, and they wear a green cross earring, a gold chain, and cigarette as accessories. Despite not presenting any obvious anomalous properties, DSC-MATE-8897 is highly attuned to the emotions of others and exhibits a remarkable ability to ease emotional tensions in individuals around them.

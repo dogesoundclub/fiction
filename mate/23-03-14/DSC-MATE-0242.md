@@ -1,0 +1,2 @@
+ID # : DSC-MATE-242
+Description: DSC-MATE-242 is a humanoid robot standing at approximately 1.8 meters tall. DSC-MATE-242's body is primarily made up of metallic and synthetic components, with a synthetic 'skin' layer covering its surface. The most distinctive feature of DSC-MATE-242 is its single green cyclops eye affixed to its face, as well as the horned rim glasses over its eyes.

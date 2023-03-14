@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3688
+Description: Dr. 3688 is a humanoid robotic machine, measuring 6ft in height and weighing approximately 500lbs. It is equipped with an advanced artificial intelligence system and highly sensitive sensory instruments. It has a singular green cyclops eye located in the center of its metallic face, which can swivel and adjust to focus on objects within its range of vision. Its mouth is often contorted into a frightened expression, even though robots are not supposed to be able to feel fear. Dr. 3688 prefers to wear normal glasses.

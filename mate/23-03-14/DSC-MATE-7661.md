@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7661
+Description: DSC-MATE-7661 is a male rabbit, approximately 30cm in height when standing upright. Its eyes are horned rim glasses, and it wears a Doge hat on its head. DSC-MATE-7661 has a 2 color band on its forehead and a jade earring on one ear. It also wears a gold chain and is frequently seen with a cigarette.

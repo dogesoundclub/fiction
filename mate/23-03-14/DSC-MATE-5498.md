@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5498
+Description: DSC-MATE-5498 is a human male with spots on his face and red clown eyes. His blonde hair is of normal length and style for a human male. DSC-MATE-5498 has a two-color band on his forehead, and a jade earring on each ear. He wears a gold chain and carries a candy stick as accessories at all times. DSC-MATE-5498 is a talented gift-giver, often observing and paying close attention to the details in his daily life. However, his desire to give the "perfect" gift can lead to extensive periods of agonizing and deliberation. 

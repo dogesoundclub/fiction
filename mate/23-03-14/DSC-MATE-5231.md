@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5231
+Description: Item 5231 is a robotic fast food worker, male in appearance, wielding VR Rainbow LED eyes and a signature red beanie. In addition to its standard uniform, it also wears a jade earring and a red scarf, along with a cigarette that it can self-light with internal heating elements.

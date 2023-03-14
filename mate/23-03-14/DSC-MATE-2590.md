@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2590
+Description: DSC-MATE-2590 is a female human of Ukrainian descent, approximately 28 years old. She stands at 1.67 meters and weighs 58 kilograms. DSC-MATE-2590 has distinctive facial features, including spots on her cheeks and a purple lip. Her hair is blonde and she wears an Ushanka hat.

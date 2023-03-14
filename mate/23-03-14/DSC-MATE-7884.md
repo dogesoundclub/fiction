@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7884
+Description: Subject 7884 appears as a female human with a striking appearance. They sport an orange striped pattern across their cheeks and a purple lip color. Their eyes are reminiscent of a clown, a chilling shade of red that seems to look into one's soul. Red cross earrings can be seen adorning the lobes of their ears.

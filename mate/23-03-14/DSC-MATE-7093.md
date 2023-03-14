@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7093
+Description: DSC-MATE-7093 is a male humanoid of average build, standing at 1.85 meters in height. It displays several unique physical features, including orange stripes on the cheeks, a frightened-looking mouth, and wears nerd glasses over its eyes. The head is purple in color and appears to be made of metal. DSC-MATE-7093 also has a gold earring through its left ear and a red scarf around its neck. Additionally, it consistently wears a medical mask over its mouth.

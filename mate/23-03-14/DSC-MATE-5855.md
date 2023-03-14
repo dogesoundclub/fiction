@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5855
+Description: Item 5855 appears to be a female human, in her early thirties with red lipstick and wearing a medical mask over her mouth. The subject's eyes consist of a VR Rainbow LED display while the forehead is adorned with a goggle. Item 5855's hairstyle resembles that of a 00s school girl, and she wears a pair of green cross earrings along with a silver chain.

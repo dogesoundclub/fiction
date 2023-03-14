@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3217
+Description: DSC-MATE-3217 appears to be a female of human descent, with spotted skin and bold red lips. They often wear a bucket hat on their head, with a two-color band on their forehead. They also wear a choker and normal gas mask as accessories. DSC-MATE-3217 appears to have normal eyesight, as they wear normal glasses.

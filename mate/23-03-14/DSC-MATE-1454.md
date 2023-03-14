@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1454
+Description: Subject 1454 is a male human of average height, with a frightened mouth as a distinguishing facial feature. The subject also wears normal glasses and a distinctive Doge hat atop his head, as well as a jade earring in each ear. In addition, the subject is known to adorn a silver chain around their neck and carry a candy stick as an accessory.

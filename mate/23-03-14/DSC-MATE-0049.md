@@ -1,0 +1,2 @@
+ID # : DSC-MATE-49
+Description: DSC-MATE-49 is a humanoid entity resembling a tiger with a height of approximately 2 meters. DSC-MATE-49 dresses in human clothing, typically wearing a white lab coat and horn-rimmed glasses over their feline face. DSC-MATE-49's head is covered in an unkempt green mane, and they typically have a two-colored band across their forehead and a goggle resting on top. They also wear a gold earring on each ear and carry a silver chain as an accessory. DSC-MATE-49 is often seen smoking a cigarette.

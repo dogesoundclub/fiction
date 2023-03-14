@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7883
+Description: DSC-MATE-7883 is a human male identified as a news anchor with unique facial features consisting of spots. DSC-MATE-7883’s eyes appear to be cyborg-like, emitting a rainbow LED when on-camera. DSC-MATE-7883 wears a short peak cap with a green cross earring and an LED gas mask as his primary accessories.

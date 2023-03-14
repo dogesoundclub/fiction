@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1608
+Description: DSC-MATE-1608 appears to be a male rabbit wearing a hoodie with jade green LED eyes. Its physical appearance resembles that of a common European rabbit (Oryctolagus cuniculus). However, upon further inspection, it has been revealed that DSC-MATE-1608’s hoodie is an extension of its physiology, and that the LED eyes are a mechanical enhancement capable of facilitating night vision and are sensitive to movement.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2677
+Description: Item #2677 is a male monkey of the genus Macaca, approximately 1.2 meters tall and weighing 34 kg. It possesses a pair of horned rim glasses over its eyes, and a two-color band on its forehead.

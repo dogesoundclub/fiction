@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5475
+Description: DSC-MATE-5475 appears to be a male news anchor of human-like proportions, with the exception of his singular green cyclops eye. DSC-MATE-5475's head is adorned with a blue bandana and a pair of virtual reality jade LED eyes. The forehead is adorned with a pair of goggles, and a red cross earring is present on both ears. DSC-MATE-5475 is frequently seen wearing a red scarf and smoking a cigarette.

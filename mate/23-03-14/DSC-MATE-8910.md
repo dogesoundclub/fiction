@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8910
+Description: DSC-MATE-8910, a humanoid male of the Homo sapiens species, is a journalist working for a local news organization. DSC-MATE-8910 possesses a distinguishing mouth spot and a perpetually smiling visage. They wear a pair of nerd glasses over their eyes and sport a blue bandana around their head. DSC-MATE-8910 typically accessorizes with a red scarf and an LED gas mask.

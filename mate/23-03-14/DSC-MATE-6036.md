@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6036
+Description: DSC-MATE-6036 is a male tiger with unusual facial features. Its mouth appears to be in a constant state of fear, and its eyes resemble those of a clown, blue in color and with overly exaggerated pupils. DSC-MATE-6036 also possesses a 2-color band across its forehead and a gold earring in each ear.

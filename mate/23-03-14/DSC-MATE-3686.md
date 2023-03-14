@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3686
+Description: Item 3686 is a robotic humanoid standing at approximately 6'3" in height. Its face is marked by a single, green cyclops eye and a constant frightened mouth. The entity sports green hair under a purple cap and a medical mask covering its mouth. Additionally, it wears a silver chain around its neck. 

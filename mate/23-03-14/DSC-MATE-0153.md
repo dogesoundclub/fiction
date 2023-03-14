@@ -1,0 +1,2 @@
+ID # : DSC-MATE-153
+Description: DSC-MATE-153 is a highly advanced robot designed to look and function like a human male. Its face features a frightened expression in its mouth and its eyes are equipped with VR jade LED technology. The head is outfitted with a headset containing LED lights, which often change colors based on DSC-MATE-153's emotional state. 

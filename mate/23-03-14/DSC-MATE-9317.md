@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9317
+Description: DSC-MATE-9317 is a female human with a unique appearance. Their face has distinct spots and a purple lip, along with blue clown eyes that emit an unnerving energy. DSC-MATE-9317's head is green with edge curls, and they wear a jade earring in each ear. They are often seen wearing a choker as their primary accessory. 

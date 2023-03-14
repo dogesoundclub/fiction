@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5364
+Description: Officer 5364 is a robot police officer that resembles a male human. He stands at approximately 6 feet tall and has a retro cap on his head. His face features a frightened mouth and he wears normal glasses over his eyes. Officer 5364 also wears a gold earring and a red scarf around his neck. When going into high-risk situations, Officer 5364 will don a normal gas mask over his face.

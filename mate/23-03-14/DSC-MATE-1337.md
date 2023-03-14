@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1337
+Description: DSC-MATE-1337 is a male tiger with a frightened mouth as its prominent facial feature. It wears nerd glasses and a gold earring on its left ear. It also sports a silver chain as an accessory. DSC-MATE-1337's body is covered in black and orange striped fur, and it stands upright on its hind legs with a height of approximately 6 feet.

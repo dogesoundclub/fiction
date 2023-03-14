@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1344
+Description: DSC-MATE-1344 appears to be a young human female with a laid-back and easy-going demeanor. They stand at a height of 5'10" and weigh approximately 154 lbs. DSC-MATE-1344's most notable feature is their green hair with Edge Curl and a smile that is often seen on their face.

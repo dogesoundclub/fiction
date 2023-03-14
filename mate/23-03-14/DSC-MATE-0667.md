@@ -1,0 +1,2 @@
+ID # : DSC-MATE-667
+Description: Subject 667 is a male monkey with red clown eyes and a frightened mouth. It wears a goggle on its forehead and sports a jade earring on one of its ears. The subject is often seen smoking a cigarette, much to the amusement of those around it.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9814
+Description: DSC-MATE-9814 is a female human with a distinct appearance. She has purple lips and eyes that appear as VR Rainbow LED. Her head appears to be that of an early 2000s schoolgirl with a goggle on her forehead. She is often observed wearing a silver chain and a green cross earring.

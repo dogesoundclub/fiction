@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7624
+Description: DSC-MATE-7624 is a male tiger, physically appearing in good health and standing at 3 meters tall. DSC-MATE-7624 has several features that set it apart from ordinary tigers, including ski goggle eyes and its head disguised with a hoodie. DSC-MATE-7624 has exhibited highly unusual behavior for a feline, possessing a talent for repairing and improving machinery in unconventional ways, leading to the assumption that he must have been familiar with some form of technology before gaining sentience.

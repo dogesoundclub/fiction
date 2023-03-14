@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5420
+Description: DSC-MATE-5420 is a female human with unique facial features. Their lips are a deep shade of purple, and they have blue clown eyes that contrast with their rainbow-colored hairstyle. DSC-MATE-5420 wears a green cross earring and a choker as accessories, and is often seen with a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6800
+Description: DSC-MATE-6800 is a male human with a distinctive mouth spot and VR Rainbow LED eyes. It wears a purple cap with a headset and a green cross earring on its right ear. DSC-MATE-6800 also adorns itself with a red scarf and a normal gas mask.

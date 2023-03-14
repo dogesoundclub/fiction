@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7617
+Description: Item 7617 is a male monkey of an unknown species, with a height of 1.2 meters and a weight of approximately 45 kilograms. Its eyes are concealed by a pair of shade glasses, and it has normal black hair. Item 7617 is often seen wearing a red scarf and carrying a candy stick, which it uses as a weapon.

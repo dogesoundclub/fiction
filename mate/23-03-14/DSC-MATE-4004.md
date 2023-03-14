@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4004
+Description: DSC-MATE-4004 was a robotic traffic officer employed by the Los Angeles Police Department, measuring roughly 1.83 meters tall and weighing approximately 176 kilograms. DSC-MATE-4004 bore a single green Cycloptic eye, which appeared to be the only source of visual input for the entity. Its mouth, though mechanically designed to simulate conventional human speech, expressed a permanent frightened expression.

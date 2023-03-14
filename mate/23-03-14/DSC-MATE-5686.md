@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5686
+Description: Officer 5686 appears to be a human female, with blue clown eyes and pink rabbit hair. She is adorned with a silver chain and a jade earring, highlighting her unique, spotted facial features and bright red lips. While her appearance may draw attention, Officer 5686's true strength lies in her uncanny ability to sense and effectively manage the emotions of others.

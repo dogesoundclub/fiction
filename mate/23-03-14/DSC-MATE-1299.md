@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1299
+Description: DSC-MATE-1299 is a male human of indeterminate age and ethnicity, measuring 173 centimeters in height and weighing 75 kilograms. DSC-MATE-1299 has multiple dark spots on their face and a permanent smile on its lips. DSC-MATE-1299's eyes are replaced with VR Rainbow LED screens while his ears are adorned with a double cross earring. DSC-MATE-1299 is always seen wearing a medical mask covering its mouth and a red scarf around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1965
+Description: DSC-MATE-1965 is a humanoid male specimen who appears to be in his late 20s. DSC-MATE-1965's physical attributes are relatively average except for his face, which features bright orange stripes that run down his cheeks to his jaw. DSC-MATE-1965 also wears a large yellow and white Doge hat and medical mask over his mouth.

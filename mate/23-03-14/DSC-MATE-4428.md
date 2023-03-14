@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4428
+Description: DSC-MATE-4428 is a Homo sapien male of African descent, standing at 6 feet 7 inches tall. DSC-MATE-4428's face is adorned with orange stripes and has a clown mouth, with red clown eyes. DSC-MATE-4428's head is accented with multiple green layers, and jade earrings are visible at its ears. DSC-MATE-4428 wears a red scarf and holds a cigarette as an accessory.

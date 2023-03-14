@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1065
+Description: Subject 1065 is a male human with spotted face features. Their eyes are in the style of ski goggles, and their head appears to be a shade of green that is not arranged in any particular pattern. Subject's ears are adorned with a jade earring, and they wear a silver chain around their neck. The most striking feature of Subject 1065 is their LED gas mask, which they wear on duty.

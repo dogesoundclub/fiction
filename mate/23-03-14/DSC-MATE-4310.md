@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4310
+Description: DSC-MATE-4310 is a human male with a number of distinct features. DSC-MATE-4310's face is marked by numerous spots or freckles, which contrast with a broad smile. Its eyes are distinctly abnormal, with irises that are bright blue and exhibit an irregular pattern of lines and shapes that resemble clown makeup. DSC-MATE-4310's hair is covered by a purple cap with a headset attached. The cap also has a two-color band that goes around the front. Its ears are pierced with a jade earring, and it wears a silver chain as an accessory.

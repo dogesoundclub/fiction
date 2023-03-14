@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9683
+Description: Subject 9683 appears to be a male humanoid of the Homo sapiens species. Their most notable physical characteristics include a spot on their mouth and red clown eyes, which have been surgically implanted. Subject 9683 prefers to wear a hoodie and accessorizes with a silver chain and an LED gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3711
+Description: DSC-MATE-3711 is a humanoid entity, appearing to be a middle-aged male with spots on their face and a frightened mouth. DSC-MATE-3711 possesses a unique set of VR Jade LED eyes and a police cap on its head. Its ears are adorned with a jade earring, and it wears a silver chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9289
+Description: DSC-MATE-9289 is a 4-foot-tall rabbit humanoid entity that resembles a male person in a bucket hat with noticeable golden earring and a gold chain. DSC-MATE-9289's most identifiable feature is its frightened mouth, which it has constantly, no matter the situation. It is always accompanied by an LED gas mask, which it claims to need for breathing purposes, but its efficiency is still being tested.

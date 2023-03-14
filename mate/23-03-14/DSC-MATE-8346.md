@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8346
+Description: 8346 appears to be a humanoid rabbit, standing at approximately five feet tall. The subject's most striking feature is its normal glasses, which it wears over its bright blue eyes. Its head is typically covered with a hooded sweatshirt, which conceals velvety rabbit ears. The subject is known for wearing a gold chain, which it wraps around its paw, and carrying a whistle. The subjects' nurturing personality often leads them to care for other humanoid creatures as if they were family, with humorous results.

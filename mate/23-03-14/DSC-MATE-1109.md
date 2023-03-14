@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1109
+Description: DSC-MATE-1109 is a human female of average height, with blue clown eyes and spots on their face. Their most notable features, however, are the pink rabbit head and green cross earring they possess. DSC-MATE-1109 also wears a silver chain and is frequently seen smoking a cigarette.

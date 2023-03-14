@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1900
+Description: Item 1900 appears to be a robotic humanoid figure with a green Cyclops eye and a frightened mouth. It also wears horned rim glasses and a short peak cap along with a red scarf and a normal gas mask. The robot identifies as male and works as a security guard within the facility.

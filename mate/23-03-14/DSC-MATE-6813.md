@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6813
+Description: DSC-MATE-6813 appears to be an average looking human male, standing at approximately six feet tall. They can usually be identified by their bright blue clown eyes and red beanie. DSC-MATE-6813 also wears a green cross earring, a gold chain, and can often be seen with a lit cigarette. DSC-MATE-6813's most notable feature is their infectious smile, which seems to put those around them at ease.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5727
+Description: 5727 is a male news anchor robot with a green cyclops eye as its main feature, and has been observed to wear normal glasses to appear more approachable. Its head is arranged in a non-humanoid fashion and it boasts a gold earring in its ear. The robot is also frequently seen with a red scarf and a whistle.

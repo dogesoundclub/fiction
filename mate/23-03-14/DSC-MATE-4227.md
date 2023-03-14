@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4227
+Description: DSC-MATE-4227 is a male Bengal tiger that exhibits anthropomorphic characteristics. DSC-MATE-4227 stands at 2.5 meters tall and weighs approximately 480 kg. DSC-MATE-4227 is bipedal and is capable of manipulating objects with its paws, which resemble large human hands. Its eyes are protected by ski goggles, and DSC-MATE-4227 regularly wears a medical mask over its mouth as a precautionary measure.

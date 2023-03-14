@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1230
+Description: DSC-MATE-1230 is a male monkey with ski goggle eyes. The species of the monkey is unknown, but it exhibits humanoid characteristics such as the ability to speak English and use human tools. DSC-MATE-1230 is a real estate agent by trade and operates as such in the outside world.

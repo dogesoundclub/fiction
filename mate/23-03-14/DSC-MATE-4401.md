@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4401
+Description: Subject 4401 is a humanoid female of the species Homo sapiens. The subject is 5'6" and has distinctive facial features, including purple lips and green-edged curls. The subject's green skin and cross earrings are abnormal, yet appear natural for the subject. Subject carries a gas mask as part of fashion choice, but often uses it to protect themselves from any potentially dangerous chemicals.

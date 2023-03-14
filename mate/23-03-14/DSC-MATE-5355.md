@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5355
+Description: DSC-MATE-5355 is a male human identified as a programmer by profession. He is often seen wearing a purple cap with a headset and a red victory band on his forehead. DSC-MATE-5355 has gold earring on both ears and a medical mask covering his mouth.

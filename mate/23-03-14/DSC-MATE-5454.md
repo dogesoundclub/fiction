@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5454
+Description: DSC-MATE-5454 is a male robot, resembling that of a car salesman. However, the robot possesses several unique features including a green cyclops eye, a bucket hat, and a jade earring. DSC-MATE-5454 is often seen wearing a red scarf and a normal gas mask, which is believed to be for protection.

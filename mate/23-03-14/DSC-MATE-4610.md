@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4610
+Description: Identification number 4610 is a female human with distinct spots on her face, giving her a unique appearance. What sets her apart, however, are her cybernetic enhancements. Her eyes are replaced with VR rainbow LED, and she has a metal blue head that houses various technological features. She also wears a gas mask equipped with LED lights, and a silver chain as an accessory. A pair of goggles rests on her forehead, which she often dons while on duty.

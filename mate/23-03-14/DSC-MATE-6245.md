@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6245
+Description: Subject 6245 is a tiger-man mechanic, with blue clown eyes and a dashing hoodie covering his feline features. As a mechanic, subject displays a high level of skill and ingenuity, tackling any task that comes his way with enthusiasm and expertise. However, subject is also known to take risks, often embarking on adventures that could land him in nearly fatal situations.

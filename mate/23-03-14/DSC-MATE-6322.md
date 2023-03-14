@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6322
+Description: DSC-MATE-6322 is a humanoid robot of unknown origin, standing at approximately 1.8 meters tall. Despite its mechanical appearance, DSC-MATE-6322 possesses several human-like features including a frightened mouth and normal glasses for eyes. Its head is adorned with green hair in a purple cap, and it has a red cross earring in one ear. DSC-MATE-6322 regularly wears a normal gas mask as an accessory.

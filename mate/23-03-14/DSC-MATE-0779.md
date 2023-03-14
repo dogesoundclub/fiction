@@ -1,0 +1,2 @@
+ID # : DSC-MATE-779
+Description: Subject 779 is a male human believed to be in his early thirties. Subject 779 has blue clown eyes and a spot on his mouth. He is often seen wearing a blue bandana on his head and wearing a pair of goggles on his forehead. Subject 779 sometimes wears a jade earring on his right ear, and he is often seen wearing a red scarf.

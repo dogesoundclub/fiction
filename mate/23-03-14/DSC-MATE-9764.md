@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9764
+Description: DSC-MATE-9764 is a human female with red clown eyes, wearing a metal blue headpiece, a choker, and consistently smoking a cigarette. They work as a fast food worker at a local restaurant in [REDACTED], often seen smiling enthusiastically while serving customers. The subject's personality is described as strong-willed and decisive. DSC-MATE-9764 appears to be in their late twenties and stands at a height of 1.7 meters.

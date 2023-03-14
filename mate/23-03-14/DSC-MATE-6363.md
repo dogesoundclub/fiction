@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6363
+Description: DSC-MATE-6363 is a humanoid entity, resembling a human female with notable rabbit features. DSC-MATE-6363 stands at approximately 5'7" and weighs around 120lbs. Notable features include purple lips, VR jade LED eyes, a rabbit's head, gold earrings on each ear, and a silver chain. DSC-MATE-6363 has a goggle attached to the forehead as well.

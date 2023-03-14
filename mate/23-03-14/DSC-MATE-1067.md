@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1067
+Description: DSC-MATE-1067 appears to be a human male with orange stripes on his face and a frightened mouth. He wears normal glasses and a purple cap with a headset, along with a red scarf and a gold earring. His forehead features a two-color band and goggles. DSC-MATE-1067's personality is characterized by extreme caring and nurturing tendencies, which sometimes extend to inanimate objects.

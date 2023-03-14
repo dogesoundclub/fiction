@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3244
+Description: 3244 is a human male of average height and build, with blue clown eyes and a distinctive mouth spot. Their head is shaven except for a monk's topknot, and they are often observed wearing a gold earring in one ear. 

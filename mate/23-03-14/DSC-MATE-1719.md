@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1719
+Description: Subject 1719 is a human female standing at 5’4”. She has spots on her skin, which have been diagnosed with vitiligo. She wears a purple cap on her head and has green hair. A pair of goggles are usually worn on her forehead. She also wears a jade earring on the left ear and a choker around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9708
+Description: DSC-MATE-9708 is a male monkey characterized by a frightened mouth and black hair. DSC-MATE-9708 has a pair of goggles on its forehead and a gold earring on each ear. DSC-MATE-9708 behavior has shown unusual practical and hands-on abilities, leading to repairs of broken objects using unconventional methods, such as duct tape or paper clips. DSC-MATE-9708 has identified itself as a "banker," although it is unclear how it acquired this identification.

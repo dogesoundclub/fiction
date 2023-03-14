@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4777
+Description: DSC-MATE-4777 is a male Golden Lion Tamarin monkey specimen, standing at approximately 30 centimeters tall and weighing approximately 400 grams. DSC-MATE-4777 is notable for its blue clown eyes, red beanie on its head, and jade earring on its right ear. DSC-MATE-4777 also sports a two-color band on its forehead and a gold chain around its neck.

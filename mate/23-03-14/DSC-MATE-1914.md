@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1914
+Description: DSC-MATE-1914 is a male fashion designer robot with an appearance in line with current fashion trends. DSC-MATE-1914's most prominent feature is a single green cyclops eye located in the center of the forehead. DSC-MATE-1914 wears normal glasses over his eyes, a short peak cap on the head, and a goggle on the forehead. Additionally, DSC-MATE-1914 has red cross earrings on the ears, a gold chain around the neck, and is often seen with a cigarette in his mouth.

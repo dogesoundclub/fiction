@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1653
+Description: Item #1653 is a male rabbit approximately 0.45 meters in height. The subject has red clown eyes and wears a hoodie with a red victory band on the forehead. The rabbit is frequently seen with a silver chain hanging around the neck and holding a cigarette between its lips. 

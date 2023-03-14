@@ -1,0 +1,2 @@
+ID # : DSC-MATE-528
+Description: Identification number 528, also known as the villain, is a human male of average height with distinctive orange stripes on his face feature #1. His eyes are Ski Goggle, his head is Mens Normal Blonde, and he has a gold earring on one ear and a gold chain around his neck. He is usually seen holding a candy stick as an accessory #2.

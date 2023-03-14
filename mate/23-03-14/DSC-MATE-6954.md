@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6954
+Description: DSC-MATE-6954 appears to be a female humanoid of average build, standing at approximately 5'5" in height. Her most noticeable features are orange stripes on her cheeks, a bucket hat on her head, and red cross earrings she wears on her ears. She always wears a medical mask over her mouth and a choker around her neck. The most unusual feature she has is a pair of goggles worn around her forehead.

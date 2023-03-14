@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2047
+Description: DSC-MATE-2047 is a male human, standing at 183 cm tall and weighing approximately 80kg. DSC-MATE-2047's facial feature #1 consists of orange stripes, which appear to be natural and not due to any form of pigmentation or makeup. DSC-MATE-2047 is often observed wearing a purple cap with a headset, along with red victory band on its forehead and nerd glasses on its eyes.

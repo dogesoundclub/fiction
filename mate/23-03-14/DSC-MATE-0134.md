@@ -1,0 +1,2 @@
+ID # : DSC-MATE-134
+Description: DSC-MATE-134, also known as "Tigerman," is a male tiger who has taken on humanoid characteristics. DSC-MATE-134 has human-like eyes with a unique feature - their pupils are jade LED's that resemble the appearance of virtual reality headsets. DSC-MATE-134's head is adorned with a blue bandana and a silver chain around their neck. They wear a medical mask over their face, despite being a non-human entity, giving DSC-MATE-134 an unnerving appearance. 

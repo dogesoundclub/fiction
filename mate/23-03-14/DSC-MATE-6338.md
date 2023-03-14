@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6338
+Description: DSC-MATE-6338 is a male human with blue clown eyes and a metal purple head, with a frightened mouth as its distinguishing facial feature. Its ears are adorned with a gold earring, and it is often seen wearing a gold chain and carrying a candy stick as accessories. DSC-MATE-6338's personality is characterized by its logical and analytical nature, and it is known for its enjoyment of arguing or debating with others.

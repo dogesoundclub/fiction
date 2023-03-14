@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9946
+Description: DSC-MATE-9946 is a male rabbit of average height, weighing 2.5 kg. It resembles a common European rabbit (Oryctolagus cuniculus). DSC-MATE-9946 has a frightened expression on its face, and its mouth is always slightly agape. It wears a pair of normal glasses over its eyes and a red scarf around its neck. Its forehead has a two-color band.

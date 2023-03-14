@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2293
+Description: DSC-MATE-2293 is a male rabbit of the Lepus genus, standing at 1.5 meters in height. It has a pair of thick-rimmed nerd glasses that it habitually wears. Its fur is predominantly brown in color, with white fur accents on its face, chest, and paws.

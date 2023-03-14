@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5134
+Description: Subject 5134 is a humanoid creature commonly identified as a politician. Despite possessing a human appearance, 5134 is considered to be anomalous due to its unique facial and cranial features. 5134 has a distinct mouth spot on its face, and its frightened mouth adds to its overall unsettling appearance. Its clown-like red eyes only serve to heighten its otherworldly nature.

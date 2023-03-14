@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5164
+Description: DSC-MATE-5164 appears to be a human male in his mid-twenties, with a frightened mouth and normal glasses. DSC-MATE-5164 typically wears a blue bandana on his head, a jade earring in his ear, a gold chain around his neck, and an LED gas mask as an accessory. Despite the unusual appearance, DSC-MATE-5164 appears to be capable of functioning in society unnoticed.

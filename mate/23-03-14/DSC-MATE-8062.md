@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8062
+Description: DSC-MATE-8062 is a female human, identified by the Foundation as a trained Lawyer. She displays facial features that are not typical of a human. These include bright orange stripes on her cheeks, a permanent smile, and orange eyebrows. DSC-MATE-8062 also has green hair, which she often wears in a purple cap. One of her ears has a gold earring, and she wears a silver chain as an accessory.

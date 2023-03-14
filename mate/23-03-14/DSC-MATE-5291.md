@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5291
+Description: DSC-MATE-5291 is a human male of unknown age, possessing a unique set of physical features. DSC-MATE-5291’s mouth contains a distinct spot, which appears to be a genetic anomaly. The subject’s eyes have been surgically replaced with virtual reality rainbow LED orbs, which can change color and brightness at will. DSC-MATE-5291 often wears a police cap atop their head, with a gold earring and silver chain adorning their ears and neck respectively. The subject is frequently seen smoking cigarettes.

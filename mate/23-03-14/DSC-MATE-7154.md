@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7154
+Description: DSC-MATE-7154 is a humanoid entity, anatomically resembling a rabbit, measuring approximately 1 meter in height. DSC-MATE-7154's fur is brown in color, and it is often seen wearing a bucket hat on its head with a pair of goggles on its forehead. Its ears are decorated with a jade earring and a gold chain around its neck.

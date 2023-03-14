@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8981
+Description: DSC-MATE-8981 is a male monkey of unknown origin, standing at 3 ft tall. DSC-MATE-8981's most notable features include a red beanie on its head, a pair of nerd glasses over its eyes, and a pair of goggles resting on its forehead. DSC-MATE-8981 also has a gold earring in its left ear and is often seen with a candy stick in its hand.

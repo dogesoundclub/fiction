@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6968
+Description: Agent 6968 is a human male with distinctive spots on his face. His mouth appears to be in a perpetually frightened expression. Agent 6968's glasses appear to be normal, however, they may have anomalous properties that require further study. He is often seen wearing a blue bandana and a jade earring in his ears. Agent 6968 also wears a silver chain as an accessory.

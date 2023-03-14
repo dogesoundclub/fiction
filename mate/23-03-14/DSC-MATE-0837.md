@@ -1,0 +1,2 @@
+ID # : DSC-MATE-837
+Description: DSC-MATE-837 is a human male with striking orange stripes on his face and a perpetual smile. His eyes are red and resemble clown eyes. He possesses typical human physical features, with blond hair and distinctive green cross earrings on his ears. DSC-MATE-837 is often seen wearing a silver chain around his neck.

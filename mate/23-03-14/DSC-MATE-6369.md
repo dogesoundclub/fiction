@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6369
+Description: DSC-MATE-6369 appears to be a human male theater manager. However, it possesses several anomalous features, including VR Jade LED eyes and a frightened mouth. Its head is adorned with a Doge hat and a green cross earring. It is also frequently seen wearing a silver chain and carrying a candy stick.

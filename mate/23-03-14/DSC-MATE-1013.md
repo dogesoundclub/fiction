@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1013
+Description: Item 1013 is a sentient robot identified as a male with a single green cyclops eye located on the forehead, which is always activated. The robot is equipped with rainbow VR LED eyes, a short peak cap on its head, and a red cross earring on its right ear. Additionally, It wears a red scarf as an accessory and smokes a cigarette. 

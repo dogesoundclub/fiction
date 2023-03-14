@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2948
+Description: 2948 is a male tiger of the Siberian subspecies, possessing the distinctive orange fur with black stripes. Its eyes are replaced with ski goggles, and its head is adorned with a Doge hat. One of its ears hosts a red cross earring, while the other is missing.

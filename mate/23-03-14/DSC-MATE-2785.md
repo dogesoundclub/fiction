@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2785
+Description: Subject 2785 appears to be a human of male gender, with several noticeable physical features. He has spots on his face, and a clown mouth that seems to be constantly smiling. His eyes are a bright red, giving off an unsettling impression upon first glance. He wears a hoodie over his head, concealing most of his hair and further emphasizing his unique features.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1932
+Description: Subject 1932 is a human female who has undergone significant anatomical changes, resulting in the appearance of orange stripes on her skin. Eyes are uniform red in colour and have a similar appearance to that of a clown's. She is often seen wearing a bucket hat, along with a gas mask and goggles. One of the few distinguishing physical features of this individual is the gold earring that she wears as well as a thick gold chain.

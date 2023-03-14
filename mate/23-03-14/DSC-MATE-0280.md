@@ -1,0 +1,2 @@
+ID # : DSC-MATE-280
+Description: Subject 280 appears to be a female human of unknown age, with distinctive spots on her face and an ever-present edgy, green hairstyle. The subject may be recognized by her wide smile and peculiar goggles perched on her forehead. The eyes are obscured by normal glasses, preventing any ocular abnormalities. A two-color band on her forehead is clearly visible, though its purpose is unknown.

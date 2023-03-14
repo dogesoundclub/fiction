@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1889
+Description: DSC-MATE-1889 appears to be a male human, approximately 28 years old, with green hair and a purple cap. DSC-MATE-1889 has spots on its face and a frightened mouth, as well as red clown eyes that are always visible. DSC-MATE-1889 also wears a green cross earring and a pair of goggles on its forehead.

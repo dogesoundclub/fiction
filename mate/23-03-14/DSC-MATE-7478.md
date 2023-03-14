@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7478
+Description: DSC-MATE-7478 is a male rabbit of the species Oryctolagus cuniculus, standing approximately 17.78 cm in height and weighing 2.6 kg. DSC-MATE-7478’s primary identifying characteristics are ski-goggle eyes, a red beanie on its head, a red scarf, and a candy cane.

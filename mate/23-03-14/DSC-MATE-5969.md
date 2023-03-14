@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5969
+Description: 5969, a Caucasian male with blonde hair and green cross earring, appears to be in his early thirties, and stands at 5'10". His most notable feature is his continually frightened-looking mouth, which he maintains irrespective of his emotional state. The reason for this trait is unclear, and it has remained unchanged since his admission to the Foundation. 

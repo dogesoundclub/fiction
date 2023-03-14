@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2208
+Description: Subject 2208 is a female human of unknown age, possessing distinctive orange stripes on her face and purple lips. Her eyes are a vibrant shade of orange, with matching eyebrows. She is typically seen wearing a bucket hat and a jade earring.

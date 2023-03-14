@@ -1,0 +1,2 @@
+ID # : DSC-MATE-522
+Description: DSC-MATE-522 is a male human with blonde hair and distinctive spots on his face. DSC-MATE-522 is known for donning a pair of normal glasses, a jade earring in one ear, as well as a silver chain necklace. DSC-MATE-522 is often seen smoking a cigarette.

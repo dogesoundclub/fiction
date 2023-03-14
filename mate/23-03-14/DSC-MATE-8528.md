@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8528
+Description: DSC-MATE-8528 is a male human of approximately 27 years of age. DSC-MATE-8528 has a distinct appearance, including orange stripes and blue clown eyes. DSC-MATE-8528 often wears a Doge hat, a red victory band on the forehead, a green cross earring, and a medical mask over the mouth, along with a gold chain accessory.

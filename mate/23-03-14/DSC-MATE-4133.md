@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4133
+Description: DSC-MATE-4133 appears to be a human male in his late 40s, standing at approximately 6'3" in height. The entity displays notable physical abnormalities, notably a set of orange stripes on his face and a police cap atop his head. The subject's eyes are covered by what appears to be a pair of ski goggles, and a gold earring is present in his left ear. DSC-MATE-4133 typically wears a gold chain and an LED gas mask, which seems to serve no discernible purpose but may be related to his occupation as a lawyer.

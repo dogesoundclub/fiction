@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9727
+Description: 9727 is a humanoid robot, standing six feet tall with a red alarm for a head. Its most noticeable feature is its single green cyclops eye, which is constantly scanning its environment. It also wears a pair of nerd glasses over its eye, and has a red cross earring on its left ear. 9727 carries a whistle with it at all times, which it uses to draw attention to itself.

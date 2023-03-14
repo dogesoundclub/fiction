@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1609
+Description: DSC-MATE-1609 is a female human of unknown age, standing at 168 cm in height and weighing approximately 61 kg. The subject's appearance is striking, with orange stripes on her face being the most notable feature. DSC-MATE-1609's blue clown eyes evoke an unsettling perception of the subject's emotional state, often deemed as unnerving. The subject's hair is styled into two pig tails, and a set of goggles rests on her forehead. Additionally, DSC-MATE-1609 has green cross earrings and a gold chain as accessories.

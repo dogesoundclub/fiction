@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8193
+Description: Item 8193 is a male Bengal tiger with a blue and white coat. The subject has a large victory band on its forehead, and wears a jade earring in one of its ears. On its neck, there is a gold chain with an unknown purpose.

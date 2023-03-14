@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7122
+Description: DSC-MATE-7122 is a male Rabbit approximately 1 meter in height. It displays a frightened mouth and often carries an LED gas mask and red scarf. DSC-MATE-7122's head is not arranged green and possesses a goggle on its forehead.

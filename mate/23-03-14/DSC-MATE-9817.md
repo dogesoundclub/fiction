@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9817
+Description: 9817 is a male rabbit of the cybernetic class. It has gained sentience and intelligence through an unknown source of radiation. 9817 wears a red scarf and a jade earring on both ears. It has a pair of VR Jade LED eyes, which function as an interface to analyze its surroundings. Additionally, 9817 possesses a frightened mouth; it reflects its empathetic body language and state of mind.

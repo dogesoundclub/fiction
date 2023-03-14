@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9709
+Description: Item 9709 is a male rabbit of an unknown species that stands approximately 1 meter tall when upright on its hind legs. The subject is recognizable by its bright red clown eyes, which emit a constant glow in low-light conditions. Item 9709 is often seen wearing a blue bandana with a goggle on its forehead and a silver chain around its neck. The subject also has a jade earring on its left ear. It identifies itself as a real estate agent, but its actual abilities or occupation are unknown.

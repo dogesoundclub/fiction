@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2543
+Description: DSC-MATE-2543 appears to be a human male of average height, with a distinctive mark on his mouth resembling a spot. DSC-MATE-2543 always wears a blue bandana over his head and a medical mask that covers his mouth, likely for reasons related to the containment of his anomalous traits. DSC-MATE-2543's most notable feature are its red clown eyes, a physical trait seemingly unconnected to DSC-MATE-2543's occupation or any physical ailment.

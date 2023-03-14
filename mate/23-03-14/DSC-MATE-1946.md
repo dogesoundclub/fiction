@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1946
+Description: Subject 1946 is a male rabbit whose fur is a bright orange color. Its head is adorned with green hair and a purple cap, with a pair of goggles always worn on its forehead. The rabbit's ears are notable for the jade earrings it always wears. It also accessorizes with a red scarf.

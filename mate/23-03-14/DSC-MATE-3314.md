@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3314
+Description: DSC-MATE-3314, also known as "the Theater Manager," is a humanoid entity appearing to be a female of the human species with spots all over the face and a permanent smile. The subject’s hair is blonde with an abnormal wing on the head, and the eyes are orange with an eyebrow similarly colored. DSC-MATE-3314 wears a golden earring and a choker, often accompanied by a medical mask covering the mouth.

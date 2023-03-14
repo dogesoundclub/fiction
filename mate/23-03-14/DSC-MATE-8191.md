@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8191
+Description: DSC-MATE-8191 is a male capuchin monkey, approximately 5 years of age. They are 60 cm tall and weigh 2.5 kg. DSC-MATE-8191 exhibits blue clown eyes, with a goggle on their forehead designed to protect their eyes from any potentially harmful stimuli. DSC-MATE-8191 is commonly seen in a police cap fitted with a jade earring and a red scarf around their neck. Further observations indicate that DSC-MATE-8191 carries candy sticks in their pocket at all times.

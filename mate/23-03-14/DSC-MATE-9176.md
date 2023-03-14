@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9176
+Description: DSC-MATE-9176 is a male tiger that has taken on the appearance of a human electrician. The subject's eyes are adorned with nerd glasses and a bucket hat is worn on the head. DSC-MATE-9176 wears a medical mask over its mouth and a red scarf is often seen around the neck. The forehead features a two-color band, and a red cross earring is worn on each ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8831
+Description: DSC-MATE-8831 is a female humanoid standing at 168 cm in height and weighing approximately 60 kg. DSC-MATE-8831 has orange-colored hair on the sides of her head, with two color bands running across her forehead. DSC-MATE-8831 also has spots on her face, a red lip, and a silver chain around her neck. Additionally, DSC-MATE-8831 wears a medical mask over her mouth and jade earrings on her ears.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5943
+Description: DSC-MATE-5943 is a male rabbit of the species Oryctolagus cuniculus. It stands approximately 30cm tall, and weighs approximately 1.5kg. DSC-MATE-5943 possesses distinctive features, including a frightened mouth, nerd glasses for eyes, and a head of unarranged green fur. Its ears are adorned with a jade earring, and it wears a red scarf for an accessory.

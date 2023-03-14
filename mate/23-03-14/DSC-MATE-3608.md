@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3608
+Description: DSC-MATE-3608 is a male human with the physical appearance of a farmer, wearing a distinctive "Doge" hat and adorned with accessories such as a silver chain, green cross earring, and VR rainbow LED eyes. DSC-MATE-3608's defining feature is its ever-present medical mask, worn at all times and appearing to alter in color and pattern on occasion.

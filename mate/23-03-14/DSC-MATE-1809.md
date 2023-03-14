@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1809
+Description: Item #1809 appears to be a human male in his mid-30s with a heavily spotted complexion. It possesses red clown eyes that are assumed to be a result of an unknown anomaly as there has been no known cases of this in the human population. The subject also wears a jade earring in its right ear and a gold chain around its neck. Item #1809 can often be observed with a cigarette in hand.

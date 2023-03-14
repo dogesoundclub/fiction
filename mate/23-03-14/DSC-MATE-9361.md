@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9361
+Description: DSC-MATE-9361 is a humanoid robot resembling a male banker. It stands at 6 feet tall and weighs approximately 200 pounds. DSC-MATE-9361's most notable feature is its single green cyclops eye, made of an unknown material, which is capable of various vision modes. DSC-MATE-9361 possesses VR rainbow LED eyes, a red beanie on its head, gold earrings on its ears, a silver chain around its neck, and a whistle. The purpose of these accessories is currently unknown.

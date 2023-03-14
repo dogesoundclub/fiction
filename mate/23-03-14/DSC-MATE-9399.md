@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9399
+Description: DSC-MATE-9399 appears to be a male monkey, standing at 5'5" and weighing approximately 120 pounds. Its most striking feature is its red clown eyes, which appear to have no pupils or iris. DSC-MATE-9399 is often seen wearing a hooded sweatshirt and a gold chain around its neck. It also carries a candy stick for personal enjoyment.

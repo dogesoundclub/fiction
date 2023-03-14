@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5909
+Description: Item 5909 appears to be a male human with noticeable spots on its face. Its eyes are always covered with a pair of Nerd Glasses. Its head is adorned with an unusual combination of green hair in a purple cap, along with a red Victory Band on its forehead. Item 5909 is usually seen wearing a silver chain around its neck and carrying a Normal Gas Mask as an accessory.

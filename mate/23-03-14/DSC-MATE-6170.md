@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6170
+Description: Subject 6170 is a male human, appearing to be of middle age, with a shaved head and wearing the traditional garb of a monk. It bears a silver chain around its neck, and a pair of goggles are worn on its forehead. The mouth is concealed by a medical mask, obscuring its identity from any visual identification.

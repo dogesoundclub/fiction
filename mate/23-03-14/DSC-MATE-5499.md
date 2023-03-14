@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5499
+Description: DSC-MATE-5499 is a male rabbit humanoid with red clown eyes. DSC-MATE-5499 doesn’t demonstrate any anomalous abilities, but exhibits a peculiar personality that can affect individuals in its proximity. DSC-MATE-5499's head is not arranged in a green color pattern, and a victory band of red color is visible on his forehead. DSC-MATE-5499 is often seen wearing a silver chain around his neck and smoking a cigarette.

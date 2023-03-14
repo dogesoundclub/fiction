@@ -1,0 +1,2 @@
+ID # : DSC-MATE-87
+Description: ID#87 is a female human politician with striking VR Rainbow LED eyes that glow in various colors, adding an eerie surrealism to her overall appearance. Her face showcases a wider than average smile, which she seems to use to disarm her opponents and gain their trust. ID#87's head sports a 90s brown hairstyle, and she has a unique Red Cross earring on one of her ears. She is often seen with a cigarette, albeit never lit. 

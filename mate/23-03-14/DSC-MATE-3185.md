@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3185
+Description: DSC-MATE-3185 is a male tiger approximately 2 meters in height and weighing approximately 200 kg. They possess several unique features, including a frightened mouth and unknown eyes. DSC-MATE-3185 is typically seen wearing a black hoodie, a silver chain, and an LED gas mask.

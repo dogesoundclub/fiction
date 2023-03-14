@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9560
+Description: Item 9560 is a male monkey villain whose appearance is beyond extraordinary. It sports a sharp mohawk and horned-rim glasses over its sharp, piercing eyes. Its ears adorned with gold earrings, it's often seen wearing a silver chain. It's capable of speech and has been known to communicate effectively.

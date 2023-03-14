@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7788
+Description: Subject 7788 is a male monkey with distinct green hair styled in a purple cap. Subject 7788 possesses a pair of horned rim glasses as well as a red scarf and a gold earring. Its forehead bears a two-color band. Subject 7788 is known for its highly goal-oriented nature, often taking on more than it can handle, but successfully carrying out tasks due to its exceptional organizational skills and strategic thinking.

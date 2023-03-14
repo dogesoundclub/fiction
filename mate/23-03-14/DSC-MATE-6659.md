@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6659
+Description: DSC-MATE-6659 appears to be a male rabbit of unknown origin who has taken up the occupation of a veterinarian. His physical appearance is notable with his horned rim glasses and a bucket hat adorning his head. DSC-MATE-6659 has an identifying feature on his forehead in the form of a two-color band. The subject has pierced ears, with a jade earring adorning each one. The subject is also usually seen with a silver chain around the wrist and carrying a normal gas mask.

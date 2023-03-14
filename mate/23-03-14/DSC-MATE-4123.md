@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4123
+Description: 4123 appears to be a human male, donning a Short Peak Cap on their head. Their face features are covered in Spots, and their eyes resemble those of a clown, with red irises that seem to piercingly stare into the souls of their beholders. Their forehead bears two distinct Color Bands, and a Green Cross Earring adorns each earlobe. The subject can often be seen sporting a Gold Chain as an accessory.

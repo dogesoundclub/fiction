@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3772
+Description: Subject 3772 appears as a middle-aged man with a distinctive mouth spot and a friendly smile. Their blue clown eyes and jade earring, combined with a doge hat and candy stick, may suggest they have an unusual dress sense. Their jovial nature leaves a positive impression on others, often making them the center of attention in any given social situation.

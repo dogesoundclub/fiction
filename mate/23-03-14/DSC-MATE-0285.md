@@ -1,0 +1,2 @@
+ID # : DSC-MATE-285
+Description: Subject 285 appears as a male Bengal Tiger with an frightened expression, seen through his mouth. The subject wears a medical mask on his muzzle and dons normal glasses while a pair of goggles sit atop his forehead. He has a single red cross earring on his right ear.

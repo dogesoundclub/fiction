@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8877
+Description: Item 8877 is a male robot designed to resemble a human, with a green cyclops eye and a frightened mouth as its key facial features. The robot stands at approximately 6 feet tall, and it wears a red beanie and normal glasses. It also has a silver chain and a jade earring as accessories. Its body structure is made of lightweight, durable metal alloys with embedded processors, motors, and sensors that allow for precise control of movements.

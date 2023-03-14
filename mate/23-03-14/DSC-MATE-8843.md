@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8843
+Description: Subject 8843 was a male humanoid robot designed for the purpose of programming and data analysis. The majority of its body had a silver metallic sheen, with accents of red on various parts such as the arms, legs, and torso. Its face was unique, with a single green Cyclops eye and a frightened mouth. The subject often wore a short peaked cap with a red scarf around its neck, as well as a gas mask for a brief period before it was deemed unnecessary. Its normal glasses sat atop its mechanical face, and it had no discernable voice.

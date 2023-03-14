@@ -1,0 +1,2 @@
+ID # : DSC-MATE-31
+Description: Object 31, also known by the name Tippy, is a male rabbit of European breed. The object presents with bright blue fur and stands at 1.5 ft tall. The subject wears a purple cap that has a headset attached on its head. It wears horned rimmed glasses and a gold earring in its right ear. The object is frequently seen wearing a red scarf around its neck. 

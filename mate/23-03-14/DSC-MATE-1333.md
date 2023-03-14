@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1333
+Description: DSC-MATE-1333 appears as a humanoid female with distinctive spots on their face and red lipstick. Their head is styled in an early 00s schoolgirl fashion and is consistently adorned with a pair of goggles on their forehead. DSC-MATE-1333's ears are pierced and they wear a distinct jade earring in each ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6708
+Description: Item #6708 is a female humanoid, identified as a reporter by occupation. The subject possesses blonde hair with an unusual wing protruding from the left side of her head. The subject's eyes are orange with eyebrow accents of the same shade. Her ears are pierced with jade earrings and she wears a choker around her neck at all times. Additionally, the subject wears a standard gas mask as a precautionary measure.

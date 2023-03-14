@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2865
+Description: Subject 2865 is a monkey species of unknown origin. The creature stands at approximately 4 feet tall and weighs roughly 80 pounds. Its most notable physical features include VR rainbow LED eyes, a blue bandana around its head, a jade earring in its left ear, and a red scarf draped around its neck. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9398
+Description: Item #9398 is a human male employed as a fast-food worker. He is distinguished by his blue clown eyes, short peak cap, and a red victory band on his forehead. He wears a gold earring and a silver chain as accessories.

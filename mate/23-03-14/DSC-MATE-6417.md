@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6417
+Description: DSC-MATE-6417 is a male monkey with a frightened mouth and eyes covered by nerd glasses. It wears a purple cap with a headset, along with a red scarf around its neck. Its forehead features a two-color band and a goggle on the forehead. Despite its anomalous appearance, DSC-MATE-6417 is capable of speaking fluently in multiple languages, which has been attributed to the anomalous nature of its species.

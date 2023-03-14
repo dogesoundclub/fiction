@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4108
+Description: DSC-MATE-4108 is a humanoid creature resembling a monkey, approximately 1.2 meters in height. DSC-MATE-4108 possesses shade glasses and oftentimes dons a blue bandana around his head. It was discovered working as a police officer in downtown ████████. DSC-MATE-4108's anomalous abilities manifest as a heightened sense of intuition, allowing it to predict or sense future events.

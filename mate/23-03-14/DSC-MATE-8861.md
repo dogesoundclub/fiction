@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8861
+Description: Subject 8861 is a male tiger with blue clown eyes, wearing a police cap on its head, and a medical mask covering its mouth. The subject also has a gold earring on its left ear and a gold chain around its neck. Physical examination has revealed that the subject is in good health and physical condition, with no apparent anomalous effects on its body.

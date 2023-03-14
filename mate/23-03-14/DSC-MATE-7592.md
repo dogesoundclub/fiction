@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7592
+Description: DSC-MATE-7592 appears to be a relatively average-looking human male, except for his distinctive orange stripes on his face. He wears a retro cap and gold earring over a medical mask, concealing his identity. DSC-MATE-7592 has blue clown eyes that seem to have a mesmerizing effect on anyone who stares at them for too long.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2892
+Description: DSC-MATE-2892 is a male rabbit standing at approximately 1.2 meters in height. DSC-MATE-2892 is distinguishable by its horned rim glasses and blue bandana, both of which it is rarely seen without. DSC-MATE-2892's behavior is highly social, possessing a natural charm and charisma that can make it the life of any gathering. DSC-MATE-2892 seems to enjoy smoking cigarettes, often seen with one in its mouth.

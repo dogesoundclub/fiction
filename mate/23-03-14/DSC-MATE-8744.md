@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8744
+Physical Description: Subject 8744 appears as a rather unremarkable monkey, save for a few particular details. The subject's head is adorned with a vibrant purple cap that sports a headset over one ear, presumably for communication purposes. A gold earring dangles from the monkey's left ear, further adding to the subject's eccentric appearance. Additionally, 8744 has been seen sporting a silver chain around its neck and a whistle in one of its hands.

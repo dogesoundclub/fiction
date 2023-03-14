@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9274
+Description: DSC-MATE-9274 is a male human with unique facial features, including a mouth spot and a smile. DSC-MATE-9274's eyes are described as blue clown eyes, and their head is parted pink with a unique forehead feature consisting of a 2-color band. DSC-MATE-9274's distinct physical feature is a gold earring on both ears.

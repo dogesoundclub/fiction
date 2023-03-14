@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3655
+Description: Subject 3655 is a human male with a unique facial feature: a dark spot on their mouth. Despite their casual appearance, they possess a strong sense of loyalty towards their loved ones, which can lead to confrontations with those who they perceive to be a threat. This has been observed in the workplace, where 3655 has been known to defend customers and fellow employees alike from verbal abuse or physical threats.

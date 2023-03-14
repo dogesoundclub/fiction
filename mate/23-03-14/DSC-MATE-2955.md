@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2955
+Description: Subject 2955 is a female human of unspecified age, with distinctive orange stripes present on their facial features. The subject is characterized by a disarming smile, and normal prescription glasses. Their head is colored with green and features an edge curl. A silver chain is worn around the subject's neck, which up until recently was believed to be a part of their psychological profile.

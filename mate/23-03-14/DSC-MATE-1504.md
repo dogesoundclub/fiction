@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1504
+Description: DSC-MATE-1504 is a male, humanoid rabbit. It wears a retro cap on its head, along with normal glasses and a red scarf. DSC-MATE-1504 also carries a candy stick, which it is often seen chewing on.

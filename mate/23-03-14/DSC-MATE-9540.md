@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9540
+Description: DSC-MATE-9540 is a male human with a unique appearance. The subject has spots covering their face feature #1 and sports VR Rainbow LED eyes. He is often seen wearing a red beanie on his head, gold earring on his ears, and a medical mask covering his mouth. His signature accessory is a red scarf.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9
+Description: DSC-MATE-9 is a robotic entity identified as a "veterinarian" program. It stands at 180cm in height and appears to take on the form of a male human figure. DSC-MATE-9 is equipped with VR jade LED eyes as well as jade earrings that are believed to aid in its data processing abilities. Its mouth is outfitted with a medical mask.

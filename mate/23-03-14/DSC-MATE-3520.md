@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3520
+Description: Subject 3520 is a male humanoid robot designated as a doctor. The subject displays a single green cyclops eye, which is a result of its primary sensor array. In addition, subject 3520 wears horn-rimmed glasses over its eyes and a police cap on its head. It also wears a gold earring on its left ear, a red scarf around its neck, and carries a whistle with it at all times.

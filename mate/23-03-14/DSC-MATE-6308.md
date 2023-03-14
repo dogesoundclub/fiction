@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6308
+Description: DSC-MATE-6308 is a male robot in the shape of a human politician. Its design is modeled after several high-ranking politicians from various countries. DSC-MATE-6308 stands at 1.8 meters tall and weighs approximately 85 kilograms.

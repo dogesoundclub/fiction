@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3620
+Description: DSC-MATE-3620 appears to be a male human of Caucasian ethnicity with an unusual mouth spot and a constant smile. Their eyes are a bright blue with a distinctly clown-like appearance. Additionally, DSC-MATE-3620 is often seen wearing a pair of goggles on their forehead and a jade earring in their right ear. They are also noted to commonly carry a candy stick as an accessory.

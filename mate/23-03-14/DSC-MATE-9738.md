@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9738
+Description: Subject 9738 is a male human with distinctive orange stripes on their face. Their face is often seen bearing a smile, which may be deceitful or genuine. The subject's eyes are obscured by normal glasses with no anomalous properties. On their head, they wear a short peak cap, and they adorn their ears with a gold earring. Two accessories that they commonly carry are a red scarf and an LED gas mask.

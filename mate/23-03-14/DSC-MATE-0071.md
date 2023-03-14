@@ -1,0 +1,2 @@
+ID # : DSC-MATE-71
+Description: DSC-MATE-71 is a male Tiger, standing at approximately 1.8 meters tall and weighing roughly 135 kg. DSC-MATE-71 has a distinctive appearance, wearing a red beanie on their head and a red cross earring on their right ear. In addition, DSC-MATE-71 wears a gold chain around their neck and is frequently seen smoking a cigarette.

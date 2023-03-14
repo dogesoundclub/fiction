@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1412
+Description: DSC-MATE-1412 is a male human, approximately 35 years old, with a unique appearance. DSC-MATE-1412 has a distinct spot located on the left corner of its mouth. It wears a bucket hat on its head, and glasses with red frames. DSC-MATE-1412 also wears a red victory band on its forehead and a red scarf around its neck.

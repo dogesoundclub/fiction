@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7625
+Description: DSC-MATE-7625 is a human male in his mid-twenties with spots covering his face. His mouth is often found in a frightened expression, and his eyes are covered by nerd glasses. DSC-MATE-7625 often wears a retro cap on his head and a red victory band across his forehead. He has a gold earring in one ear and is often seen with a candy stick as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9047
+Description: DSC-MATE-9047 appears to be a male monkey wearing a police cap and nerd glasses. Its distinctive feature is a red scarf around its neck. DSC-MATE-9047 is employed as a banker, working at [REDACTED] bank. It was discovered after numerous reports of anomalous financial transactions involving DSC-MATE-9047.

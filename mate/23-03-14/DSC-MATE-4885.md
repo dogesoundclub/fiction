@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4885
+Description: DSC-MATE-4885 is a human female with distinct facial features including spots on their cheeks, bright red lips, and an orange streak on one side of their head. They also wear a silver chain around their neck and keep a cigarette in their hand. Their forehead is adorned with a pair of goggles and decorated with a two-color band.

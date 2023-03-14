@@ -1,0 +1,2 @@
+ID # : DSC-MATE-682
+Description: DSC-MATE-682 is a male monkey with a distinct red beanie atop his head, and jade earrings hanging from his ears. Its eyes take the form of ski goggles, and it typically wears a silver chain around its neck, as well as constantly smoking a cigarette. DSC-MATE-682 displays high levels of intelligence and is known for its charisma and ability to connect with others on a deep level.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2178
+Description: DSC-MATE-2178 is a male robot designed in the likeness of a human Real Estate Agent. Its most noticeable features include a single green cyclops eye, a blue bandana covering the top of its head, and a frightened mouth. DSC-MATE-2178 always wears a pair of goggles on its forehead, a gold chain around its neck, and carries a whistle.

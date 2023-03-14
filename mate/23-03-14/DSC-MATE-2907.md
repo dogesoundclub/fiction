@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2907
+Description: 2907 appears to be a human male in his late 20s. He currently holds a position as a Firefighter in a local Fire department. 2907 is easily recognizable due to the distinct mouth spot above his upper lip. Furthermore, he is often seen wearing a short peak cap and a silver chain around his neck. On certain occasions, 2907 has been observed to be wearing a green cross earring which appears identical to the Maltese cross or fire cross.

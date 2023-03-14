@@ -1,0 +1,2 @@
+ID # : DSC-MATE-995
+Description: DSC-MATE-995 is a human female, approximately 30 years of age, standing at 1.65 meters tall and weighing 55 kilograms. DSC-MATE-995 is easily identifiable by the spots on her face and a distinct smile. DSC-MATE-995 has blue clown-like eyes, and her head is green with edge curls. DSC-MATE-995 is often seen wearing a choker and gold earrings.

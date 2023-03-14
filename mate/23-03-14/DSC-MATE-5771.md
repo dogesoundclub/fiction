@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5771
+Description: DSC-MATE-5771 is a male monkey of unknown origin, standing at 3 feet tall and weighing approximately 45 pounds. Its eyes are ski goggles, and its head is adorned with a retro cap, with a goggle on its forehead. It wears a gold chain around its neck and often is seen with a candy stick in its mouth.

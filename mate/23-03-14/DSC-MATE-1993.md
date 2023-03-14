@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1993
+Description: DSC-MATE-1993 is a male robot with a single green cyclops eye and a frightened mouth feature, often wearing a police cap as its headpiece. On its forehead, DSC-MATE-1993 wears a pair of goggles while also sporting a jade earring attached to its left ear. DSC-MATE-1993 enjoys accessorizing itself as it can be found wearing a gold chain and smoking a cigarette.

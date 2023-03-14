@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8265
+Description: DSC-MATE-8265 is a human male with multiple distinguishing features. DSC-MATE-8265's skin has numerous dark spots of varying sizes and shapes, most prominently on the face, neck, and upper arms. DSC-MATE-8265's goggles have replaced his natural eyes, providing excellent clarity and augmented vision in low-light conditions.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1242
+Description: DSC-MATE-1242 is a human female, approximately 35 years of age, and is employed as a news anchor for a local television station. She possesses several anomalous features, including a spotted skin pattern, purple lips, and red clown eyes. Her head appears to be adorned with rainbow festival elements, and she wears a silver chain and a jade earring. Her forehead is marked with a two-color band, and she frequently wears a medical mask.

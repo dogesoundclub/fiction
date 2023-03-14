@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8305
+Description: DSC-MATE-8305 is a robot designed to function as an electrician with highly advanced mechanical capabilities. Its body is primarily made of metal with various attachments for electrical work. DSC-MATE-8305 bears a humanoid shape and stands approximately 6 feet tall. The robot's green cyclops eye serves as its main visual sensor, while the nerd glasses are more of a cosmetic addition. Its head is adorned with a doge hat, and it wears a jade earring on one ear. DSC-MATE-8305 is usually seen with its accessory whistle attached to its belt.

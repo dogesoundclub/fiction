@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7710
+Description: DSC-MATE-7710 is a female human with unusual cybernetic enhancements. At all times, her eyes emit a constant rainbow LED glow, which can change color depending on her emotions. Her head is dyed green, with hair styled in edgy curls. An unusual feature on her forehead is a pair of functional goggles, which have displayed various computational abilities. DSC-MATE-7710 also wears a silver choker which she claims is sentimental.

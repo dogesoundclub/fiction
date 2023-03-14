@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1990
+Description: DSC-MATE-1990 is a male monkey with blue clown eyes that appears to be highly intelligent and capable of complex problem solving. DSC-MATE-1990 displays behaviors that are typical of its species but also has a number of unique characteristics, including a bucket hat on its head, a goggle on its forehead, and a silver chain around his neck.

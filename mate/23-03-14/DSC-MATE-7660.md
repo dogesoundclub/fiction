@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7660
+Description: DSC-MATE-7660 appears to be a male robot with a red alarm head and normal glasses for eyes. It also has a red cross earring on each ear and wears a silver chain as an accessory. DSC-MATE-7660 is known to carry a whistle, the purpose of which has not been fully determined by Foundation researchers.

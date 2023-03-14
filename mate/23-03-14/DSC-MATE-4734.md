@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4734
+Description: DSC-MATE-4734 is a human male of approximately 36 years of age with a distinct peak spike hairstyle. Their eyesight is corrected through the use of normal prescription glasses. DSC-MATE-4734 frequently wears a red scarf and can often be seen smoking a cigarette.

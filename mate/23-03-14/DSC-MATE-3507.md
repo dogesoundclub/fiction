@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3507
+Description: DSC-MATE-3507 is a male Tiger with red clown eyes and a frightened mouth. DSC-MATE-3507 wears a jade earring in its left ear, a red scarf around his neck, and holds a candy stick in his right paw. DSC-MATE-3507 exhibits a desire for knowledge and can be found constantly reading and researching obscure topics. DSC-MATE-3507 enjoys collecting books, documentaries, or other educational materials, and can be quite passionate about sharing its newfound knowledge with others.

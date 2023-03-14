@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4210
+Description: Subject 4210 is a female human, with metal blue hair and orange eyebrow eyes. Their notable features include a constantly present smile, a jade earring, and a silver chain. Their personality is characterized by an intense emotional awareness, often resulting in a heightened sensibility to music, art, and pop culture iconography. It is essential to note that 4210 possesses an inclination to cry at sentimental moments in movies, TV shows, and even certain commercials.

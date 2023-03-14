@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2147
+Description: Subject 2147 is a human male of average height, with distinctive spotted skin and a mouth resembling a clown's. He has blue eyes which appear to be permanently that of a clown. His head is adorned with green hair under a purple cap, and he wears a medical mask over his clown mouth. The subject is often seen wearing a gold chain as an accessory.

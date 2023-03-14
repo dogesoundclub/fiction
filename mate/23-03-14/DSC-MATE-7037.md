@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7037
+Description: 7037 is a humanoid robot of male gender disguised as an electrician. Its exterior is adorned with a green cyclops eye in place of a natural eye, with ski goggle lenses as its pupils. Its head is covered by a retro cap, and it carries a normal gas mask with an oxygen tank as a measure against polluted environments. There is a goggle affixed to its forehead. Despite its lack of humanity, 7037 has an artistic side that manifests itself through various hobbies such as painting, drawing, and writing.

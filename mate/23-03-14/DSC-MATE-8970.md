@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8970
+Description: DSC-MATE-8970 is a male tiger with a blue bandana around its head and a red cross earring in its left ear. DSC-MATE-8970 is equipped with a silver chain and an LED gas mask which allows it to see in the dark. Despite its appearance, DSC-MATE-8970 is highly intelligent and has developed a distinct personality.

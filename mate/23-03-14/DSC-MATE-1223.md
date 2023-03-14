@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1223
+Description: Subject 1223 is a male monkey of an unknown species, standing at approximately 1.2 meters tall. The subject has a frightened mouth and wears horned rim glasses on his eyes. He has normal black hair on his head and a goggle on his forehead. One distinctive feature of the subject is a jade earring on his ears, along with a gold chain around his neck.

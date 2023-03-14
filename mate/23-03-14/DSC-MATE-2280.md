@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2280
+Description: Subject 2280 appears to be a typical human male with notable abnormalities of the facial features. The subject's face is adorned with orange stripes, a clown mouth and red clown eyes. The head of the subject is crowned with a peak spike, and the mouth is concealed with a medical mask. Accessory #1 is a red scarf around the neck of the subject.

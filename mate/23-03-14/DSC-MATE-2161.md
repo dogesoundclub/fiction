@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2161
+Description: DSC-MATE-2161 appears to be a humanoid robot, standing at 6 feet tall. It has a sleek, metallic silver exterior with various pieces of machinery visible through a plexiglass panel in its chest.

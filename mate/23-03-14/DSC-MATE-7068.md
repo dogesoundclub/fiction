@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7068
+Description: DSC-MATE-7068, also known as the "Tiger Lawyer," is a male anthropomorphic tiger with an overall height of 6'2" and a weight of approximately 300 lbs. DSC-MATE-7068's main characteristic is his LED Jade eyes that resemble a Virtual Reality headset, a feature that it uses for convenience in reading digital documents.

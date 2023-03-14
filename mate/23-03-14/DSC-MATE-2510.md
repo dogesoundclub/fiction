@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2510
+Description: DSC-MATE-2510 appears to be a humanoid tiger, bearing green fur on its head that is unkempt and unarranged. Its eyes glow a jade green, indicating the presence of cybernetic enhancements. DSC-MATE-2510 wears a red cross earring to hide a defect on its ear.

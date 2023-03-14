@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7033
+Description: DSC-MATE-7033 is a female human identified as a security guard. She is identified by her unique physical features, including spots on her cheeks and a purple lip, along with bright red, clown-like eyes. Her personality is described as valuing social connections and maintaining harmony; however, she possesses a playful and goofy side. DSC-MATE-7033 is often seen telling jokes and engaging in playful banter with others. 

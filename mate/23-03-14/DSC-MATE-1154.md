@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1154
+Description: DSC-MATE-1154 is a human male of unknown age, with a distinct facial feature resembling a clown mouth, complete with blackened edges and exaggerated hyperbole. The entity's eyes also exhibit a clown-like appearance, with bright blue irises appearing abnormally large within the sclera. DSC-MATE-1154 is almost always observed wearing a hoodie and a silver chain necklace, along with a candy stick that is constantly in his possession.

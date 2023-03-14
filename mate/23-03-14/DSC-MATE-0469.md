@@ -1,0 +1,2 @@
+ID # : DSC-MATE-469
+Description: Subject 469 is a human female of indeterminate age, with red clown eyes that are highly unusual in appearance. They are thought to be a characteristic trait resulting from her extensive use of illegal drugs, specifically hallucinogens. Her head is that of a 00s schoolgirl, making her appearance both cute and unsettling at the same time.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7905
+Description: DSC-MATE-7905 is a female human of average height and build, identifiable by her distinctive purple lip and VR Rainbow LED eyes. Her head is shaven aside from a curl of hair along the edge, which is dyed a vivid green color. She wears a pair of red cross earrings and a silver chain as accessories.

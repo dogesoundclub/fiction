@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3913
+Description: DSC-MATE-3913 appears to be a human male, approximately 35 years of age, with a mouth spot and frightened mouth on his face. DSC-MATE-3913 has red clown eyes, which are non-anomalous in nature. DSC-MATE-3913 wears a bucket hat on his head and a jade earring on his left ear. He also wears a silver chain and frequently smokes cigarettes.

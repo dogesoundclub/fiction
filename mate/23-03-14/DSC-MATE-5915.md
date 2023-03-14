@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5915
+Description: Subject 5915 is a male human with distinctive physical features. They have spots on their skin and ski goggle eyes. Their head is adorned with a peak spike, and they wear an unusual green cross earring. The subject wears a silver chain and an LED gas mask as accessories.

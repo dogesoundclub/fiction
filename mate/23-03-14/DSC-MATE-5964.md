@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5964
+Description: Identification number 5964 is a human male, sporting orange stripes on their face and a retro cap atop their head. They wear a pair of ski goggles for eyes and a gold earring in their left ear. They are often seen wearing a red scarf and a normal gas mask as accessories.

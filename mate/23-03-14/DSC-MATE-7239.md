@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7239
+Description: DSC-MATE-7239 appears to be a male humanoid figure with the physical characteristics of a rabbit, including large ears and a small stature. DSC-MATE-7239 displays a frightened expression, with a mouth constantly agape. Its eyes consist of ski goggles, and the head is adorned with a green bucket hat. DSC-MATE-7239 wears a silver chain around its neck and a whistle around its wrist.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4764
+Description: Item 4764 is a male robotic veterinarian with a somewhat scatterbrained personality. His face features a single green cyclops eye, and is typically accessorized with a blue bandana, a red scarf, and an LED gas mask. Though capable of functioning autonomously, Item 4764 has the capacity to interact with human beings through a series of programmed responses.

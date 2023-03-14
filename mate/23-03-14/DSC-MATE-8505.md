@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8505
+Description: DSC-MATE-8505 is a male human of normal physical appearance, with blonde hair and spotted skin. Of note are the two-color band on DSC-MATE-8505's forehead, the green cross earring on its left ear, and goggles frequently worn on its forehead. DSC-MATE-8505 is often observed wearing a medical mask over its mouth. DSC-MATE-8505's occupation is that of a fashion designer, and it has shown great skill in creating high-end fashion garments using various materials at its disposal.

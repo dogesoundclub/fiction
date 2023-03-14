@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6194
+Description: DSC-MATE-6194 is a human male approximately 27 years of age, standing at 5'10" tall, and weighing 150 lbs. DSC-MATE-6194's most notable feature is a small spot that appears on the left side of his mouth, which seems to disappear and reappear at random intervals. DSC-MATE-6194 is most often seen with a pair of Nerd Glasses, a silver chain around its neck, and a jade earring adorning its left ear. DSC-MATE-6194 tends to keep its hair styled in a mohawk, and a pair of goggles are often positioned on its forehead.

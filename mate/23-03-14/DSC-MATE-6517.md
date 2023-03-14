@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6517
+Description: Subject 6517 appears to be a human female with striking orange stripes on their face. They have green hair which is usually styled in a purple cap, and they wear a gold chain around their neck. Their most notable accessory, however, is a green cross earring that adorns their left ear. They are often seen wearing a standard gas mask which covers the lower half of their face.

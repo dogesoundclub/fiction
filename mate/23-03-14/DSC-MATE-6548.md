@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6548
+Description: DSC-MATE-6548 appears to be a human female with a variety of unique physical features. The most noticeable feature is a large amount of spots covering the face and upper body. DSC-MATE-6548 also has a purple tint to the lips, which suggests a possible genetic abnormality. The eyes of DSC-MATE-6548 are cybernetically enhanced with VR Jade LED technology. DSC-MATE-6548 is commonly seen wearing a retro-style cap, along with a gold chain and cigarette.

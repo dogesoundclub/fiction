@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5482
+Description: DSC-MATE-5482 appears to be a male tiger humanoid standing at 2.5 meters tall. DSC-MATE-5482 wears a police cap on its head which appears to have a pair of ski goggles attached to it. The tiger's eyes appear to have been replaced with ski goggles that give off a green-tinted glow which serves as a visual sensory organ. DSC-MATE-5482 has a gold earring on each of its ears.

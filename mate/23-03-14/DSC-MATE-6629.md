@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6629
+Description: DSC-MATE-6629 is a male primate of the species Macaca fascicularis, commonly known as the long-tailed macaque. It wears a bucket hat on its head and a pair of goggles over its eyes while also displaying a jade earring in each ear. DSC-MATE-6629 also wears a gold chain and a whistle around its neck as accessories.

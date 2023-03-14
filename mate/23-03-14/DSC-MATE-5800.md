@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5800
+Description: 5800 is a male rabbit with a distinct hoodie that covers its head. The forehead of the creature bears a 2 Color Band, which initially was thought to be a natural marking on its fur. However, upon examination, it is discovered that the band appears to have been tattooed, leading to more questions than answers. 

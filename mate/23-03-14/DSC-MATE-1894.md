@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1894
+Description: DSC-MATE-1894 is a human female with distinct appearance and personality traits. Its facial features consist of orange stripes and a permanent smile. DSC-MATE-1894's head is green with edge curls and a two-colored band on its forehead. Furthermore, DSC-MATE-1894 is always seen wearing an LED gas mask, which is suggested to be self-designed. 

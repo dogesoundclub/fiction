@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2099
+Description: Subject 2099 is a female human with distinctive orange stripes on its face, which are believed to be a result of an unknown genetic or anomalous alteration. It has crimson, clown-like eyes that often focus on small details, making it ideal for traffic-related tasks. The subject's 90s brown hair and red lip, combined with a green cross earring and a silver chain, are also noticeable features. 

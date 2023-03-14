@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1643
+Description: Subject 1643 is a human female with striking orange eyebrows that contrast against their 90s brown hair. The subject is often seen donning a gold chain and smoking a cigarette, their face decorated with a disarming smile. Despite their intimidating presence, subject 1643 has a love for adventure and taking risks, which has earned them a reputation for being a bit of a thrill-seeker.

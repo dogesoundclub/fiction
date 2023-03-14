@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6070
+Description: Item #6070 is a humanoid robot standing at 5 feet tall. It has a green cyclops eye for a face feature and a headset with an LED attached to its head. Two accessories are attached to its body: a red scarf, and a whistle. It is programmed to work as a mechanic, and its wiring and programming are advanced compared to other robots.

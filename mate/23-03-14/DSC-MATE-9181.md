@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9181
+Description: DSC-MATE-9181 appears to be a humanoid male in his late thirties with orange stripes on his face and a smile that seemingly never disappears from his face. He wears a blue bandana on his head and a medical mask over his mouth at all times.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5313
+Description: Subject 5313 is a male monkey, wearing a traffic officer uniform, complete with nerd glasses, a headset with LED lights, and a two-color band feature on his forehead. The subject exhibits remarkable intelligence and is capable of communicating fluently in multiple languages. While the subject is not hostile, its tendency to control situations can sometimes lead to humorous and chaotic events.

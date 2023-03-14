@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4231
+Description: Designation 4231 is a male human with several distinctive features. His face is marked with bright orange stripes, and his eyes resemble ski goggles. He wears a short peak cap on his head, and a jade earring in each ear. His mouth is typically covered by a medical mask, although this is not believed to be a protective measure.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5104
+Description: Dr. 5104 is a male human with distinctive orange stripes on their face. This is believed to be a genetic anomaly unrelated to any anomalous properties. Dr. 5104 typically wears a retro cap, normal glasses, and a Jade earring. They can often be seen wearing a gold chain as an accessory. Dr. 5104 has been in the employ of the Foundation for several years working as a doctor and researcher.

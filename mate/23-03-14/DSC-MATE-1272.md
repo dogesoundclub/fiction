@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1272
+Description: Subject 1272 is a 30-year-old female human with red lips and blue clown eyes. It has a goggle on its forehead, green cross earring on its ears, and wears a choker and carries a cigarette as accessories. It's a programmer by profession.

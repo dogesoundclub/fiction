@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3819
+Description: Item 3819 is a male tiger with green hair in a purple cap and horned rim glasses. The tiger is approximately 2.5 meters in length and weighs approximately 270 kilograms. Item 3819 exhibits anthropomorphic behavior and has been observed conversing with inanimate objects, such as household appliances, plants, and even naming his car.

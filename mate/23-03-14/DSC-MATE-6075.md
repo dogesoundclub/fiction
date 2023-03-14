@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6075
+Description: DSC-MATE-6075 is a human female with distinct orange stripes on her face and red clown eyes. She has a red lip that contrasts with her face features. Her head is adorned with a rainbow festival hat. DSC-MATE-6075 is always seen wearing a silver chain and smoking a cigarette as its preferred accessory.

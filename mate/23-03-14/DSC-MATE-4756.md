@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4756
+Description: DSC-MATE-4756 is a highly advanced surgical robot designed for human medical procedures. It stands 1.5 meters tall and weighs approximately 150kg. DSC-MATE-4756's most distinguishing feature is its single green cyclops eye, which houses all of its sensory apparatus. DSC-MATE-4756 also wears a pair of horned rim glasses over its eye, and a gold earring in its left ear. DSC-MATE-4756's body is covered in an array of hoses, wires, and gears, which allow it to carry out complex surgical maneuvers.

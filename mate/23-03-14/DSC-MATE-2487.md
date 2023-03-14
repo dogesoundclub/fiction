@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2487
+Description: DSC-MATE-2487 is a human male assigned to the local police force. They have a unique facial feature, a small spot located near the left corner of their mouth, and jade LED eyes that appear to glow in virtual reality. DSC-MATE-2487's hair is parted pink and they wear gold earrings, a silver chain, and a gas mask equipped with LED lights as accessories.

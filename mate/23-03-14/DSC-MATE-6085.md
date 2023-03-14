@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6085
+Description: DSC-MATE-6085 appears to be a male Capuchin monkey, dressed in an old-fashioned, retro cap and shade glasses. They exhibit a frightened expression, with their mouth widely open. This facial feature may suggest a sign of distress or anxiety. DSC-MATE-6085's ears are adorned with a single gold earring, and they are frequently seen wearing a red scarf around their neck. They carry a whistle as a tool and a means of communication.

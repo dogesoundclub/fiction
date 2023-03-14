@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5375
+Description: DSC-MATE-5375 is a male monkey humanoid measuring approximately 1.2 meters in height. Its face features a frightened mouth and it has a parted pink head with jade earrings. DSC-MATE-5375 wears an LED gas mask as an accessory continuously, which is believed to enhance its programming abilities.

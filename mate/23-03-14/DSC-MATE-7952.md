@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7952
+Description: DSC-MATE-7952 is a male human with prominent spots on their face. They wear normal glasses and a blue bandana around their head, and they also wear a medical mask over their mouth. DSC-MATE-7952 often accessorizes with a gold chain.

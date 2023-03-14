@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8448
+Description: DSC-MATE-8448 is a male Tiger, standing at approximately 3 meters in height and weighing in at over 500 pounds. Its fur is predominantly orange with black stripes, and it has blue clown eyes that are unusually large, even for its species. DSC-MATE-8448 has an earring on its left ear and is frequently seen wearing a red scarf around its neck, as well as carrying a whistle.

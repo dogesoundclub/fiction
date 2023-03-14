@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7360
+Description: DSC-MATE-7360 is a male monkey veterinarian, of an unknown species. The monkey's physical appearance is mostly humanoid, with the exception of the eyes. These dark, round eyes are circular, bright blue lenses similar to ski goggles.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8782
+Description: Item 8782 is a male human, employed as a beautician. The subject is approximately 172 cm in height and has a slender build. Item 8782 has a distinctive Mouth Spot, which is always present on the lower lip. The subject's Frightened Mouth feature, a slight overlap of the upper lip, is often visible when the subject is experiencing stress. Item 8782's eyes are a mesmerizing shade of blue that give off a clown-like appearance. The subject is often seen wearing a short peak cap and a green cross earring on both ears. 

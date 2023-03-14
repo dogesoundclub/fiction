@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1753
+Description: Subject 1753 is a male human, approximately 30 years of age. The subject’s most prominent characteristic is a dark spot on the side of the mouth, which may indicate prior exposure to a paranormal entity. The subject also displays a frightened mouth expression, which may be a result of the exposure. Additionally, subject 1753 sports a distinctive mohawk on their head and is commonly seen sporting a gold chain.

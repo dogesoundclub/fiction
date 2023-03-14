@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4040
+Description: DSC-MATE-4040 is an animate humanoid robot resembling a banker, with green Cyclops eye and a frightened mouth. It stands approximately 1.75 meters tall, and weighs approximately 100 kg. DSC-MATE-4040's head is covered by a short peak cap, and it possesses ski goggle eyes and jade earring on both ears. Additionally, DSC-MATE-4040 wears a gold chain and carries a whistle as its accessory.

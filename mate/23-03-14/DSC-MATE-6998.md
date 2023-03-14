@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6998
+Description: DSC-MATE-6998 was a human with orange eyebrows which were speculated to be contacts or some anomalous feature. The subject was a female mechanic in her mid-20s headquartered in an undisclosed location. She had green hair covered under a purple cap with a goggle on her forehead. The subject's personality was unpredictable and spontaneous, showing a tendency to take risks without considering the consequences. It was believed that she may have been under the influence of some anomalous effect, leading to her impulsive behavior.

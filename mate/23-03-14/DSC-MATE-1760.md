@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1760
+Description: DSC-MATE-1760 is a male humanoid robot standing approximately 6 feet tall. Its most prominent features are its single green cyclops eye and perpetually frightened mouth. DSC-MATE-1760 has protective red nerd glasses over its eye which it is never seen without. Its head is covered with a black hoodie and it wears a gold chain around its neck. It also carries a whistle at all times which it uses for attention-grabbing purposes or as a stress reliever.

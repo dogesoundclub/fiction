@@ -1,0 +1,2 @@
+ID # : DSC-MATE-750
+Description: DSC-MATE-750 is a human male with a distinctive mouth spot and red clown eyes, often covered by a pair of goggles worn on their forehead. They wear a red beanie, gold earring, gold chain, and carry a candy stick with them at all times.

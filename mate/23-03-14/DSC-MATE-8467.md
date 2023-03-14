@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8467
+Description: DSC-MATE-8467 is a male human who possesses unusual physical characteristics. The individual has orange stripes on their face, further accentuated with VR Rainbow LED eyes. DSC-MATE-8467 is often seen wearing a blue bandana on their head, paired with a green cross earring on one ear, and always has a cigarette in their hand.

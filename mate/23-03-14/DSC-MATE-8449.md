@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8449
+Description: DSC-MATE-8449 is a female train driver with noticeable spots on their face and a constant smile. Their eyes have been surgically replaced with VR Jade LED, giving them exceptional vision that can detect anomalies invisible to the naked eye. DSC-MATE-8449's head is noticeably green, with an Edge Curl hairstyle. They wear a medical mask to hide their mouth and keep their identity concealed, as well as a silver chain around their neck. On their forehead, they have a goggle that they use to observe their surroundings.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2850
+Description: DSC-MATE-2850 is a human female in her mid-30s who stands at 5'8". DSC-MATE-2850 is a Mafia Boss with a strong sense of intuition that appears to be of extraordinary nature. DSC-MATE-2850 has orange stripes on the right side of her face that appear intermittently. Her eyebrows are orange and her ears have golden earrings.

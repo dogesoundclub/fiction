@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8633
+Description: Item #8633 was a male robot that resembled a human beautician. He wore a short peak cap on his head and a medical mask over his mouth, which concealed his features. The robot also adorned a gold chain which added to its aesthetic appeal.

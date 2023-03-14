@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6769
+Description: Subject 6769, also known as "The Vet," is a female human with distinctive purple lips and rainbow festival attire. They frequently wear a medical mask over their mouth as a protective measure against both mundane diseases and unknown infectious agents. 6769's primary function is that of a veterinarian but also possesses an exceptional sense of humor, often using it to bring levity to intense situations.

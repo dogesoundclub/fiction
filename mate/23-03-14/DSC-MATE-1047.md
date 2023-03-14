@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1047
+Description: Item #1047 appears as an ordinary human male, approximately 6 feet tall, with a broad build and a no-nonsense, traditional appearance. His most prominent physical features include a Mouth Spot on his upper lip, VR Rainbow LED eyes, and a Blue Bandana wrapped around his head. He also wears a Green Cross Earring on his right ear as well as a Silver Chain and Cigarette as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1892
+Description: DSC-MATE-1892 is a female human with distinctive green hair styled with edge curls, red clown eyes, and several spots on her face. DSC-MATE-1892 also has a two-color band on her forehead and a goggle on her forehead. DSC-MATE-1892 wears a gold earring on her left ear.

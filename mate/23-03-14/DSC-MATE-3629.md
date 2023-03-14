@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3629
+Description: Item 3629 is a human female, identified as an electrician by trade. She features unique physical attributes including orange stripes on her face, VR Rainbow LED eyes, a tiara on her head, jade earrings on both ears, and a medical mask over her mouth. She also wears a choker accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8118
+Description: DSC-MATE-8118 is a human male identified as the current leader of a powerful mafia organization. DSC-MATE-8118's most notable physical features are orange stripes on its face and a frightened mouth. DSC-MATE-8118 also wears nerdy glasses, a jade earring, a silver chain, and carries a candy stick as its preferred accessory.

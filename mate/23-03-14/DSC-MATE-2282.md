@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2282
+Description: DSC-MATE-2282 is a human female of indeterminate age, approximately 5'5" in height and weighing approximately 65 kg. Its skin is pale and its facial features include a pronounced purple lip and red clown eyes. DSC-MATE-2282 appears to favor wearing a hoodie that obscures its head and forehead, which features a two-color band.

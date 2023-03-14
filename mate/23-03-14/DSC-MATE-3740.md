@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3740
+Description: DSC-MATE-3740 is a female human with distinctive orange stripes along her face and purple lips. DSC-MATE-3740's head is a metallic blue material, and she is often seen wearing a pair of goggles on her forehead. Her ears possess a jade earring, and she commonly wears a silver chain around her neck, with an LED gas mask as her chosen accessory.

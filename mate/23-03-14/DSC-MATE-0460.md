@@ -1,0 +1,2 @@
+ID # : DSC-MATE-460
+Description: DSC-MATE-460 is a male tiger, approximately 240 cm in length and weighing approximately 350 kg. DSC-MATE-460 wears a bucket hat on its head and a gold earring in its left ear.

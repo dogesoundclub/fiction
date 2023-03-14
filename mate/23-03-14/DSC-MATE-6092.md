@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6092
+Description: A male human with a distinctive mouth spot and a friendly smile, usually seen wearing normal glasses and a red scarf. He sports a blonde hairstyle and has a set of goggles perched on his forehead that he wears routinely. Additionally, he dons a jade earring on one ear.

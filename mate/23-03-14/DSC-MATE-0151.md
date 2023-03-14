@@ -1,0 +1,2 @@
+ID # : DSC-MATE-151
+Description: DSC-MATE-151 is a male robot designed to function as a reporter. Its appearance includes a green cyclops eye, a frightened mouth, horned rim glasses, a short peak cap, a jade earring, a red scarf, and a normal gas mask. While DSC-MATE-151's exact origin is unknown, it is believed to have been created by an advanced technological civilization.

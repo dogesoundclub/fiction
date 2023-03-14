@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5728
+Description: DSC-MATE-5728 is a human male in his mid-thirties, employed as a car salesman. He stands approximately six feet tall and weighs around 175 pounds. The subject is covered in animal-like spots, giving him a unique and striking appearance. His head is entirely coated in a metal purple material, with a medical-grade face mask over his mouth. His distinctive feature is the Rainbow LED eyes which cover the entirety of his iris.

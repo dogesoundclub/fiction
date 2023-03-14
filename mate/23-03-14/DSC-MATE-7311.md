@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7311
+Description: DSC-MATE-7311 appears to be a humanoid robot standing at approximately 1.8 meters tall with green metallic plating. Its head features a single eye, commonly referred to as a Cyclops eye, which emits a green hue. It sports corrective glasses for visual enhancement. DSC-MATE-7311 has several humanoid appendages with metallic joints that aid in its mobility. It takes on the appearance of a car salesman and will approach individuals with an undeniable charisma.

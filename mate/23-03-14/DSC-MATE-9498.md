@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9498
+Description: DSC-MATE-9498 is a 29-year-old female fashion designer of human origin. She is characterized by her bright orange stripes and blue clown eyes, which seem to be a manifestation of anomalous properties. DSC-MATE-9498 is generally upbeat and extroverted, but has been noted to exhibit signs of irritability and insecurity when her designs and creations are not well-received.

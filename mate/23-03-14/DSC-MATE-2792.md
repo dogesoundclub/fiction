@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2792
+Description: DSC-MATE-2792 is a human male, approximately 20 years of age. The subject's head hair is parted pink, and possesses blue clown-like iris. DSC-MATE-2792 is identified by the presence of spots on the face, gold earring on the right ear, and a two-color band on the forehead. The subject wears a medical mask over the mouth at all times, and is often seen sporting a gold chain necklace.

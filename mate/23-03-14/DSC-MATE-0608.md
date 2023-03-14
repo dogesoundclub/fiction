@@ -1,0 +1,2 @@
+ID # : DSC-MATE-608
+Description: Subject 608 is a male human with spotted skin. Their most striking facial features are their ski goggle eyes, which they claim to wear for vision correction, and their doge hat. A gold earring is worn on their right earlobe while a medical mask covers their mouth.

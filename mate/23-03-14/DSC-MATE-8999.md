@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8999
+Description: Subject 8999 is a female human, with a distinctive facial appearance. They possess several spots on their skin, and their smile is noticeable for its openness and appeal. However, their most prominent feature is their blue clown eyes which command attention from those around them. The subject's head is green, with a noticeable edge curl which serves to enhance their outsized personality.

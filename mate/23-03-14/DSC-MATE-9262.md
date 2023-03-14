@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9262
+Description: DSC-MATE-9262 is a humanoid monkey, standing at 1.83 meters. DSC-MATE-9262 identifies as male and has a unique appearance, with a head sporting a mohawk and large gold earrings on his pointed ears. DSC-MATE-9262 dresses in human clothing and wears a silver chain and holds a cigarette in times of stress.

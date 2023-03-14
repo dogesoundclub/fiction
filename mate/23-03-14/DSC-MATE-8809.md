@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8809
+Description: DSC-MATE-8809 is a male robot that appears to be modeled after a human. The robot is equipped with a green cyclops eye and a frightened mouth, which gives the impression of a perpetual state of anxiety. The robot's eyes are covered with horned rim glasses and it has a gold earring on each ear. DSC-MATE-8809 is often spotted wearing a red scarf as an accessory.

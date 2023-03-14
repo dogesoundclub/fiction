@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4919
+Description: DSC-MATE-4919 is a human, female, with green eyes and an unusual appearance. It has orange stripes on its face and sports a smile at all times. The head appears to be covered in glitter, with rainbow colored hair that changes shade depending on the angle of light. DSC-MATE-4919 wears a green cross earring on its left earlobe and a silver chain around its neck, along with a standard gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7863
+Description: DSC-MATE-7863 is a male tiger with fur that is predominantly black with white stripes. Its most distinctive feature is its bright blue clown eyes, which glow in the dark. DSC-MATE-7863 wears a blue bandana over its head and a jade earring in its right ear. It is often seen wearing a silver chain around its neck and smoking a cigarette.

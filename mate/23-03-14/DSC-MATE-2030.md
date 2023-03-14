@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2030
+Description: DSC-MATE-2030 is a humanoid entity with distinct facial and forehead features. DSC-MATE-2030 has orange stripes on her face and red clown eyes, with a noticeable red lip. Two colored bands can be observed on her forehead, with a goggle-like piece of equipment resting on top. DSC-MATE-2030 has jade earrings and wears a medical mask at all times, as well as a choker around her neck.

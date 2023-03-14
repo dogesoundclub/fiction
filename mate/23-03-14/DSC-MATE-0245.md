@@ -1,0 +1,2 @@
+ID # : DSC-MATE-245
+Description: Item 245 is a male Monkey with shade glasses and a 2 color band on its forehead. It has gold earrings and is commonly seen wearing a red scarf and carrying a whistle. Item 245 is a skilled beautician who can style hair and make-up flawlessly.

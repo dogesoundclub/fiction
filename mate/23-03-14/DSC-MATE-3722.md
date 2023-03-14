@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3722
+Description: DSC-MATE-3722 is a male human of indeterminate age, with a distinctive red beanie covering his head. DSC-MATE-3722 is most easily identified by the numerous spots on his face and the green cross earring on his left ear. It is commonly seen wearing normal glasses and a medical mask, along with a silver chain as an accessory.

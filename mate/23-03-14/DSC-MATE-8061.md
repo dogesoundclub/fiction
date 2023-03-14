@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8061
+Description: DSC-MATE-8061 is a human male delivery driver identified as Jeffery. DSC-MATE-8061 has a distinctive mouth spot on his upper lip and a perpetually frightened expression on his mouth. DSC-MATE-8061's eyes are modified with VR Jade LED and he wears a police cap on his head. He also wears a green cross earring on his left ear and a red scarf and cigarette are his signature accessories.

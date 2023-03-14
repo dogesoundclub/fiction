@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9636
+Description: DSC-MATE-9636 is a male rabbit, standing at 25 cm tall with a frightened appearance featuring a mouth commonly seen in situations of horror or danger. The subject's eyes are blue, indicating similarities to that of a clown. DSC-MATE-9636 often wears a Doge hat on their head and a Jade earring on their left ear. The subject is also occasionally seen carrying around a candy stick.

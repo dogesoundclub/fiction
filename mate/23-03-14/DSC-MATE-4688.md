@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4688
+Description: DSC-MATE-4688 is a male robot designed to resemble a human news anchor. Its face features a frightened mouth that is permanently stuck in a clamshell shape, and it wears normal glasses over its eyes. DSC-MATE-4688's head is adorned with a Doge hat, and it also wears a silver chain and a normal gas mask as accessories.

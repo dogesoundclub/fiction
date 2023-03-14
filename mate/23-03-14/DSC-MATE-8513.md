@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8513
+Description: DSC-MATE-8513 is a female human farmer, measuring around 5'5" and weighing approximately 120 lbs. DSC-MATE-8513 carries a medical mask covering her mouth and a silver chain around her neck, while sporting an orange side hairstyle. DSC-MATE-8513 is often seen wearing a pair of goggles on her forehead and a jade earring in each ear.

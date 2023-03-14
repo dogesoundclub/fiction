@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1997
+Description: DSC-MATE-1997 is a 40-year-old male monkey of the species ██████. DSC-MATE-1997 exhibits a remarkable ability to speak in human language, and possesses strong marketing and sales abilities. DSC-MATE-1997 is typically attired in a retro cap, horn-rimmed glasses, and adorned with a jade earring. DSC-MATE-1997 has expressed a fondness for human culture and has adapted to the human workplace with surprising ease.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4632
+Description: Subject 4632 is a male human, approximately 30 years of age, with a friendly smile that can be disarming. His head is often adorned with a blue bandana, and sports a pair of goggles on his forehead. A green cross earring is present on his right ear. His mouth is often covered with a medical mask, for reasons currently unknown.

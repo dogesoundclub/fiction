@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6888
+Description: Item 6888, identified as a human female, is a licensed veterinarian by profession. Her most notable features include bright orange stripes on her face, orange eyebrows, a cheery smile, and a medical mask covering her mouth. Item 6888 is often seen wearing a tiara on her head and jade earrings on her ears. She also keeps a pair of goggles on her forehead. 

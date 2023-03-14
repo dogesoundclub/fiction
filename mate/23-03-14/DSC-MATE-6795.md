@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6795
+Description: 6795 is a male human of average height and weight. Their most notable feature is a pattern of dark spots on their skin which occur with no apparent logical distribution. They have opted for a distinct style, with a choker around their neck and a gas mask worn over their face. The mask leaves their eyes visible, which are a strange VR Jade LED. They also wear a green cross earring on their left ear.

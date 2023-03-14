@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2316
+Description: DSC-MATE-2316 is a male rabbit with emerald green fur and a pair of goggles resting on its forehead. DSC-MATE-2316 is frequently seen wearing a gold chain and a whistle around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2717
+Description: DSC-MATE-2717, also known as the "Smiling Train Driver," is a male human with red clown eyes. DSC-MATE-2717 wears a police cap, a gold earring, a silver chain, and frequently smokes cigarettes. Despite its cheerful demeanor and happy-go-lucky personality, DSC-MATE-2717 has a tendency to forget important information and get lost easily. Its forgetfulness has led to humorous situations, such as missing important appointments and getting lost while trying to find a new place.

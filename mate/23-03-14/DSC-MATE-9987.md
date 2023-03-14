@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9987
+Description: DSC-MATE-9987 is a male humanoid identified as a Siberian tiger (Panthera tigris altaica) by its appearance. DSC-MATE-9987 works as a news anchor, referred to as "Steve" by colleagues and acquaintances. On camera, DSC-MATE-9987 appears professional and collected, but during off-air hours, its personality becomes increasingly expressive and emotionally-driven. 

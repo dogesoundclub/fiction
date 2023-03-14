@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7071
+Description: DSC-MATE-7071 is a female humanoid of unknown origin, with orange stripes on their face and a permanent smile. Their appearance is that of a 00s schoolgirl, complete with a pair of goggles on their forehead and jade earrings. DSC-MATE-7071 frequently wears a gas mask as a precautionary measure.

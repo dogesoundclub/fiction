@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2029
+Description: Item #2029 is a male Tiger with a frightened mouth and nerd glasses. It is often seen wearing a bucket hat with a two-colored band on its forehead, a jade earring in each ear, and a gold chain around its neck. Despite its somewhat timid appearance, Item #2029 is known for its ambitious and goal-oriented nature, often taking on more work than it can handle. However, its excellent organizational skills and strategic thinking usually allow it to successfully complete all assigned tasks.

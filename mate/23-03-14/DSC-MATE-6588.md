@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6588
+Description: DSC-MATE-6588 is a male monkey with unusual physical characteristics. Its eyes resemble ski goggles, while its head is parted pink fur with jade earrings in its ears. DSC-MATE-6588 wears a silver chain and a normal gas mask as its accessories. DSC-MATE-6588's speech is relatively fluent, with a vocabulary range that is still being explored. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8667
+Description: DSC-MATE-8667 is a male human traffic officer identified by identification number 8667. DSC-MATE-8667 stands at 5'11" tall and is of average build. DSC-MATE-8667's face features a permanently frightened mouth, which is believed to be a result of a previous traumatic experience. DSC-MATE-8667's eyes are obscured by normal glasses and he wears a monk's hood over his head. DSC-MATE-8667 sports a single gold earring and a gold chain as accessories, and is often seen smoking a cigarette.

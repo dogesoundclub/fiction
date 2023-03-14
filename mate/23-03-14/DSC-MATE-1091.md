@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1091
+Description: DSC-MATE-1091 is a male human of average height and weight. The subject is a fashion designer, known for his eccentric style and love for flashy accessories. DSC-MATE-1091's most notable features are the ski goggle-shaped eyes and a mouth spot on its face. DSC-MATE-1091 has a permanent smile on its face, giving the impression of a happy and carefree individual.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5348
+Description: DSC-MATE-5348 is a male rabbit of unknown origin, standing at approximately 1.2 meters in height when standing upright. DSC-MATE-5348 has golden fur and is often seen wearing a single gold earring in its left ear. DSC-MATE-5348 is known to exhibit a frightened expression, specifically in its mouth area. The eyes of DSC-MATE-5348 are currently unknown, due to its frequent reluctance to make eye contact with Foundation personnel. 

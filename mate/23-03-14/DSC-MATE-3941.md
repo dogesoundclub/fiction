@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3941
+Description: DSC-MATE-3941 is a human female with distinctive facial features. She has multiple large spots across her face and blue clown eyes. Her head appears to be green, though it is not arranged in a traditional manner. DSC-MATE-3941 has a gold earring in her left ear and is frequently seen wearing a gold chain.

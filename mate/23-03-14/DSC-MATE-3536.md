@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3536
+Description: DSC-MATE-3536 is a humanoid robotic entity that resembles a typical banker. It stands approximately 6 feet tall and weighs around 300 lbs. Structurally, it seems to be constructed of various alloys and materials, with the outer body being coated in a pseudo-skin allowing for a realistic appearance.

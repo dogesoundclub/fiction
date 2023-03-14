@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5723
+Description: Subject 5723 is a male humanoid creature of the species Panthera Tigris, commonly known as a tiger. The subject has distinguishing features such as a police cap on its head, ski goggle eyes, golden earrings on each ear, and a gold chain around its neck. In addition, it carries a candy stick at all times.

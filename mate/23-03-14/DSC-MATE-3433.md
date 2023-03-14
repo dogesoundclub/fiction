@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3433
+Description: DSC-MATE-3433 is a humanoid entity believed to be of human origin. DSC-MATE-3433 appears to be a female theater manager of an unknown venue. DSC-MATE-3433 is currently in custody after being apprehended during a routine surveillance sweep of the area. DSC-MATE-3433 displays two distinctive orange stripes on its face, indicating an unknown condition.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-39
+Description: DSC-MATE-39 appears to be a male human with orange stripes on his face and a peak spike on his head. He wears a jade earring on each ear, a red scarf around his neck, and is often seen with a candy stick in his mouth. DSC-MATE-39's primary job before containment was that of a traffic officer, and he has retained this occupation since capture.

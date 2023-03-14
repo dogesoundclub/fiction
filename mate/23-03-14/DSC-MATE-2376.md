@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2376
+Description: DSC-MATE-2376 resembles a majestic Bengal tiger with black stripes, standing at approximately 6 feet tall and weighing around 250kg. As a sentient being, DSC-MATE-2376 possesses advanced intelligence and speech capabilities through vocalization. Exhibiting human-like mannerisms and a penchant for smoking cigarettes, it has displayed a personal taste for wearing a red scarf and jade earring--both having no anomalous abilities of their own.

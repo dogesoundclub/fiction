@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2044
+Description: DSC-MATE-2044 appears as a traffic officer robot, measuring approximately 1.8 meters in height. The robot has a green, unarranged head, and a set of nerd glasses over its eyes. A gas mask is worn over the robot's mouth and nose, combined with a jade earring placed on either ear. DSC-MATE-2044 also wears a gold chain around its neck and has a goggle device attached to its forehead.

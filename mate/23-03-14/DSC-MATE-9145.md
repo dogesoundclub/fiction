@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9145
+Description: DSC-MATE-9145 is a male monkey of the genus Macaca. The subject sports a golden chain around its neck and wears a hoodie pulled up over its head. The eyes of DSC-MATE-9145 are unknown due to the LED gas mask it dons at all times.

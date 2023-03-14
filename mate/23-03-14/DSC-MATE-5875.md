@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5875
+Description: DSC-MATE-5875 is a male humanoid robot with a distinctive appearance composed of green hair in a purple cap and horn-rimmed glasses, accessorized with a silver chain and a regular gas mask. DSC-MATE-5875 identifies as a lawyer, and its programming is centered around the provision of legal services for subjects in need. DSC-MATE-5875's personality is characterized by a great sense of humor with a penchant for making others laugh, and this can often lighten the mood during tense situations.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2760
+Description: DSC 2760 is a male tiger with horned rim glasses and a blue bandana around its head. DSC 2760 is employed as a fast-food worker at a popular fast-food chain. When observed, he exhibits a sense of responsibility and dutifulness that is unusual for an anomalous entity. Despite his very serious demeanor, DSC 2760 is known to let loose and have fun from time to time, showing off his dance moves and exhibiting silly antics. DSC 2760 is a social butterfly and is often found conversing with other employees and customers alike.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3427
+Description: DSC-MATE-3427 is a robot identified as a male real estate agent. The appearance of DSC-MATE-3427 is consistent with a humanoid robot, with a green cyclops eye, rainbow LED eyes, a purple cap with a headset, and a medical mask on its face. DSC-MATE-3427's ears have a gold earring attached and it is often seen wearing a red scarf as an accessory.

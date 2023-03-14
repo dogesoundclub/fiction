@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8175
+Description: DSC-MATE-8175 is a human male of average height and weight, with a distinct spotted pattern on their face. DSC-MATE-8175 is frequently seen wearing a green headpiece and a jade earring on their right ear. DSC-MATE-8175 is often seen wearing a red scarf and a standard gas mask despite not having respiratory issues. DSC-MATE-8175 exhibits a natural charisma and charm that can affect those in close proximity, often drawing attention to themselves through humorous situations or jokes.

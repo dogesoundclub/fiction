@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2544
+Description: DSC-MATE-2544 is a male Siberian Tiger who functions as a Mafia Boss. DSC-MATE-2544 displays sapience, able to communicate fluently in several languages. DSC-MATE-2544's most prominent feature is its VR Rainbow LED eyes which change colors depending on DSC-MATE-2544's mood. Additionally, DSC-MATE-2544 wears a gas mask despite not requiring it for breathing. DSC-MATE-2544 also carries a goggle on its forehead, a gold earring and a red scarf, which indicates a position of high authority within its organization.

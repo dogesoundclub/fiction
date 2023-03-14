@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1622
+Description: DSC-MATE-1622 is a male tiger, standing at approximately 1.8 meters tall and weighing 200 kilograms. DSC-MATE-1622 has a frightened expression on its mouth, and its eyes are replaced with VR Rainbow LED. DSC-MATE-1622 wears a purple cap with a headset, a gold earring, a gold chain and carries a whistle around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7384
+Description: DSC-MATE-7384 is a male human identified as a real estate agent, operating under the cover name of Jonathan Smith. DSC-MATE-7384 is known for his outgoing and social personality, enjoying being the center of attention. DSC-MATE-7384's physical appearance includes a purple cap with a headset, nerd glasses, green cross earring, and a silver chain. DSC-MATE-7384 is also frequently seen wearing a normal gas mask.

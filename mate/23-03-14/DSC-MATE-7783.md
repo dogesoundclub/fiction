@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7783
+Description: Subject 7783 is a male Lop-eared Rabbit of average size and weight. It speaks English fluently and is certified as a licensed veterinarian. It has a frightened expression on its face, and its mouth remains in a state of constant agitation. Its glasses are for near-sightedness which it has not been contained for, as they are deemed non-threatening to its containment.

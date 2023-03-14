@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4073
+Description: Subject 4073 appears to be a human male with an unusual set of features. They have orange stripes on their face and sport a constant smile. Their eyes are covered by nerd glasses and they have a not arranged green head. Subject 4073 also wears a gold earring, a red scarf, and is often seen with a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8413
+Description: Subject 8413 is a humanoid entity resembling a human male with various clown-inspired features. The subject stands at 6'2" with a weight of approximately 190lbs. The subject wears a Doge hat and has a clown mouth, red victory band on the forehead, and blue clown eyes. The ears have gold earrings, and the subject wears a gold chain as an accessory.

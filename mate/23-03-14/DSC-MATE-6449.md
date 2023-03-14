@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6449
+Description: Subject 6449 appears to be a male human, approximately 28 years of age with spots scattered across their face. Their permanent smile is an unnerving sight for all who encounter them. Their eyes are a distinctive blue clownish shade, and they often accessorize with a doge hat and a jade earring. The subject also always carries a silver chain and a candy stick. 

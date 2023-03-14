@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6219
+Description: DSC-MATE-6219 is a human female of average height and build with orange stripes on their face, a red lip, and normal glasses for eyes. DSC-MATE-6219's head is a metal blue color, and they wear gold earrings and a gold chain as accessories, along with a normal gas mask.

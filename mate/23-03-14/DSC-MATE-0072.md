@@ -1,0 +1,2 @@
+ID # : DSC-MATE-72
+Description: Subject 72 is a male humanoid of the species Homo sapiens with distinguishing features including a prominent mouth spot and a hairstyle commonly known as a mohawk. Additionally, Subject 72 has a green cross earring on their left ear and a silver chain around their neck that adorn their appearance.

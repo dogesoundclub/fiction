@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5520
+Description: Subject 5520 is a human male with numerous distinctive physical features. The subject is often seen wearing a bucket hat with a red victory band on their forehead, and sporting a silver chain around the neck. The subject also has numerous spots on his face and a perpetually happy smile, which can be disconcerting when combined with their blue clown eyes. The most notable accessory is a lit cigarette, which never seems to burn down.

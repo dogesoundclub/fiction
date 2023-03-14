@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9631
+Description: DSC-MATE-9631, commonly known as "The Stripe," is a female human of average height and weight with distinct orange stripes on her face. She often wears a jade earring in one ear and a silver chain around her neck. DSC-MATE-9631's anomalous effect is her ability to empathize deeply with others, often resulting in emotional outbursts or tearful reactions when exposed to the pain and suffering of those around her.

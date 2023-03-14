@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2221
+Description: DSC-MATE-2221 is a green, robot real estate agent with one large, green cyclops eye. It has a pair of ski goggles which serve as its eyes, and wears a not arranged green head. A red cross earring is attached to each ear, and it wears a silver chain and carries a whistle as accessories.

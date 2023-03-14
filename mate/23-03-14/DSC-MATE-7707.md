@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7707
+Description: DSC-MATE-7707 appears to be a human female in her mid-30s, standing at approximately 5'6" with a slender build. The subject's most notable feature is her orange eyebrow lenses, which emit a dim glow in low-light situations. DSC-MATE-7707's head has been replaced with a metal blue prosthetic, which allows for a wider range of facial expressions and greater articulation when speaking.

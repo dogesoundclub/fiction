@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1220
+Description: Item 1220 is a female human, identified as a banker with a strong sense of duty and responsibility. The subject's face features spots, with orange eyebrows and a head that appears to be made of metal and is blue in color. The forehead features a two-color band, while the ears are adorned with a red cross earring. Two accessories are also present, a silver chain, and a standard gas mask.

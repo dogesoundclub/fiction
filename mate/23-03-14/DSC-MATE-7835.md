@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7835
+Description: DSC-MATE-7835 appears to be a humanoid robot consisting of various metallic components. Its head is covered with a red beanie, while its mouth is concealed behind a medical mask. Perhaps the most distinctive feature of this DSC is the red scarf it wears around its neck. Despite its mechanical nature, DSC-MATE-7835 displays a distinct personality, which has been described as rebellious and boundary-pushing.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7715
+Description: DSC-MATE-7715 is a human female with orange stripes on their face and 90s brown hair. They possess red clown eyes and a permanent smile on their face. DSC-MATE-7715 is known to wear a red cross earring and an LED gas mask as their accessory. They are the leader of a powerful mafia organization.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-210
+Description: DSC-MATE-210 is a human female of indeterminate age, standing at approximately 162 cm in height and weighing roughly 55 kgs. It has short hair, which is dyed a dark shade of purple, and is always seen wearing a gold chain. DSC-MATE-210's most unusual feature is the red clown-like eyes combined with bright red lipstick, which gives it a distinct and unusual appearance. It has a red cross earring worn on its right earlobe.

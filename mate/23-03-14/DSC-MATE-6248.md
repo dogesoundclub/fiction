@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6248
+Description: DSC-MATE-6248 is a humanoid robot with a physician specialization. Its appearance consists of green hair in a purple cap, nerdy glasses as its eyes, accessorized with a red scarf and an LED gas mask. DSC-MATE-6248 has capabilities that make it very useful in the medical field, including precise surgical maneuvers and diagnostic accuracy.

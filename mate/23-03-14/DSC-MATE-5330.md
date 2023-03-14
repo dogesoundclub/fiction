@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5330
+Description: Subject 5330 appears as a female human in her mid-twenties, with striking orange stripes on her cheeks and purple lips. Her eyebrows are also orange, and her hairstyle and dressing resemble the 00s school girl era. She is often seen wearing a gold chain and a lit cigarette. Her ears sport dangling gold earrings.

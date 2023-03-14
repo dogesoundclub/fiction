@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7578
+Description: DSC-MATE-7578 appears to be a human female with unusual facial features, highlighted by purple lips and clown-like blue eyes framed by spots on her face. The subject is always seen wearing a purple cap with a headset, with a two-color band on her forehead, and gold earrings. The subject also sported a choker and a gas mask for protective measures.

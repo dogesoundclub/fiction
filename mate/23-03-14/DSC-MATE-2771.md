@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2771
+Description: Subject 2771 appears to be a male Siberian Tiger, standing at approximately 6 feet in height and weighing over 500 pounds. Despite his intimidating appearance, he presents a surprisingly relaxed and laid-back disposition, often approaching his handlers with an almost playful attitude. 

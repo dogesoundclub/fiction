@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9812
+Description: Subject 9812 appears to be a male rabbit with a confident, almost arrogant demeanor. It is approximately 45 cm in length, with brown and white fur and piercing eyes framed by a pair of nerd glasses. Subject 9812 is often seen wearing a hoodie, partially covering its head.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2800
+Description: DSC-MATE-2800 is a humanoid individual of the female sex, with orange stripes visible on their face and a red lip. They wear a bucket hat and normal glasses covering their eyes, with a pair of goggles resting on their forehead. DSC-MATE-2800 also has a green cross earring and a choker as accessories, as well as a cigarette in their possession.

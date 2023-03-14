@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3799
+Description: DSC-MATE-3799 appears to be a male humanoid robot standing at 6'1" tall. He is primarily constructed of metallic components painted in an emerald-green hue with police cap bearing the word "Press" emblazoned upon it. DSC-MATE-3799's eyes consist of nerd glasses, while a jade earring can be observed on his right earlobe. He is notably adorned with a Gold Chain around his neck, which is believed to be immovable.

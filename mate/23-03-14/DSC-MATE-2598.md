@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2598
+Description: DSC-MATE-2598 appears to be a human female of an unknown ethnicity, standing at 5'6" with a slim build. The subject is often seen wearing a fast-food worker uniform from a popular chain in the United States. The subject has spots on their face, with the most noticeable feature being their red lips. Its clown eyes are red in colour and it has a 2-colour band on its forehead. It wears green cross earrings, a silver chain and often carries a cigarette. 

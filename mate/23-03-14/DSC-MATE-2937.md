@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2937
+Description: Subject 2937 is a male tiger of the Bengal subspecies. What appears to be a police cap is affixed to the top of its head, and it wears a gold earring in its right ear. Its facial features are unusual, with a frightened mouth and piercing red clown eyes that add to its intimidating presence.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3072
+Description: DSC-MATE-3072 is a human female of average height and build, with distinctive spots on their face and a red lip. They wear normal glasses and a retro cap on their head, and a jade earring on each of their ears. DSC-MATE-3072 often accessorizes with a choker, and a LED gas mask.

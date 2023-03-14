@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5093
+Description: Item #5093 is a male human of average height and weight. Its most notable feature is its red clown eyes, which are believed to have manifested after its exposure to an unknown anomalous artifact. Its head is of a normal blonde color and it is often seen wearing a medical mask to conceal its identity. Item #5093 also sports a jade earring and a red scarf which it wears at all times.

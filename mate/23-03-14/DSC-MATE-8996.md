@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8996
+Description: DSC-MATE-8996 appears to be a human female of approximately 32 years of age, standing at 167cm tall and weighing around 65kg. They have blonde hair with an odd feature of a wing growing from the back of her head. Other distinctive features include red lips and spots on her face. A silver chain necklace and gold earrings are among the personal possessions they are allowed to keep on a regular basis.

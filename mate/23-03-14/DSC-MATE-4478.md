@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4478
+Description: DSC-MATE-4478 is a female human identified as a Mafia Boss by profession. The entity presents with orange stripes on their face and VR jade LED eyes. DSC-MATE-4478 appears in public in blonde ushanka headwear and green cross earrings. DSC-MATE-4478 also wears a distinctive choker and is frequently seen with a cigarette in hand. It is currently unknown if these accessories hold any anomalous properties, but they seem to be of importance to DSC-MATE-4478's identity and behavior.

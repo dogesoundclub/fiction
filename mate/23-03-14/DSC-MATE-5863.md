@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5863
+Description: Subject 5863 is a human male of average height and build, with a friendly smile and ski goggle-like eyes. They often wear a retro cap and have a goggle on their forehead. Despite their jovial appearance, Subject 5863 is highly empathetic and compassionate, often taking on other people's problems as their own. This behavior can be both a strength and a weakness, as it can lead to stress and exhaustion when they feel responsible for fixing everything and everyone around them.

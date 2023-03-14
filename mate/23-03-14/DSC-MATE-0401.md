@@ -1,0 +1,2 @@
+ID # : DSC-MATE-401
+Description: DSC-MATE-401 is a human male of average physical build, standing at approximately 5'11" in height. DSC-MATE-401's most defining physical feature is a pattern of spots that adorn his left cheek and eyebrow. DSC-MATE-401's hair is dyed green and regularly styled in a purple cap. He is often seen wearing a red victory band on his forehead and a jade earring on his right ear.

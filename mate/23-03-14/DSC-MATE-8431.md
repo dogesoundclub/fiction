@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8431
+Description: DSC-MATE-8431 appears to be a typical human female with spots covering its face and a pair of purple lips. Its eyes are also unique, possessing orange irises and eyebrows. The subject's head is of a witch's short cut, and it has a two-colored band on its forehead. Additionally, there is a pair of goggles resting on top of the band.

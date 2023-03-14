@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1949
+Description: Subject 1949 is a male humanoid creature of the species Panthera Tigris with a visibly frightened mouth and red clown eyes. He is adorned in a black hoodie with a red victory band on his forehead, and his mouth is covered by a medical mask. He wears a silver chain around his neck. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8918
+Description: DSC-MATE-8918 is a male robot identified as a beautician by profession. Its physical appearance is characterized by a distinctive green Cyclops eye situated above its frightened mouth. It wears a short peak cap and jade earring as its primary ear accessory, and normal glasses serving as its secondary “eyes”. DSC-MATE-8918 appears to be wearing a gold chain around its neck. 

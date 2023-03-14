@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5971
+Description: DSC-MATE-5971 is a locomotive train driver, with blue and yellow paint job, who seems to be able to operate the train and communicate with humanoid entities as per their duties. DSC-MATE-5971 has a humanoid-like body with a ski goggle on eyes, blue bandana on the head, and a gold earring attached to either ear. It has a silver chain hanging around its neck which it proudly flaunts.

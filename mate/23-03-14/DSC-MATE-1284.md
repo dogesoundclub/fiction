@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1284
+Description: Item 1284 is an anomalous monkey of the capuchin species, standing at approximately 1 meter tall and weighing approximately 3 kg. Due to its exceptional empathy, Item 1284 has been given the job of a fashion designer to keep its emotions, energy, and compassion in check.

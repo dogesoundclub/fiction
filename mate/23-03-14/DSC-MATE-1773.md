@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1773
+Description: 1773 is a male humanoid of the Homo sapiens species. The subject's most distinct feature is their vibrant orange stripes, which cover various parts of their body. They also have a purple cap with a headset and a jade earring. 1773's eyes are equipped with VR Rainbow LED technology, capable of projecting various images and symbols to aid with their work as a mechanic.

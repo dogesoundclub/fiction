@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1125
+Description: DSC-MATE-1125 is a male human of average height and build. It is distinguishable by a black spot on its mouth and red clown eyes that are said to induce feelings of fear and dread in those who make direct eye contact. DSC-MATE-1125 has a bald head, resembling that of a monk, and features a single gold earring in its left ear. It is commonly seen wearing a red scarf.

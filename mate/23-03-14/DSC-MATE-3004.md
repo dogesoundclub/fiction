@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3004
+Description: DSC-MATE-3004 is a human male with distinctive orange stripes on their face that resemble electrical circuits. Their mouth is often in a frightened expression, and they wear a medical mask which covers their nose and mouth. DSC-MATE-3004's eyes are equipped with VR Rainbow LED technology, which can project and display various images and colorful patterns. They also wear a police cap and a jade earring on one ear.

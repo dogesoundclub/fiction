@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8434
+Description: DSC-MATE-8434 is a humanoid rabbit with distinctive red eyes resembling clown makeup. DSC-MATE-8434 wears a blue bandana around its head decorated with various folkloric symbols. It also wears a silver chain around its neck and a jade earring in its left ear. DSC-MATE-8434 carries a candy stick in its left hand at all times.

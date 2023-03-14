@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9707
+Description: Subject 9707 is a female human with several anomalous features. Their face is adorned with distinct orange stripes, which extend from their eyebrows to their cheeks. They possess an orange eyebrow, and their blonde hair is styled with a wing. Their forehead contains a unique two-color band that has not been observed on any other human. Subject wears a choker and often smokes cigarettes as a mannerism.

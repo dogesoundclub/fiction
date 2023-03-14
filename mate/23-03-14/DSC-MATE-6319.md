@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6319
+Description: Item 6319 appears to be an average human male in his mid-30s. He has parted pink hair and wears a pair of nerd glasses over his orange striped face. He also sports a green cross earring in one ear, along with a gold chain and a candy stick as accessories.

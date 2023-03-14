@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7864
+Description: DSC-MATE-7864 is a male tiger with characteristic blue bandana and red cross earring on its left ear. The specimen's physical attributes are consistent with that of a common Bengal tiger, with no apparent anomalies in its biology or physiology. DSC-MATE-7864 weighs approximately 180kg and stands at a height of 2.1m.

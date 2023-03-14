@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8788
+Description: DSC-MATE-8788 is a male robot doctor with a rainbow VR LED screen for eyes. It wears a red beanie on its head, a gold earring on its left ear, and a gold chain around its neck. DSC-MATE-8788 has an ambitious and goal-oriented personality that drives it to take on more responsibilities than it can handle. However, thanks to its strategic thinking and excellent organizational skills, DSC-MATE-8788 manages to execute its duties effectively.

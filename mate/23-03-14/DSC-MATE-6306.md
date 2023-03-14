@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6306
+Description: DSC-MATE-6306 is a male robot with a humanoid appearance, standing at 1.8 meters tall. DSC-MATE-6306's head is adorned with a retro cap, and it wears a red scarf and holds a cigarette in its hand at all times. Despite its mechanical nature, DSC-MATE-6306 exhibits a range of human-like emotions and behaviors, including speech, facial expressions, and body language.

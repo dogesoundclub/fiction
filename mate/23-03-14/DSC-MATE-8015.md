@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8015
+Description: DSC-MATE-8015 appears to be a male rabbit with VR Rainbow LED eyes. DSC-MATE-8015 wears a bucket hat, with a goggle on their forehead, a gold earring, a silver chain around their neck, and often seen holding a cigarette. Despite their small size, DSC-MATE-8015 demonstrates high level of intelligence, especially in programming. 

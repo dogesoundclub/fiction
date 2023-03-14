@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5768
+Description: Subject 5768 is a female human, distinguished by her unique facial features. She has spots on her face and red lips, along with striking blue clown eyes. Her head is adorned with a bucket hat and a two-color band sits on her forehead. Her ears are pierced with a green cross earring and she wears a silver chain as an accessory.

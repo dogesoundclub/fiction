@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4468
+Description: DSC-MATE-4468 is a human female with a unique appearance. They have bright red clown eyes and purple lips, as well as a set of wings protruding from their blonde hair. In addition, they wear a red cross earring on their left ear.

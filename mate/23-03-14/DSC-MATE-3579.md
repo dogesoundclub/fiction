@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3579
+Description: DSC-MATE-3579 is a human female with distinct orange stripes on their cheeks. Their eyes are replaced with VR jade LED lenses, and they often wear a goggle on their forehead. They wear a tiara on their head and a gold chain around their neck.

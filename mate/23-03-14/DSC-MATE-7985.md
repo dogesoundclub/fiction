@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7985
+Description: DSC-MATE-7985 is a human male, approximately 35 years old, standing at a height of 185 cm and weighing approximately 90 kg. DSC-MATE-7985's face is covered in various spots of unknown origin. DSC-MATE-7985's eyes are blue clown eyes, lacking a visible iris and white sclera. DSC-MATE-7985 has a police cap on its head and wears a medical mask over its mouth. DSC-MATE-7985 also has a gold earring in its left ear.

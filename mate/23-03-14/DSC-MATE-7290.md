@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7290
+Description: DSC-MATE-7290 appears to be a human male in his mid-thirties, standing at approximately 1.83 meters tall and weighing 95 kilograms. DSC-MATE-7290 has a distinctive Mouth Spot on his chin, which appears to be a pigmented mole. DSC-MATE-7290 also wears normal glasses and a red scarf around his neck. On his forehead, DSC-MATE-7290 wears a pair of goggles, which they state are for aesthetic purposes only. DSC-MATE-7290's ears bear a gold earring.

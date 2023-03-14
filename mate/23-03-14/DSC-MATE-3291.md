@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3291
+Description: DSC-MATE-3291 is a human female with a charming smile that has often been used to get her way. While her appearance is unremarkable, she is distinguishable by her red cross earring, and the constant presence of a cigarette. DSC-MATE-3291's eyes are obscured by normal prescription glasses, but no abnormalities have been noted in her vision.

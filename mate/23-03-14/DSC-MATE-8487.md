@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8487
+Description: DSC-MATE-8487 is a human female in her early thirties, standing at 1.63 meters and weighing 60.7 kilograms. Despite the seemingly mundane appearance, DSC-MATE-8487 possesses several unusual physical features. DSC-MATE-8487's head is adorned with a single wing extending from the right side of her skull. The iris of DSC-MATE-8487's eyes emit a series of VR Rainbow LED lights that constantly shift in pattern, which is yet to be fully understood. DSC-MATE-8487's ears display a green cross earring on the right earlobe.

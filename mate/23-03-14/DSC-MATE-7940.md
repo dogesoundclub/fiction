@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7940
+Description: DSC-MATE-7940 appears to be a human female of average build and height, with distinct orange stripes across her face. Her head is adorned with green hair in a purple cap, and she is often seen sporting a silver chain and smoking a cigarette. DSC-MATE-7940's appearance is usually unremarkable, save for her striking features.

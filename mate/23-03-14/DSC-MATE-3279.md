@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3279
+Description: DSC-MATE-3279 is a male rabbit, standing approximately 60 cm tall. DSC-MATE-3279's face features a frightened expression, with its mouth perpetually agape. It wears a pair of normal glasses over its eyes, and a pair of goggles on its forehead. DSC-MATE-3279 sports a single gold earring on its left ear, and a gold chain around its neck. DSC-MATE-3279 also carries a whistle as an accessory.

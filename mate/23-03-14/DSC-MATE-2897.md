@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2897
+Description: DSC-MATE-2897 appears to be a human female in their mid-30s. Notable features include red clown eyes and a constant smile. DSC-MATE-2897 is often seen wearing a pair of goggles on their forehead. Their attire tends to be casual, often consisting of a leather jacket and jeans. They are known to carry a gold chain and a cigarette.

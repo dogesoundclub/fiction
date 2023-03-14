@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4017
+Description: DSC-MATE-4017 is a human male identified as a local farmer residing in the aforementioned rural locale. DSC-MATE-4017 possesses peculiar physical characteristics such as orange stripes on the face, red clown eyes, a peak spike on the head, and a medical mask covering the mouth.

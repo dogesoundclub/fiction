@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8239
+Description: DSC-MATE-8239 is a male fashion designer with spots on his face and frightened mouth. He sports a pair of red clown eyes, a short peak cap on his head, and a green cross earring on each ear. He wears a gold chain around his neck and carries a normal gas mask as his main accessory. Despite his unusual appearance, DSC-MATE-8239 is a human.

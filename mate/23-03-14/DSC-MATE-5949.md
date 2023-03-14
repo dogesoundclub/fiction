@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5949
+Description: Item 5949 is a male robot resembling a humanoid figure. The robot is equipped with a green cyclops eye, and a frightened mouth. The head of the robot is adorned with green hair under a purple cap, and the ears boast of a jade earring. Wearing a red scarf and a standard gas mask as the accessories, the robot appears to be well suited for its job as a politician. However, its overall appearance is deemed alarming to anyone who has never encountered a robot before.

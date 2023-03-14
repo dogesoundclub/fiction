@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8676
+Description: Item #8676 is a female human with distinctive orange stripes on her face and an orange side on her head. She wears a medical mask over her mouth and a gold earring in each ear. A silver chain is also worn around her neck.

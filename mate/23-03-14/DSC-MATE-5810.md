@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5810
+Description: DSC-MATE-5810, also known by its alias 'the Mechanic,' is a human male standing at 1.83 meters in height, weighing approximately 80 kilograms. DSC-MATE-5810 displays no anomalous physical characteristics, save for its jade earring on the left ear, a silver chain around its neck, and a cigarette perpetually in its mouth.

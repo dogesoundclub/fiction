@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5150
+Description: Subject 5150 is a human female in her early thirties with distinctive features that include purple lips, normal glasses, blonde hair in an ushanka, and a two-color band across her forehead. Subject 5150 is also known to wear jade earrings and a gold chain as accessories.

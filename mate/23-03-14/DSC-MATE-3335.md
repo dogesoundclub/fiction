@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3335
+Description: DSC-MATE-3335 is a male human identified as a banker by profession. The subject possesses ski goggles for eyes and a jade earring on each earlobe. Additionally, DSC-MATE-3335 has a goggle attached to their forehead at all times and adorns a gold chain which is visible around their neck.

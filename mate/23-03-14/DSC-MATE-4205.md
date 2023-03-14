@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4205
+Description: DSC-MATE-4205 is a human female lawyer with clown-like features. She stands at 5'5" tall and weighs approximately 135 pounds. DSC-MATE-4205's most notable feature is her bright red clown eyes, which emit a hypnotic effect that can cause those who look into them to become disoriented and suggestible. Her face is almost always adorned with a smile, and she wears a bucket hat and a medical mask to conceal her features. DSC-MATE-4205 also wears a jade earring and a silver chain.

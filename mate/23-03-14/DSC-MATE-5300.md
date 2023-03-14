@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5300
+Description: DSC-MATE-5300 is a male Siberian Tiger standing at 6'3" with a slender build. DSC-MATE-5300’s human appearance is fashioned with a red beanie hat atop his striped head, gold hoops in his ears, and horned rim glasses over his steely blue eyes. DSC-MATE-5300 typically sports a black suit and tie for his on-air appearances.

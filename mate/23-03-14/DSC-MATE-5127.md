@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5127
+Description: DSC-MATE-5127 is a female human of average height and weight. Its most distinct feature is its spotted face, coupled with a permanently fixed smile. DSC-MATE-5127's eyes are large and red, resembling those commonly seen on clowns. Its head is adorned with a rainbow festival cap, and it wears a choker necklace paired with a normal gas mask to cover its nose and mouth. DSC-MATE-5127's ears have green cross earrings.

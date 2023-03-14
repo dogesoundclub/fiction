@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1010
+Description: DSC-MATE-1010 is a humanoid female of average height and weight with a unique appearance. DSC-MATE-1010's face features orange stripes and a constant smile. The eyebrows are orange, and the head resembles that of a pink rabbit. DSC-MATE-1010 has a two-color band on their forehead and jade earring for ears.

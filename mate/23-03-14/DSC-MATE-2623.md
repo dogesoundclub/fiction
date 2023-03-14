@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2623
+Description: Item 2623 is a human female identified as a train driver. She sports a unique purple cap with a headset, and her face is marked with spots. Item 2623 can be recognized by her normal glasses and gold earring, and she often wears a silver chain around her neck.

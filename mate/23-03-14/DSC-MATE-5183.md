@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5183
+Description: Subject 5183 is a male rabbit-like humanoid with Horned Rim Glasses for eyes, a Doge Hat for a head, and a Gold Earring on each ear. The subject is often seen wearing a Red Scarf as an accessory, but its function is unknown. The subject's appearance may evoke whimsical or child-like sentiments, but do not be deceived by its outward appearance.

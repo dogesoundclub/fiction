@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8393
+Description: DSC-MATE-8393 is a male tiger with a red beanie on its head and a red cross earring on its left ear. It speaks fluent English and has the physical appearance of a humanoid tiger. It is a successful politician with a love for adventure, often taking risks and trying new things. DSC-MATE-8393 has been known to survive near-death experiences while bungee jumping and accidentally getting lost in the wilderness. It has a constant expression of a frightened mouth, which is at odds with its confident and daring personality.

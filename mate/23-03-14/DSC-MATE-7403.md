@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7403
+Description: DSC-MATE-7403 is an electrician robot that resembles a humanoid figure. It stands at 6 ft, 5 in, weighing 200 kgs. DSC-MATE-7403's physical features consist of a green cyclops eye, normal glasses as eyes, green hair with a purple cap on its head, jade earring in its left ear, and a medical mask to cover its mouth. Its primary control and maintenance unit are located in its chest cavity.

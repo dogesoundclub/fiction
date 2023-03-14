@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5773
+Description: Item 5773 is a male human, identified as an electrician. The item possesses numerous unusual physical features, including orange stripes on his face, red clown eyes, and a purple cap with a headset. On his forehead, there is a goggle-like device that appears to be non-functional. He also has a green cross earring on one of his ears.

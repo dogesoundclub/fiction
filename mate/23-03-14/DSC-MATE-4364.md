@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4364
+Description: DSC-MATE-4364 is a humanoid entity resembling a fast food worker, with a visible green Cyclops eye and frightened mouth as facial features. Its eyes feature VR jade LED and wears a police cap on its head with a red cross earring on each ear. DSC-MATE-4364 also sports a gold chain and cigarette as accessories which appear non-functional.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9031
+Description: DSC-MATE-9031 is a human male, approximately 35 years old, with orange stripes on their face. It possesses green cross earrings and a red scarf. DSC-MATE-9031 has an affinity for smoking and carries a cigarette at all times. DSC-MATE-9031 is a train driver for a metro rail transit system in [REDACTED]. It is generally friendly but is known to be a scatterbrain, a common trait among some humans.

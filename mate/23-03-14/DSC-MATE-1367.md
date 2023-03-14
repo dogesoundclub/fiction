@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1367
+Description: DSC-MATE-1367 is a humanoid male of unknown age and origin, currently working as a banker. DSC-MATE-1367's most distinctive features are a spot on the corner of its mouth, ski goggles in place of eyes, and a jade earring attached to its left ear. DSC-MATE-1367 also wears a silver chain and carries a candy stick on its person at all times.

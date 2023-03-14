@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6184
+Description: DSC-MATE-6184 appears to be a male human with green hair and VR rainbow LED eyes. Notable features include spots on their face and a frightened mouth expression. DSC-MATE-6184 wears a medical mask at all times and a silver chain around their neck. They also have a green cross earring on their right ear.

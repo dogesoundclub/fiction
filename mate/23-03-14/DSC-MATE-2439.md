@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2439
+Description: 2439 is a male rabbit of unknown origin. Its face displays a frightened expression at all times, and its eyes are covered with ski goggles. Its head is adorned with green hair in a purple cap, and it is often seen wearing a red scarf around its neck.

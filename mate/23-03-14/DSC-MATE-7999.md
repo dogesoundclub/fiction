@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7999
+Description: DSC-MATE-7999 is a male human of Caucasian descent, approximately 32 years of age. The subject stands at 1.8 meters in height and weighs approximately 80 kilograms. DSC-MATE-7999 possesses a unique facial feature consisting of a black spot on the upper-right corner of the mouth, which is believed to be a congenital birthmark. Additionally, DSC-MATE-7999's mouth exhibits a frightened expression, even when the subject is not in distress.

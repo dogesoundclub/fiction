@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4216
+Description: DSC-MATE-4216 is a sentient human male with orange stripes on its face. It wears a silver chain and frequently smokes cigarettes. DSC-MATE-4216 is a known Mafia Boss, exhibiting a high level of charisma and ability to connect with others, particularly those in the criminal underworld. DSC-MATE-4216's ability to influence and manipulate others has led to a number of humorous situations, often resulting in DSC-MATE-4216 gaining access to sensitive information or resources.

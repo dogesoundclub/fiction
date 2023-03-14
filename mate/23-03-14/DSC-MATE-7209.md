@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7209
+Description: DSC-MATE-7209 is a humanoid species known as ‘Politician’. DSC-MATE-7209 appears to be a male human, with distinct facial features that are marked by orange stripes. DSC-MATE-7209 typically wears a retro cap, a green cross earring, a red scarf, and a gas mask, regardless of environmental conditions. DSC-MATE-7209’s behavior is characterized by a rebellious streak, which often leads to bending or breaking rules for the sake of amusement.

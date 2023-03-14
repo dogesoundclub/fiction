@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7640
+Description: DSC-MATE-7640 is a male monkey identified as a banker by its job title. Its physical appearance is unique due to the horned rim glasses it wears over its large, expressive eyes, and its pink hair parted to one side. DSC-MATE-7640 also sports a silver chain around its neck and is often seen carrying a candy stick in its hands.

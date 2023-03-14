@@ -1,0 +1,2 @@
+ID # : DSC-MATE-896
+Description: DSC-MATE-896 is a sapient male Bengal Tiger. It stands at an average of 3 meters in length and weighs approximately 200 kg. DSC-MATE-896 is notable for its unusual eyes; its irises are uniformly blue in color and appear to be clown make-up. It also wears a headset with LED lights and a gold chain, and it frequently carries a candy stick with it.

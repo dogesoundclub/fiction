@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9470
+Description: DSC-MATE-9470 is a human male who works as a theater manager. He has a clown mouth, red clown eyes, and a two-color band on his forehead along with a goggle on his forehead. DSC-MATE-9470 is often seen wearing a gold chain and cigarette.

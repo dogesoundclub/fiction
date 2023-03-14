@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6037
+Description: DSC-MATE-6037 is a human female who identifies herself as a car salesman. DSC-MATE-6037's most distinctive feature is the presence of spots on her face, coupled with a purple lip color. DSC-MATE-6037's eyes are red in color which resemble that of a clown. DSC-MATE-6037 covers her head with a hoodie and wears a medical mask over her mouth to conceal her facial features. She wears a silver chain on her neck as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2176
+Description: DSC-MATE-2176 is a male tiger measuring approximately 240 cm in total length and weighing 270 kg. DSC-MATE-2176 displays cognitive abilities that exceed those found in regular animals. DSC-MATE-2176 assumes the identity of a medical doctor, dressing in a hoodie and a red scarf, and carrying a candy stick in his mouth. The goggles that DSC-MATE-2176 wears over their eyes obscure their visual perception, but enhance their sense of smell and hearing.

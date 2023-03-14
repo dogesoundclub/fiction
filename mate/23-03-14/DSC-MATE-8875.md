@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8875
+Description: DSC-MATE-8875 is a humanoid with a monkey-like appearance. It stands at 1.2m tall and weighs approximately 50kg. DSC-MATE-8875 is known to wear a Doge hat on its head and a pair of horned-rimmed glasses over its eyes. DSC-MATE-8875 also wears a jade earring on each ear, a red scarf around its neck, and a normal gas mask.

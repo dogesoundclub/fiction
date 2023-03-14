@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5424
+Description: DSC-MATE-5424 is a mature male monkey, known to the Foundation as a farmer. DSC-MATE-5424's face features include a constant frightened expression, with shade glasses covering its eyes. Its head is adorned with normal black hair and a jade earring on each ear. DSC-MATE-5424 also wears a red scarf as its accessory.

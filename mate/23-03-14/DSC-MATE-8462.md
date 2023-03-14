@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8462
+Description: DSC-MATE-8462 is a human female identified as a news anchor for a local news station. DSC-MATE-8462 exhibits orange stripes on their face and orange eyebrows, which are said to change colors depending on the emotional state of DSC-MATE-8462. Their head is often seen wearing a hoodie and adorned with a silver chain that has yet to show any anomalous effects.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7008
+Description: Subject 7008 is a male human of average height and build. The subject's face is characterized by a smattering of spots and blemishes. The subject displays a perpetually frightened mouth, which only adds to his already anxious and uneasy demeanor. The subject's eyes are concealed behind a pair of thick nerd glasses, and his head is obscured by a worn police cap. Subject 7008 is often seen sporting a red scarf and carrying a candy stick.

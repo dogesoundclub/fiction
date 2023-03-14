@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6661
+Description: Subject 6661 is a humanoid male with distinctive orange stripes on his face. He wears a medical mask and glasses. His head is covered by a hoodie, and he wears a gold chain around his neck. Subject 6661 exhibits a fondness for music and art that evoke strong emotions.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3847
+Description: Subject 3847 is a physically insignificant primate resembling a Rhesus monkey with ski goggles for eyes, a gray hoodie for a head, a red scarf for a necktie and an LED gas mask clasped to his mouth. Despite its outwardly peculiar appearance, subject 3847 is very intelligent and can speak fluently in English as well as sign language.

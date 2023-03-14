@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7626
+Description: Doctor 7626 appears as a cheerful, rainbow-colored individual with a contagious smile. Her eyes are obscured by normal glasses, and she often sports a green cross earring. They are often seen with a silver chain around her neck and a cigarette in her hand. Despite her playful demeanor, Doctor 7626's dry humor can catch people off guard with its unexpected wit. They have a way of delivering deadpan jokes that can be surprisingly funny. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4094
+Description: DSC-MATE-4094 is a male Tiger of undetermined age and origin, working as a Train Driver for a passenger railway company in North America. DSC-MATE-4094 appears humanlike, wearing a hoodie with a red scarf accessory. The true nature of DSC-MATE-4094's eyes is unknown as they are hidden behind the hoodie. DSC-MATE-4094 exhibits no abnormal physical traits in regards to his species, aside from his humanoid appearance.

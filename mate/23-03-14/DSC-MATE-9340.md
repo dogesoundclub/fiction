@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9340
+Description: DSC-MATE-9340 is a robot of unknown origin that has taken the form of a male veterinarian. It stands at approximately 175 centimeters tall and weighs approximately 80 kilograms. DSC-MATE-9340 displays several facial features, including a frightened mouth and a purple cap with a headset. It also has jade earrings and a red scarf as additional accessories.

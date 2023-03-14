@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4331
+Description: DSC-MATE-4331 is a male human of average height and build, working as a banker in a local bank in ███████, USA. DSC-MATE-4331's most notable physical features include a mouth spot, blue clown eyes, and an unarranged green head. DSC-MATE-4331 also has a notable forehead feature consisting of two-colored band and green cross earring attached to each ear. DSC-MATE-4331 is usually seen wearing a gold chain and smoking a cigarette.

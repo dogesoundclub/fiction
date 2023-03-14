@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4618
+Description: DSC-MATE-4618 is a male monkey delivery driver. DSC-MATE-4618 stands approximately 1 meter tall and weighs approximately 15 kilograms. DSC-MATE-4618 bears a police cap on its head and horn-rimmed eyeglasses over its eyes, and can be typically seen wearing a gold chain.

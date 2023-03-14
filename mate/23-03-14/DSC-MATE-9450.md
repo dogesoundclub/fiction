@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9450
+Description: DSC-MATE-9450 is a female train driver with distinctive orange stripes on their face. Their red clown eyes and Tiara give them a unique appearance. They wear a red cross earring and a choker as accessories. DSC-MATE-9450 usually has a cigarette in hand while on duty.

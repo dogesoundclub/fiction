@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5188
+Description: DSC-MATE-5188 is a male monkey of an unidentifiable species. DSC-MATE-5188's most notable facial feature is its frightened mouth, which is constantly agape. DSC-MATE-5188 wears normal glasses and has normal black hair. DSC-MATE-5188 also wears a goggle on its forehead and a jade earring in each ear. DSC-MATE-5188 often carries a candy stick, but it does not show any interest in consuming it.

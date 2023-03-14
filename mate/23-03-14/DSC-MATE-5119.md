@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5119
+Description: DSC-MATE-5119 is a male anthropomorphic rabbit, standing at approximately 2 feet tall. Its peculiar appearance is distinguished by a purple cap with a headset and a pair of nerd glasses. The rabbit's mouth is often found in a frightened state, possibly due to past trauma. DSC-MATE-5119 is often seen wearing a silver chain and a gold earring on its left ear.

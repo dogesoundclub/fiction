@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4736
+Description: Subject 4736 is a human female with bright orange stripes extending down either side of their face. Their ears are adorned with a red cross earring and they wear a pink rabbit headpiece. The subject is also seen wearing a medical mask and a black choker around their neck. When asked, subject 4736 claims to be a traffic officer, but there is no record of them being employed by any law enforcement agency or city council.

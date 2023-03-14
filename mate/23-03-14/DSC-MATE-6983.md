@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6983
+Description: DSC-MATE-6983 is a car salesman robot designed to resemble a human male. Its body is composed of green metal of unknown origin, and its one eye is a green cyclops feature. DSC-MATE-6983 wears a gold chain and carries a lit cigarette. Its mouth appears to be in a constant state of fear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8868
+Description: Subject 8868 is a human male believed to be in his mid-thirties. He sports a charming smile that is often used to disarm and manipulate unsuspecting individuals. His eyes are obscured by ski goggles, and a jade earring adorns his left ear. A medical mask is often worn over his mouth, making identification through facial recognition challenging at best.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5560
+Description: DSC-MATE-5560 is a human male of indeterminate age and ethnicity, standing at 183cm and weighing approximately 84kg. DSC-MATE-5560's most notable features are a set of bright orange stripes running down his cheeks and the bridge of his nose, as well as a red beanie on his head with a goggle attached. DSC-MATE-5560 is known to wear a gold earring in his left ear and a red scarf around his neck. DSC-MATE-5560 is almost always seen with a candy stick in his mouth.

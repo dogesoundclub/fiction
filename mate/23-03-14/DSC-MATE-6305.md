@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6305
+Description: DSC-MATE-6305 is a female human with several unique physical characteristics. DSC-MATE-6305 exhibits spotted skin patterns and wears a red lipstick. DSC-MATE-6305's eyes resemble those of a clown, appearing red in color. DSC-MATE-6305's head is covered in brown hair typical of the 1990s.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4977
+Description: Subject 4977 appears to be a male human with distinctive spots on their face. Their head is adorned with a traditional mohawk and they sport a gold earring on each ear. Subject 4977 is a notorious villain who is known to be dangerous and unpredictable. They value tradition and have a no-nonsense attitude towards anything that they consider to be disrespectful towards their community.

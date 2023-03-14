@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4297
+Description: DSC-MATE-4297 is a female human, standing at 170 centimeters in height with a slender build. She has distinct orange stripes on her face, along with a constant smile. Her eyes are obscured with normal glasses, and she wears a gold earring in each ear. DSC-MATE-4297 also adorns a silver chain around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4877
+Description: 4877 is a human female with unique and distinctive physical features. They possess spotted skin with a vibrant red lip that stands out against their features. Their eyes are a startling orange with eyebrows to match. The subject's hair is not arranged and is a vibrant shade of green. They are often seen wearing a choker.

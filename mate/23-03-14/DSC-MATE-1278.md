@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1278
+Description: 1278 appears to be a humanoid rabbit specimen. Its eyes are of an abnormal blue color, reminiscent of clown makeup. The subject also bears a curious thin two-color band atop its forehead and a pair of goggles resting atop its head. A small silver chain hangs around its neck while its ears are adorned with a golden earring. Additionally, a candy stick can often be found within its possession.

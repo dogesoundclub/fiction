@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8469
+Description: DSC-MATE-8469 is a 35-year-old male human, approximately 5'10" tall. They are a skilled mechanic, known to tinker with various machines and gadgets. DSC-MATE-8469 has a unique spot on their upper lip, resembling a birthmark or freckle, which has earned them the nickname "Mouth Spot." They typically wear a blue bandana on their head, and a red scarf as an accessory.

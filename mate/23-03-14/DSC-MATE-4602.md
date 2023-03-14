@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4602
+Description: DSC-MATE-4602 appears to be a standard human female, with the exception of a few distinct features. DSC-MATE-4602 wears a gold chain and a pair of jade earrings. She also has purple lip color and orange eyebrow color. On her blonde hair, DSC-MATE-4602 usually wears a ushanka with a two-color band. DSC-MATE-4602 works as a banker in ████████ City, and has exhibited no anomalous activity at her workplace.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7607
+Description: DSC-MATE-7607 is a male tiger-human hybrid, standing at approximately 6 feet tall on hind legs. DSC-MATE-7607 wears a Doge Hat and Nerd Glasses, giving it the appearance of a well-read intellectual. DSC-MATE-7607's face feature is a Frightened Mouth, accentuating its nervous and anxious nature.

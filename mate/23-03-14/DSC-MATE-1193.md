@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1193
+Description: DSC-MATE-1193 appears to be a human male in his mid-30s, standing at 5'10" and weighing approximately 180 pounds. The subject has distinctive spots on his face and a permanent smile. The subject's eyes resemble ski goggles and he wears a police cap on his head. DSC-MATE-1193 also has a Green Cross earring on one of his ears and is frequently seen smoking a cigarette.

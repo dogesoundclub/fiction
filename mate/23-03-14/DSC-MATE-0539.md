@@ -1,0 +1,2 @@
+ID # : DSC-MATE-539
+Description: DSC-MATE-539 is a male monkey of the species [REDACTED]. DSC-MATE-539 has blue clown eyes, which are an unusual feature for its species. DSC-MATE-539 is often seen wearing a police cap on its head along with a goggle on its forehead. DSC-MATE-539 is fond of accessorizing and is often seen wearing a gold earring, a red scarf, and smoking a cigarette.

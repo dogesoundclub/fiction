@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2083
+Description: DSC-MATE-2083 appears as a male humanoid tiger, standing approximately 6 feet tall. Its appearance is typical of a Bengal tiger, but possesses the ability to speak in clear English. DSC-MATE-2083 wears a blue bandana on its head and a red cross earring on its left ear. It is regularly seen wearing a silver chain around its neck, and often carries a cigarette in its hand.

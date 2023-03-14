@@ -1,0 +1,2 @@
+ID # : DSC-MATE-481
+Description: 481 appears to be a male human with green layers on the top of his head. He wears a goggle on his forehead and a jade earring on each ear. The subject tends to exhibit a highly detail-oriented personality, often becoming obsessive over organization and categorization. This trait is known to manifest in various ways, such as alphabetizing spice racks and color-coding closets.

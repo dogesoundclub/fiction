@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6040
+Description: DSC-MATE-6040 is a human male of average height and build with a distinctive appearance. He is adorned with orange stripes over his face, green layers on his head, jade earrings on his ears, and a gold chain around his neck. His most notable feature is a pair of blue clown eyes that glow in the dark. DSC-MATE-6040 is often seen smoking a cigarette and using his great sense of humor to entertain others.

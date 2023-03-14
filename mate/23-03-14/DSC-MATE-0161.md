@@ -1,0 +1,2 @@
+ID # : DSC-MATE-161
+Description: Subject appears to be a female human with purple lips and normal eyesight, who wears a medical mask to cover their mouth. The subject's head is decorated with rainbow festival attire, and she has a jade earring on each ear. Additionally, the subject wears a two-color band on her forehead and a gold chain accessory for adornment. 

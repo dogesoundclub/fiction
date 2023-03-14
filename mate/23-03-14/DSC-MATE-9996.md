@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9996
+Description: Subject 9996 is a male human of average height and build. His most distinguishing facial feature is a series of spots, akin to freckles, that appear on his forehead and cheeks. His eyes resemble ski goggles, and his ears feature a jade earring in the left lobe. Subject 9996 is most commonly seen wearing a silver chain around his neck and smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3116
+Description: Subject 3116 is a female train driver of human origin. Subject's most notable features are her orange stripes and purple lips. Their eyes are replaced with jade LED displays that function similarly to virtual reality technology. On her forehead, there is a goggle device which she uses to enhance her vision. Additionally, subject's ears are adorned with a green cross-shaped earring. She regularly wears a medical mask, which makes it difficult to determine the rest of her facial features.

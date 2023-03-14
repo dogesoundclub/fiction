@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2485
+Description: Subject 2485 is a male monkey of an unknown species. It has green hair and wears a purple cap, as well as a goggle on its forehead. Subject 2485 is known for its unique, nurturing personality, often treating those around it as if they are its own children. Despite its outwardly affectionate behavior, it is considered a dangerous villain and should be treated with caution.

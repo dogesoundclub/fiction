@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1850
+Description: Subject 1850 is a Rabbit of the male gender. He stands at 4 feet and weighs around 10kg. Subject 1850 is an electrician by profession and has nearly 15 years of experience. He fancies himself as a bit of a show-off, often sporting a gold chain and jade earring in his ears. Interestingly, his sunglasses are not worn for protection against bright light, but rather to help him see in the dark.

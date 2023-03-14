@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1947
+Description: Identification number 1947 is a human male who specializes in the care of animals as a veterinarian. His face is distinguishable by the presence of spots and a constant smile that seems to put others at ease. He wears a red victory band around his forehead, which denotes his dedication to treating and healing animals. Additionally, he wears a goggle on his forehead for ease of use when it is required in his field of work. His ears bear a jade earring that he claims was a gift from a grateful client.

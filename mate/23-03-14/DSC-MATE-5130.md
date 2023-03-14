@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5130
+Description: DSC-MATE-5130 is a male tiger with striking red clown eyes. The entity's head is adorned with a police cap, and its ears are pierced with a red cross earring. DSC-MATE-5130 bears a silver chain around its neck as an additional accessory.

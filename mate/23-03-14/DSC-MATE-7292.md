@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7292
+Description: DSC-MATE-7292 is a male monkey with a frightened mouth and eyes behind nerd glasses. Its head fur is not arranged, appearing green in color. DSC-MATE-7292 has a pair of jade earrings, wears a red scarf and a gas mask commonly found in urban areas.

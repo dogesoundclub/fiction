@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3777
+Description: 3777 is an autonomous robot designed to take on the guise of a traffic officer. It is approximately six feet tall, and it is equipped with a retro cap and a pair of horned rim glasses that are used primarily for show. Its most noteworthy feature is its singular green cyclops eye, which is said to pulse and glow in the dark. 3777's LED gas mask is usually worn while on duty to protect it from harmful gases and substances.

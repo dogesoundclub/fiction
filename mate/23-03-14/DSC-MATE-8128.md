@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8128
+Description: Subject 8128 is a male human with a distinct trait: spotted skin. Despite this physical anomaly, he is able to blend into crowd due to his average physical build and height. When reporting, he dons a monk's headgear and decorates it with a gold chain. This accessory appears to be of significant importance to him, as he is rarely seen without it.

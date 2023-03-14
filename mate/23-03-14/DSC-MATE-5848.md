@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5848
+Description: Subject 5848 appears to be a male human of average height and build, with spotted facial features and a perpetually fearful mouth. Their eyes resemble those of ski goggles, and their head is a metallic purple color that seems to flash in sunlight. They wear a gold earring and a red scarf, but their most distinctive accessory is an LED gas mask.

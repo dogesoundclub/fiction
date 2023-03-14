@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7758
+Description: DSC-MATE-7758 is a tiger-humanoid hybrid, with fur covering their body and a humanoid head with a jade earring in each ear. The glasses DSC-MATE-7758 wears are only for their human guise and are not necessary for their tiger form. DSC-MATE-7758 typically adorns a gold chain around their neck as a symbol of status as a banker. DSC-MATE-7758's fur is noted to be a green color, not commonly found amongst tigers in the wild.

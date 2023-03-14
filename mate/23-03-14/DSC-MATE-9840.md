@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9840
+Description: Subject 9840 is a human male with a unique appearance. He has blue clown eyes that contrast with the spots on his face, and a smile that never seems to leave his lips. Subject 9840 is commonly seen wearing a hoodie with a red victory band on his forehead and a red scarf around his neck.

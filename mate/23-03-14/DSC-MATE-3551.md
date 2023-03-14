@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3551
+Description: DSC-MATE-3551 is a human male who identifies himself as a veterinarian with a unique appearance. This appearance includes blue clown eyes, an oversized clown mouth with unnatural teeth, spots on the face, a conspicuous bucket hat, a gold necklace, and a cigarette. This unique appearance and his witty character make him prone to stand out in any crowd. The origins of these appearances could not be traced to any particular cause, and 3551 is unwilling to disclose any personal information on this matter. 

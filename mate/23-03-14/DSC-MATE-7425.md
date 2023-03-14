@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7425
+Description: DSC-MATE-7425 is a human female with orange stripes on her face, a smile, and blue clown eyes. DSC-MATE-7425's head is adorned with various rainbow-colored accessories frequently seen at festivals. They willingly wear a medical mask over their mouth and a choker around their neck.

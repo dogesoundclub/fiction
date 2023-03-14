@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9895
+Description: DSC-MATE-9895 appears to be a delivery driver, working for a local courier company. However, it is actually a robot with an unknown origin. DSC-MATE-9895 has a silver chain around its neck and a single jade earring on its left ear. It also has ski goggles over its eyes and an additional pair of goggles on its forehead.

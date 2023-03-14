@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6651
+Description: DSC-MATE-6651 is a male robot designed to resemble a police officer. Despite its appearance, DSC-MATE-6651 works as a beautician and is equipped with a variety of hair styling implements. DSC-MATE-6651's cyclops eye glows a bright green and its mouth is permanently fixed in a frightened expression. The robot's eyes have been replaced with ski goggles and it wears a red cross earring on its right ear. DSC-MATE-6651 often wears a police cap and a red scarf around its neck, and has been observed smoking a cigarette at regular intervals.

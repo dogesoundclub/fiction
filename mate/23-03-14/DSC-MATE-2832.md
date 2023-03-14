@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2832
+Description: 2832 is a tiger of unknown age and origin, presenting itself as a fast food worker. The subject appears average in size and build for a tiger, with no distinguishing physical characteristics except for a pair of jade earrings and a silver chain around its wrist. The subject seems to be in perfect health despite its captivity.

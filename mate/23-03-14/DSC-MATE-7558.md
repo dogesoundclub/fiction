@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7558
+Description: Subject 7558 is a male human with a peak spike hairstyle and an unusual green cross-shaped earring. The subject's eyes are obscured by normal glasses, and they are always seen wearing a medical mask over their mouth. Despite this, the subject appears to be in good physical health.

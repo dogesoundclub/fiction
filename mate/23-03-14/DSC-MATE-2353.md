@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2353
+Description: Item #2353 is a human male with the appearance of a medieval monk. The most notable features of Item #2353 are the orange stripes painted on its cheeks and the ski goggle eyes. Item #2353 wears a red scarf around its neck and a gold earring on its left ear. It is often seen with a candy stick in its mouth.

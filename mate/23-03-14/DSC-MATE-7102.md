@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7102
+Description: DSC-MATE-7102 is a robot of male gender, standing at approximately 1.8 meters tall. Its head is made of a green material not yet identified, and possesses a single, large cyclops-like eye that glows bright green. DSC-MATE-7102 appears to have been designed to resemble a human with a pair of horn-rimmed glasses as its eyes. It carries a cigarette in its right hand, which it uses to smoke frequently.

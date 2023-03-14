@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9831
+Description: DSC-MATE-9831 is a male rabbit humanoid, approximately 1.2 meters tall with black fur. Its eyes resemble ski goggles and it often accessorizes with a silver chain around its neck and a normal gas mask. Despite its small size, DSC-MATE-9831 displays great physical strength and agility, often using these attributes to evade containment.

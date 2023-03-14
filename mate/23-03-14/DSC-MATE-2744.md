@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2744
+Description: DSC-MATE-2744 is a highly advanced robot with a male appearance, equipped with a purple cap, LED gas mask, and a gold chain for added flair. Its main function is that of a real estate agent, although its capabilities extend far beyond typical human agents. DSC-MATE-2744's eyes are covered with rectangular nerd glasses, while its head is covered with a standard headset.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8512
+Description: DSC-MATE-8512 appears to be a humanoid male in his early 30s with a slim build, approximately 1.8 meters tall. DSC-MATE-8512's eyes resemble Virtual Reality Jade LED and his head is often covered by a hoodie, which conceals his identity. DSC-MATE-8512 is typically seen wearing a gold chain accessory, and frequently carries a candy stick or small sweets item as his second accessory.

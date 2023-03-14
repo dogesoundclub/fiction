@@ -1,0 +1,2 @@
+ID # : DSC-MATE-990
+Description: DSC-MATE-990 is a female human with distinctive features. Her lips are purple, and she has rainbow LED eyes, with an orange side head and red cross earrings. DSC-MATE-990 is often seen wearing a choker and an LED gas mask. Due to these unique features, DSC-MATE-990 can be easily identified in public.

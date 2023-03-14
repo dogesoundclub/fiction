@@ -1,0 +1,2 @@
+ID # : DSC-MATE-163
+Description: DSC-MATE-163 is a human female with the ability to control traffic, particularly in congested or gridlocked areas. The subject is covered in orange stripes and sports a purple lip, with blue clown eyes and a purple cap with a headset. Their green cross earring and gold chain serve as distinctive features. DSC-MATE-163 is often seen smoking cigarettes when not engaged in traffic management.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3367
+Description: Item 3367 appears to be a male monkey of the species Macaca mulatta. The monkey is approximately 1 meter tall and weighs roughly 12 kilograms. Item 3367 is notable for its frightened mouth and horned rim glasses, which it wears at all times. Additionally, Item 3367 has a small headset with LED lights attached to its head. It also sports a gold chain and is frequently seen smoking a cigarette.

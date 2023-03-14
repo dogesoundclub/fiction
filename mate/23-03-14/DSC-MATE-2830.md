@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2830
+Description: DSC-MATE-2830 is a human male with spots on his face and a mouth that is reminiscent of a clown's. DSC-MATE-2830 is notable for his red eyes and his parted pink hair. The forehead of DSC-MATE-2830 is marked with two color bands. The subject wears a gold earring in each ear, and a silver chain necklace around his neck.

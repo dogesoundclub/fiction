@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5781
+Description: DSC-MATE-5781 is a human male of average height and build, with distinctive spots on their face. They are often seen sporting a smile and wearing a police cap, as well as a bright red scarf and an LED gas mask. Their eyes are hidden behind normal glasses.

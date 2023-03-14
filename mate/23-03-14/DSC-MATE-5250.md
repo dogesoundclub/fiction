@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5250
+Description: Subject 5250 is a female human of average height and build. One identifying feature is her face which contains multiple spots. When she smiles, her expressive orange eyebrow eyes light up, giving her a somewhat otherworldly appearance. Her hair is styled in the fashion of an 00s schoolgirl with a red cross earring attached to each earlobe.

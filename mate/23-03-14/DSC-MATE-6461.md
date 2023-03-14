@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6461
+Description: DSC-MATE-6461 is a human male of average height and weight. DSC-MATE-6461 has blue clown eyes and a wide smile that is present even when not actively attempting to appear happy. The subject wears a short peak cap on his head and has a gold earring on each ear. DSC-MATE-6461 also wears a silver chain around his neck.

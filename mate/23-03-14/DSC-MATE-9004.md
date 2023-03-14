@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9004
+Description: DSC-MATE-9004 is a male Monkey with a height of 2 feet 10 inches (86 cm) and a weight of 35 pounds (16 kg). DSC-MATE-9004 exhibits several unusual features: a Doge hat on his head, nerd glasses on his eyes, and a jade earring on his left ear. He also carries a cigarette at almost all times. His mouth appears to be in a state of constant fear.

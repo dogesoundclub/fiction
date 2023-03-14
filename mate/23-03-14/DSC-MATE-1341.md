@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1341
+Description: The Doctor is a tall and imposing figure, with a sleek and polished metallic body that gleams in the light. His jade earring ears give him a bit of personality, as do his silver chain and LED gas mask attachments. He is an efficient and exacting medical professional who takes great pride in his work, never resting until he is sure that each and every patient has been properly diagnosed and treated.

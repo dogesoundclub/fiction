@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5174
+Description: Upon initial examination, Subject 5174 appears to be a standard, humanoid robot with a few notable physical features. Its head is adorned with a blue bandana and a single green cyclops eye, with a pair of horned rim glasses perched on top. The robot also sports a jade earring and a silver chain, adding a touch of personal style to its appearance. 

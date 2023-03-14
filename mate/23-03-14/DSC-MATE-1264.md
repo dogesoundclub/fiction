@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1264
+Description: Subject 1264 is a female delivery driver of average height and weight. She displays no anomalous physical attributes and appears to be a normal human. Notably, she wears a green cross earring and a gold chain at all times. Additionally, her forehead features a set of goggles that are never used. Subject 1264's eyes are replaced by a pair of VR Rainbow LED lenses, which she can control through an unknown mechanism.

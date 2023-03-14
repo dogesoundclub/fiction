@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4790
+Description: Dr. 4790 appears to be a robotic entity designed for medical purposes. It has a single, cyclops-like green eye, a mouth that appears to be in a constant state of fright, and ski goggles for eyes. Dr. 4790's head is adorned with a black bucket hat, and it is often seen wearing a medical mask. Its ears are pierced with a golden earring and it sports a red scarf, serving as the only piece of clothing on its metallic body.

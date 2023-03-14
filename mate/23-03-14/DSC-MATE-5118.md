@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5118
+Description: DSC-MATE-5118 is a male monkey of uncertain species, standing approximately 1.2 meters tall and weighing roughly 50kg. The monkey bears an expression of constant fear, as evidenced by its tight-lipped and frequently trembling mouth. Its eyes are difficult to discern due to rapid blinking and constant movement. DSC-MATE-5118 wears a police cap on its head, and a 2-color band adorns its forehead.

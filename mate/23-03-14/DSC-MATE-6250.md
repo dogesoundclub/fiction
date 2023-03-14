@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6250
+Description: DSC-MATE-6250 is a male humanoid robot, resembling a typical news anchor. The entity has a green cyclops-like eye, with a red laser-like pupil. DSC-MATE-6250 wears horned rim glasses over its internal camera system, and a green wig with a purple news cap on its head. A goggle sits on the entity's forehead, which activates during physical activities. DSC-MATE-6250's ears are equipped with a red cross earring. The entity carries a whistle at all times.

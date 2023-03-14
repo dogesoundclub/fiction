@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3352
+Description: Subject 3352 appears to be a male rabbit of the Leporidae family. However, closer inspection reveals that it possesses certain human-like physical characteristics, such as the ability to wear jewelry, glasses, and headgear. The subject is often observed wearing a red beanie, horned-rimmed glasses, and a red victory band on its forehead. Additionally, it has a jade earring on one of its ears and is often seen with a candy stick in its mouth.

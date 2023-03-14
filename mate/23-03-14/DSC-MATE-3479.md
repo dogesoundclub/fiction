@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3479
+Description: Subject 3479 appears to be a male tiger with distinctive Ski Goggle eyes. The subject is typically dressed in casual attire and wears a silver chain as an accessory. However, 3479 can assume a humanoid form at will, allowing them to blend in with human society. 3479 is primarily identified as a reporter, but has also shown an affinity for animals and nature.

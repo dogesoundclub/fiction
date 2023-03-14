@@ -1,0 +1,2 @@
+ID # : DSC-MATE-894
+Description: DSC-MATE-894 is a male rabbit of average size and weight. Its appearance is unremarkable, but it displays a permanent frightened mouth expression. DSC-MATE-894 wears a hoodie on its head and horned rim glasses that give it a scholarly appeal. It also sports a LED gas mask that alters its voice.

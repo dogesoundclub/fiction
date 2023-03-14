@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1980
+Description: DSC-MATE-1980 is a female human who is known to be a dangerous Mafia Boss. DSC-MATE-1980 has orange stripes and a smile on her face, and her eyes are LED screens that project a jade-colored light. DSC-MATE-1980 has a pink rabbit head and red cross earrings on her ears. She is often seen wearing a choker.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-955
+Description: DSC-MATE-955 is a female human real estate agent with a distinct physical appearance. Her face is marked with orange stripes and complemented with red lipstick. Her eyes are that of a typical clown, with vibrant red irises. DSC-MATE-955's hair is styled in pigtails, and she has one green cross earring on each ear. Additionally, DSC-MATE-955 often wears a choker and can commonly be seen with a cigarette in hand.

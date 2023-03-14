@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4981
+Description: DSC-MATE-4981 is a human male with normal blonde hair and normal glasses, identified as a police officer. The subject displays a unique facial feature which includes orange stripes patterned across his face and a frequent expression of fear on his mouth. DSC-MATE-4981 is often spotted wearing a gold chain around his neck.

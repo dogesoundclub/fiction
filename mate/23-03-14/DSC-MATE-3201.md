@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3201
+Description: DSC-MATE-3201 is a humanoid of the species Homo sapiens, and appears to be a female in her mid-twenties. DSC-MATE-3201's most notable features are the spots on her face and the red clown eyes, which have been surgically implanted. DSC-MATE-3201 often wears a choker and a green cross earring in her left ear.

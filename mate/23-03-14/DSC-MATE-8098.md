@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8098
+Description: DSC-MATE-8098 is a male Siberian tiger who works as a delivery driver for [REDACTED] courier service. Despite his intimidating appearance, DSC-MATE-8098 displays a range of emotions from extreme agitation to abject fear.

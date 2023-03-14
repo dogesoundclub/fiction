@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5682
+Description: DSC-MATE-5682 is a male Siberian tiger whose appearance is similar to that of a human, with notable differences being his horned rim glasses and candy stick, both of which he carries at all times. DSC-MATE-5682's intelligence and language ability is at least on par with an average human, evidenced by the fact that he holds a job as a police officer.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4661
+Description: Item 4661 is a human male, identified as a train driver in his previous occupation. The subject stands at approximately 5'9" and weighs roughly 160 pounds. One of the most striking features of the subject is his spotted skin, which covers most of his entire body. The face of the subject is adorned with blue clown eyes that are constantly moving and observing the surroundings.

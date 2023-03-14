@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8621
+Description: DSC-MATE-8621 is a male rabbit standing at approximately 30 cm tall when not wearing its bucket hat. DSC-MATE-8621 has been observed to display two facial features; one is best described as a frightened mouth, and the other is a wide, toothy grin. DSC-MATE-8621 is often seen sporting a gold chain necklace and carrying a candy stick. Its eyes are red with a black pupil, similar in appearance to those seen in clown makeup.

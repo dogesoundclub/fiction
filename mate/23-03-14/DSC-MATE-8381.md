@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8381
+Description: 8381 is a male human in his late thirties, approximately 6 feet tall, with a distinctive peak spike hairstyle. He is often found wearing a gold chain and smoking a cigarette. The subject wears normal glasses, which he constantly adjusts on his face. Despite appearing mundane, several tests have indicated that the subject possesses highly advanced cognitive abilities. It is believed that the subject's analytical and logical nature contributes to his exceptional problem-solving skills.

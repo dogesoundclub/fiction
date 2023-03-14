@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9287
+Description: DSC-MATE-9287 appears to be a male white rabbit, measuring approximately 1.2 meters in height when standing upright. DSC-MATE-9287 displays no anomalous physical abilities or characteristics, except for the ability to speak and understand human languages. DSC-MATE-9287 wears a standard Police Cap and a Normal Gas Mask, both of which are removable. It also wears a Gold Chain around its neck.

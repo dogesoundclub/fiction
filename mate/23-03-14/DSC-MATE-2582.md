@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2582
+Description: DSC-MATE-2582 is a female human identified as a veterinarian. DSC-MATE-2582 has visible spots on her face, and she often wears a smile. DSC-MATE-2582's eyes are unnaturally colored orange, and her eyebrows are also orange.

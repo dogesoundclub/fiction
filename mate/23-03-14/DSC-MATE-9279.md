@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9279
+Description: DSC-MATE-9279, also known as the "Rainbow Festival Driver," is a human female with a distinctive rainbow-colored head of hair. She can often be found wearing a two-color band across her forehead and gold earrings in both ears. Her most notable feature is her infectious smile that is frequently on display.

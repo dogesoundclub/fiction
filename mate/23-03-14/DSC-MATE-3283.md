@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3283
+Description: Officer 3283 is a human male of average height and weight, with a contagious smile and a charming personality. His most striking feature is his VR rainbow LED eyes, which have been surgically implanted into his sockets for increased visual acuity and enchantment resistance. His metal purple head is the result of a highly experimental procedure to increase durability, which has been deemed partially successful by medical professionals.

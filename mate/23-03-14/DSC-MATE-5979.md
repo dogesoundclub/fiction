@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5979
+Description: Subject 5979 is a female of the human species with distinctive facial features including orange stripes and eyebrows. The subject's head is green and has curl edges. Additionally, the subject has red cross earrings and a choker as accessories. A normal gas mask is also frequently worn by the subject.

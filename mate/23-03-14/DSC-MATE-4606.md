@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4606
+Description: DSC-MATE-4606 is a Rabbit species humanoid wearing a train driver's uniform, complete with embroidered name tag marking it as "Driver Grayson." DSC-MATE-4606's eyes are obscured by horned-rimmed glasses, and it wears a headset with an LED light attached. The forehead of DSC-MATE-4606 features a two-toned colored band, indicative of its train driver position. Additionally, DSC-MATE-4606 is always seen with a cigarette in hand.

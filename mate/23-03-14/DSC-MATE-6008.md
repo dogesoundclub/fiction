@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6008
+Description: Subject 6008 appears to be a male monkey species, standing at approximately 3 feet tall. The subject is often seen wearing horned rim glasses and a mohawk hairstyle. Additional accessories include a gold chain and candy stick.

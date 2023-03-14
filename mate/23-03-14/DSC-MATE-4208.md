@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4208
+Description: DSC-MATE-4208 is a female human of indeterminate age, standing approximately 167.6 cm tall and weighing approximately 61.2 kg. DSC-MATE-4208's face features include prominent spots and red lipstick. DSC-MATE-4208 is often seen wearing a hoodie with a 2-color band on her forehead, a choker, and smoking a cigarette.

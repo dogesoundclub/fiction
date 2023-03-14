@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6699
+Description: DSC-MATE-6699 is a humanoid delivery robot of unknown origin, with one green cyclops eye as its face’s primary feature. Its head is not arranged green, and it has a red cross earring on its left ear. It usually wears nerd glasses and covers its mouth with a medical mask. It also wears a red scarf around its neck as an accessory.

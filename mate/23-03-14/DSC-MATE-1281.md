@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1281
+Description: Subject 1281 appears as a typical human female with distinctive orange stripes on her face. The subject's clown-like red eyes and the 00s school girl head are an odd pairing. The most prominent feature by far is the contagious smile that seems to be ever-present on her face.

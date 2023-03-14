@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3640
+Description: DSC-MATE-3640 is a human male police officer with distinctive features. DSC-MATE-3640 has several spots on their face, ski goggle eyes, a head parted in pink and a medical mask covering most of their mouth. Additionally, DSC-MATE-3640 is often seen wearing a gold chain accessory.

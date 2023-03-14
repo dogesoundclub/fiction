@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4031
+Description: DSC-MATE-4031 is a human female with distinctive orange stripes marking its face. DSC-MATE-4031 possesses an unusual physical feature in the form of a wing extending from its head. The wing has been determined to be non-functional, and DSC-MATE-4031 reports that it does not cause any discomfort. DSC-MATE-4031 also wears a jade earring in each ear and a choker around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7510
+Description: DSC-MATE-7510 is a female humanoid with distinctive orange stripes on their face. DSC-MATE-7510 also possesses orange eyebrow eyes and sports a purple cap with attached headset on their head, as well as a jade earring in either ear. DSC-MATE-7510's personality is highly detail-oriented, at times even obsessive, with color-coding their closet and alphabetizing their spice rack.

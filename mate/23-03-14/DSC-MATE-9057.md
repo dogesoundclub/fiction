@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9057
+Description: DSC-MATE-9057 is a female human of average height and build, with distinct 90s-style brown hair and bright red lips. It is often seen wearing a silver chain around its neck as an accessory. Despite its seemingly mundane appearance, Foundation research has shown that DSC-MATE-9057 has a tendency towards impulsive and risky behavior, often taking on dangerous challenges or making decisions on a whim.

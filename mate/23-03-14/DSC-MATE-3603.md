@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3603
+Description: DSC-MATE-3603 is a human male with orange stripes on its face, resembling tiger stripes. Its ears possess a jade earring, and its mouth is always covered with a medical mask. Additionally, DSC-MATE-3603 dons a silver chain around its neck. No anomalous properties have been identified with these features.

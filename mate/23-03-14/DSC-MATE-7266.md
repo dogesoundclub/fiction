@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7266
+Description: DSC-MATE-7266 is a male tiger of the Bengal-subspecies. DSC-MATE-7266 possesses anthropomorphic features, including the ability to speak and exhibit human-like behaviors. DSC-MATE-7266 is observed to have a preference for wearing a purple cap with a headset and nerd glasses. A 2-color band is noted on its forehead, with a red cross earring on each ear. DSC-MATE-7266 also wears a gold chain and an LED gas mask for unknown reasons.

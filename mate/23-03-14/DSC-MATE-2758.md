@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2758
+Description: DSC-MATE-2758 is a male tiger of the sub-species Panthera tigris tigris, approximately 2 meters in length and weighing approximately 250 kg. DSC-MATE-2758 appears to be a professional veterinarian, proficient in the treatment and care of a wide variety of animals. DSC-MATE-2758 displays an above-average intelligence and strong empathic abilities, often expressing deep emotions and sensitivity.

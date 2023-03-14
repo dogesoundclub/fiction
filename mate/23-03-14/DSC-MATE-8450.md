@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8450
+Description: Subject 8450, also referred to as "The Hooded Ape," is a male capuchin monkey standing at approximately 3 feet tall. The subject wears a black hoodie with a silver chain around his neck and an LED Gas Mask over his face. The purpose of the hoodie is unknown, but it is assumed that it serves as a form of self-expression.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5162
+Description: Item 5162 appears to be a human female in her early thirties, with vibrant orange stripes crisscrossing her face and a bright red lip. Her eyes are obscured by normal glasses, and her head is that of a pink rabbit. A pair of goggles are consistently worn on her forehead, and she is often seen wearing a black choker.

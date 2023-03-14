@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8987
+Description: Agent 8987 appears to be a female human, approximately 32 years of age, with spots on her face and purple lips. She wears normal glasses over her eyes and a jade earring on each ear. She is often seen wearing a rainbow festival hat and a silver chain around her neck.

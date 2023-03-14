@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5128
+Description: DSC-MATE-5128 is a male human with multiple distinctive features on his face, including spots and a wide smile. The subject has normal eyesight and wears glasses. DSC-MATE-5128 typically wears a red beanie, a red victory band on their forehead, a medical mask, and a green cross earring.

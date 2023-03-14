@@ -1,0 +1,2 @@
+ID # : DSC-MATE-669
+Description: DSC-MATE-669 is a male humanoid tiger, measuring approximately 2.1 meters in height and weighing 212.7 kilograms. The subject has a stocky build and a thick coat of orange fur, with black stripes running horizontally across their body. DSC-MATE-669 displays high levels of intelligence, capable of speaking in both English and several other languages, as well as manipulating basic tools and objects.

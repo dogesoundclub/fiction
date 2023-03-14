@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2503
+Description: Identification number 2503 appears to be a human female politician. They have bright blue clown eyes and features that include a purple lip and a purple cap with a headset. Additionally, they wear a red cross earring and a silver chain.

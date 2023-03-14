@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1059
+Description: DSC-MATE-1059 is a female human of indeterminate age, with a distinctive smile that reflects unnaturally large and red clown eyes. The subject wears a hoodie and a choker as a statement of her status as a mafia boss. Despite her seemingly human appearance, DSC-MATE-1059 has demonstrated a proclivity towards detail-oriented behavior.

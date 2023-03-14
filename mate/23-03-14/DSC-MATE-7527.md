@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7527
+Description: Subject 7527 is a female human, approximately 27 years old, measuring at 165 cm and weighing 60 kg. The subject's most striking feature is her bright pink rabbit head with orange stripes and orange eyebrows. She also has a distinctive two-color band on her forehead and a jade earring on each ear. Subject 7527 is often seen wearing a choker around her neck and sporting purple lipstick. The reason for the subject's unique appearance is unknown.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7042
+Description: DSC-MATE-7042 is a male rabbit with red fur and sharp features. Its most distinctive feature is its jade earring, which it is highly protective of. The rabbit wears a normal gas mask at all times, despite not requiring it to survive. The mask has been observed to have a calming effect on DSC-MATE-7042's behavior.

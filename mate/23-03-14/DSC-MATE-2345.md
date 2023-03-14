@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2345
+Description: DSC-MATE-2345 is a human female of average height, approximately 5 feet 6 inches tall. She has spots on her face and her lips are shade of purple, which seems to have a calming effect on people who look at her.

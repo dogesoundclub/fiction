@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6125
+Description: Subject 6125 is a human female with distinct orange stripes on her face, resembling that of a tiger. Their eyes are blue with a clown-like appearance and they sport a noticeable smile. Subject 6125 is always seen wearing a medical mask over their mouth and a headset with an LED display. It has been noted that the LED display changes color based on their emotions or mental state.

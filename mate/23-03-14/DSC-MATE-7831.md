@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7831
+Description: DSC-MATE-7831 is a female humanoid of average height and weight, identified as a car salesman of non-anomalous origin. Her most notable feature is her purple lip, which appears to be natural and not the result of makeup or an external dye. DSC-MATE-7831 typically wears a choker and a cigarette at all times, often holding it in her mouth even when not actively smoking.

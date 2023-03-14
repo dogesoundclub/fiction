@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7025
+Description: Item 7025 is a male monkey approximately 1.02 meters tall with red clown eyes and gold earrings. The subject weighs approximately 20.41 kilograms and is adorned with a silver chain and equipped with a normal gas mask. The subject has been identified as a qualified medical practitioner, possessing extensive knowledge of human anatomy and medical procedures.

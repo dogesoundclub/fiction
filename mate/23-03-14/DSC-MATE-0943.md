@@ -1,0 +1,2 @@
+ID # : DSC-MATE-943
+Description: Subject 943 is a human male of unknown age. The subject has red clown eyes and a mouth spot, which is a distinct dark spot on the lower lip area. The subject regularly wears a medical mask and a police cap with a red victory band on the forehead. The subject also wears a gold earring and a silver chain as accessories. 

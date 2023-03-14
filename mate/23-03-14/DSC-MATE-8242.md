@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8242
+Description: DSC-MATE-8242 is a female human of average height and weight, with unusual orange stripes on their face. DSC-MATE-8242 typically wears normal glasses and a blonde ushanka, along with a choker and gold earrings, and a gas mask. Their forehead features a distinguishing two color band. DSC-MATE-8242 is a fashion designer by trade, and displays exceptional skill in this area, with many industry accolades to their name. However, they also have a strong sense of duty that can at times put them in perilous situations.

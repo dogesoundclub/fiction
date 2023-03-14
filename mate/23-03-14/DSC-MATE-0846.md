@@ -1,0 +1,2 @@
+ID # : DSC-MATE-846
+Description: Subject 846 is a male rabbit standing at a height of approximately 3 feet. He wears normal glasses on his eyes and a red beanie on his head with a two-color band on his forehead. He possesses a single jade earring on his left ear. Of particular note is his natural talent for leadership, which has led to him assuming charge of many situations he finds himself in. This includes his job as a delivery driver, where he has reportedly taken charge of several logistics and personnel issues.

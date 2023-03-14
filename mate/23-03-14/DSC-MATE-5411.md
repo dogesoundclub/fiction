@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5411
+Description: DSC-MATE-5411 is a male, Siberian tiger of average size and weight. One of its most distinguishing features is its blue clown eyes, which some psychiatrists believe are the result of a genetic mutation. Its head is covered with a rugged bucket hat with a two-tone band emblazoned across its forehead. DSC-MATE-5411 also wears a jade earring in its left ear along with a gold chain around its neck. It also carries an LED gas mask at all times, which seemingly enhances its ability to sense danger or harmful gasses.

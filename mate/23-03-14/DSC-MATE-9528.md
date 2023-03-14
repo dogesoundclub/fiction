@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9528
+Description: DSC-MATE-9528 is a female human with orange stripes on her face and a constant smile. The clown-like blue eyes add to the overall comedic appearance of DSC-MATE-9528, as does the retro cap and gold chain accessory.

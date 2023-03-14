@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6100
+Description: Item 6100 is a female human of average height and build, with not arranged green hair and a medical mask covering her mouth. The most notable feature of Item 6100 are its eyes, which are equipped with VR Rainbow LED technology. These eyes are capable of displaying a wide range of colors and patterns, and are often observed to change in response to Item 6100's mood or emotional state. Additionally, Item 6100 wears a gold chain around its neck at all times.

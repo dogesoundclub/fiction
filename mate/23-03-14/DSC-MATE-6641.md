@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6641
+Description: DSC-MATE-6641 is a human female of average height and weight, with a witch short hairstyle and blue clown eyes. DSC-MATE-6641 is often seen wearing a gold chain and smoking cigarettes. Despite their eerie appearance, DSC-MATE-6641 possesses a winning smile that seems to put those around them at ease.

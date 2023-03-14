@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6479
+Description: DSC-MATE-6479 is a male monkey, identified as the species "macaca mulatta"  standing at 50 cm in height, weighing 6 kg. DSC-MATE-6479 displays human-like features, wearing a pair of nerd glasses and a goggle on his forehead. His ears, consistent with his species, are pointed with a jade earring in his left ear. His speech is limited, mostly consisting of chattering and gesturing, but researchers have noted a basic understanding of English.

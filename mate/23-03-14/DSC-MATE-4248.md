@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4248
+Description: Item #4248 appears to be a human female with unique facial features including purple lips and orange eyebrows. Its head is adorned with green hair in a purple cap and a red cross earring in each ear. Item #4248 often wears a silver chain as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7118
+Description: Subject 7118 is a male tiger of unknown origin, currently employed as a car salesman in a local dealership. His frightened mouth and medical mask tend to cause unease among customers and coworkers alike. Additionally, his jade LED eyes and jade earring make for a striking contrast against his not arranged green head. Subject 7118 is rarely seen without his silver chain, which he claims brings him good luck.

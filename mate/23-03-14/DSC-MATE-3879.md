@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3879
+Description: Subject 3879 appears as a male human with spots on his face and a contagious smile. He wears a police cap on his head and a jade earring on each ear. Subject 3879 is regularly seen wearing a gold chain around his neck. He presents as an outgoing individual, with a love for adventure and taking risks.

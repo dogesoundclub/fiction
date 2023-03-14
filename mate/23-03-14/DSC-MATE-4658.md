@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4658
+Description: Officer 4658 is a human male with spotted facial features and a perpetually frightened mouth. He wears normal glasses and sports a jade earring on his right ear. His hair is styled in a peak spike and he is often seen wearing a gold chain around his neck. He can also be seen carrying a candy stick with him at all times.

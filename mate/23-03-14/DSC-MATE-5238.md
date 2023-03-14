@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5238
+Description: Item 5238, also known as "The Reporter," is a male human with distinctive features. He has spots across his face and a seemingly permanent smile. His eyes appear to be ski goggles that can be removed at will. His head is covered in a not-arranged green substance, and he wears a jade earring on one ear. Item 5238 is known to wear a medical mask and a gold chain as well.

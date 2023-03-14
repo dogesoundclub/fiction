@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5770
+Description: DSC-MATE-5770 is a female human with VR Jade LED eyes and a Witch Short haircut. DSC-MATE-5770 is most often seen sporting a gold earring and a medical mask, which is believed to be due to her occupation as a Police Officer. DSC-MATE-5770 is known to have a love for adventure, and often takes unnecessary risks or tries new things that put her in danger. DSC-MATE-5770 has been known to survive near-death experiences, such as bungee jumping accidents and being lost in the wilderness, much to the amusement of her colleagues.

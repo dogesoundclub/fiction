@@ -1,0 +1,2 @@
+ID # : DSC-MATE-957
+Description: Subject 957 appears to be a human male with distinctive facial features. He has numerous spots on his face, and his mouth is often in a frightened expression. His eyes resemble ski goggles, and he wears a gold earring in each ear. Additionally, he frequently wears a gold chain and smokes cigarettes.

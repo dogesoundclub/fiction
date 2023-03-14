@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7548
+Description: Subject 7548 is a human male, of average height and build. The subject's most striking feature is the orange stripes on their cheeks, which have a slight glow that can be observed in low light conditions. 7548's eyes have been replaced with VR Rainbow LED displays, which they claim enhances their vision and perception of the world. The subject wears a police cap at all times while working, and adorns a silver chain necklace and carries a candy stick.

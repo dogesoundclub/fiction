@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5820
+Description: DSC-MATE-5820 is a female police officer of the human species. DSC-MATE-5820 is distinguishable from other human beings by the presence of spots on her face and purple lip. DSC-MATE-5820 wears normal glasses and a green cross earring. DSC-MATE-5820 is frequently seen wearing an LED gas mask as an accessory.

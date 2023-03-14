@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2751
+Description: DSC-MATE-2751 is a human female, currently employed as a fast food worker at a local fast-food chain. DSC-MATE-2751 is distinguishable by their unique physical features, including orange stripes on their face and purple lips. Additionally, DSC-MATE-2751 has a pink rabbit head, red cross earrings on their ears, and wears a medical mask over their mouth.

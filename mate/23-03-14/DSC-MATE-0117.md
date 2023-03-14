@@ -1,0 +1,2 @@
+ID # : DSC-MATE-117
+Description: DSC-MATE-117 is a humanoid female of the species Homo sapiens with a unique physical appearance. Her facial feature #1 is a constant smile, which she maintains even in the absence of humor or joy. The iris and eyebrow of her eyes are a striking shade of orange. Her head is covered in a rainbow-colored wig, which she claims to wear as a tribute to a "festival of the colors" she attended years ago. DSC-MATE-117's ears are adorned with a pair of jade earrings that match her orange eyes. She is always seen with a cigarette in her mouth.

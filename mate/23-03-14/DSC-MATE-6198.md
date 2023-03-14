@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6198
+Description: Subject 6198 is a male human, standing at a height of 6 feet and weighing approximately 180 pounds. The subject's most distinct feature is a neon green LED display implanted in their ocular cavities, giving the appearance of jade-colored eyes. The subject's hairstyle is a striking mohawk, dyed purple, green, and black with an accompanying gold hoop earring in the right ear. Subject constantly wears a medical mask over their mouth, which displays an unfamiliar logo.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7829
+Description: DSC-MATE-7829 is a male human of unknown age, currently masquerading as a politician. DSC-MATE-7829's face features prominently orange stripes and a frightened mouth, with blue clown eyes. DSC-MATE-7829 regularly wears a short peak cap, with a 2 color band on their forehead and jade earring on each ear. Additional features include a red scarf and a candy stick, which have both been found to possess anomalous properties.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8680
+Description: DSC-MATE-8680 is a robotic entity, with a green cyclops eye and horn-rimmed glasses as its primary visual sensor. It stands at 5'5" and has a red-alarm head, complete with a red cross earring. DSC-MATE-8680 wears a silver chain and a normal gas mask as accessories.

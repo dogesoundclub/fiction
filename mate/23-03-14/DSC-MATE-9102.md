@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9102
+Description: DSC-MATE-9102 is a male tiger species with a height of 3.4 meters and a length of 4.3 meters. Its face features a constant look of fear, with a cowering mouth and normal glasses for eyes. DSC-MATE-9102 has an affinity for wearing hoodies at all times, and is comfortable even while sleeping. Its artistic and creative personality is expressed by an interest in numerous mediums of expression, including painting, writing, and music.

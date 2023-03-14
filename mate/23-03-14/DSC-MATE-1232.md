@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1232
+Description: Subject 1232 is a human male lawyer with normal blonde hair and an unusual obsession with details. They are often seen wearing a red victory band on their forehead, a gold earring in their right ear, and a red scarf around their neck. The most unusual aspect of their appearance is the LED gas mask they wear to filter out impurities from the air.

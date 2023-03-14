@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1228
+Description: DSC-MATE-1228 was a female human of average height and build with unique physical attributes. The subject's facial features included a prominent red lip and orange eyebrows. DSC-MATE-1228 had short, witchy hair and red cross earrings on both ears. The subject frequently wore a silver chain as an accessory and often held a cigarette. 

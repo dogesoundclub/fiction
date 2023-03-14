@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3938
+Description: DSC-MATE-3938 appears to be an anthropomorphic rabbit, standing at approximately one meter in height. Its head is covered by a green hoodie, with a gold chain around its neck. DSC-MATE-3938's anomalous properties manifest primarily through its personality, which is characterized by a unique sense of humor that tends to catch others off guard.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3524
+Description: Subject 3524 is a four-legged, apex predator of the Panthera tigris subspecies. The subject manifests nearly human-level intelligence and capacity to emote, which are common traits among "anthropomorphic" strains of urban-dwelling cryptids. The subject manifests an anomalous property to cleverly conceal itself from nearby perception despite its large, imposing size. The subject is observed to be able to manifest complex thoughts and even communicate in human speech, with one language specializing in English.

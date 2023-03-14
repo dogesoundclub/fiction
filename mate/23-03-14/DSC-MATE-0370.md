@@ -1,0 +1,2 @@
+ID # : DSC-MATE-370
+Description: DSC-MATE-370 is a human male of average height and weight, with orange stripes prominently displayed on his face. His eyes are replaced with ski goggles, while his head is covered with a police cap. An earring made of jade is present on his left ear, and he always wears a medical mask to prevent recognition.

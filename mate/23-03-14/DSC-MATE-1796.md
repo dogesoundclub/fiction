@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1796
+Description: Item #1796 is a male robot designed to resemble a news anchor. It stands at 6 feet tall and weighs approximately 250 pounds. The robot has a single green cyclops eye in the center of its head, which is not arranged in a traditional humanoid manner. Its eyes are ski goggles and its mouth is covered with a medical mask.

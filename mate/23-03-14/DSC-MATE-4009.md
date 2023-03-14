@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4009
+Description: DSC-MATE-4009 is a female human with distinctive orange stripes on their face. They have piercing blue clown eyes and wear a black hoodie with a silver chain around their neck. DSC-MATE-4009's most notable feature is their normal gas mask which they wear at all times.

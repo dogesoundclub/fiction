@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9376
+Description: Subject 9376 is an adult male of the human species. The subject presents with a distinctive feature on the mouth area, which has been identified as a mouth spot. The mouth spot is accompanied by a frightened mouth expression. The subject's head is described as "not arranged green," meaning it is unkempt and uneven. The forehead features a two-color band.

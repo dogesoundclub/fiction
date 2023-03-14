@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7983
+Description: Subject 7983 appears to be a small brown monkey, measuring approximately 2 feet in height when standing upright. Its hands and feet are adapted for grasping and climbing, allowing it to easily maneuver around its environment. Notably, the subject appears to wear a pair of goggles on its forehead at all times, although it is not clear what purpose these serve.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7875
+Description: 7875 is a humanoid entity of the species Homo sapiens, possessing orange stripes on their face and purple lips. Their eyes are blue clown eyes and their head is blonde, featuring a wing-like protrusion. The entity wears a jade earring and is often seen smoking a cigarette.

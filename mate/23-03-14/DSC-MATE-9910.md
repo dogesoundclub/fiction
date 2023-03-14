@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9910
+Description: DSC-MATE-9910 is a human female, approximately 28 years old. She stands at 5’7” and weighs approximately 125 lbs. DSC-MATE-9910 has distinct physical features, including orange stripes on her face and a green head with edge curl. She wears a pair of goggles on her forehead and a jade earring in each ear. She is often seen wearing a silver chain around her neck.

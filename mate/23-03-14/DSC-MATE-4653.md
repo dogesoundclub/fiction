@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4653
+Description: DSC-MATE-4653 is a male humanoid rabbit approximately 5'5" in height with green hair and a purple cap. DSC-MATE-4653 possesses a pair of jade earrings and a candy stick, which he is often seen holding. DSC-MATE-4653's features include a frightened mouth, two-color headband, and eyes that appear indistinguishable from that of a human.

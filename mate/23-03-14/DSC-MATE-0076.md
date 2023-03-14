@@ -1,0 +1,2 @@
+ID # : DSC-MATE-76
+Description: DSC-MATE-76 appears to be a middle-aged human male of average height and weight. He is distinguishable by several unique facial features, including orange stripes across his face, a frightened mouth shape, and nerd glasses. His head is often seen wearing a bucket hat, and he has a forehead feature of two bands of different colors. DSC-MATE-76's ears are adorned with a gold earring, and he can often be seen wearing a silver chain around his neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2447
+Description: DSC-MATE-2447 is a police officer robot of unknown origin. Its exterior is mainly composed of steel and rubber, with the exception of its cycloptic green eye, which seems to be a form of energy-based sensor. DSC-MATE-2447 also possesses a frightened-looking mouth and wears a hooded sweatshirt with a red scarf and horned rim glasses. In addition, DSC-MATE-2447 wears a normal gas mask, which it requires in order to sustain its power source.

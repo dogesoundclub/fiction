@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1774
+Description: Item 1774, also known as "The Mechanic", is a female human of average height and build. Their most distinct features are the orange stripes across their face, purple lips, and red clown eyes. Item 1774 also sports a 00s school girl hairstyle with a goggle on their forehead, jade earrings, and a medical mask covering their mouth. They wear a gold chain as their only accessory.

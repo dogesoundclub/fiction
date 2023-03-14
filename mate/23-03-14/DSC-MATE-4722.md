@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4722
+Description: DSC-MATE-4722 is a female human with an unusual eye condition, resulting in both eyes resembling those of a clown. The individual stands at 1.68 meters and weighs approximately 70 kilograms. DSC-MATE-4722's head is consistently styled in a short haircut, and they wear a medical mask over their mouth. Their ears bear gold earrings, and they often wear a choker necklace.

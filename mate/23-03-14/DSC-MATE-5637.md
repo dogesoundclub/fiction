@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5637
+Description: Subject 5637 is a human female, approximately 25 years of age, with several distinct physical features. The most noticeable are the spotted pattern on their face, which extends from the forehead to the cheeks, and the purple lip coloration. They wear a purple cap with a headset as part of their reporter outfit, along with a silver chain necklace and a pair of jade earrings. Their forehead has a two-color band, which is believed to be cosmetic.

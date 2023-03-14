@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6738
+Description: DSC-MATE-6738 is a tiger of unknown origin, masquerading as a human fast food worker. It stands at 2.1 meters in height and weighs approximately 180 kilograms. It has shown no abnormal aggression towards personnel or the public, although it has been noted to be considerably efficient and organized in its work. It is always seen wearing a red scarf and a hoodie, along with normal glasses and smoked cigarettes. 

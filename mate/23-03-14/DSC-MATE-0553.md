@@ -1,0 +1,2 @@
+ID # : DSC-MATE-553
+Description: Subject 553 is a human male with spotted face features and frightened mouth. Their red clown eyes are a result of an anomalous infection. Subject 553 has a monk's head, equipped with a jade earring and a medical mask to contain the infection. They have a tendency to wear a silver chain around their neck.

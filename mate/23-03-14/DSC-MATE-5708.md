@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5708
+Description: Subject 5708 is a female human of average height with distinct features. Their eyes are orange and their eyebrows are arched in a similar fashion to that of a 00s school girl. A notable feature on the forehead is a pair of goggles, which they commonly wear on their forehead. The subject also wears a pair of gold earrings to accessorize. 

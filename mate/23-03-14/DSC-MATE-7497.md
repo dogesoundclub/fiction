@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7497
+Description: DSC-MATE-7497 appears as a female human with orange stripes on their face and red lips. Their eyes are VR Jade LED, and they have green hair in a purple cap. The subject wears a goggle on their forehead, gold earrings, and a choker. DSC-MATE-7497 works as a beautician but has exhibited unusual abilities related to their strong sense of intuition that border on psychic powers.

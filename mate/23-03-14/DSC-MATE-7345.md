@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7345
+Description: DSC-MATE-7345 appears to be a female human of average height and build, with spots covering her facial features and a distinctive purple lipstick. DSC-MATE-7345 wears normal glasses, along with a headset with a LED display and a two-color band on her forehead. She is often seen wearing a choker and an LED gas mask.

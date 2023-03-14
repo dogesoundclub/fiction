@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5408
+Description: DSC-MATE-5408 is a male monkey who holds the title of Politician. DSC-MATE-5408 appears to possess an addictive personality and is seen wearing horned rim glasses with green hair in a purple cap. DSC-MATE-5408's accessories include a silver chain around their neck and a cigarette in their mouth. DSC-MATE-5408 has one Jade earring on their right ear, which was designated by the containment team as a potential point of entry for a tracking device.

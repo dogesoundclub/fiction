@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1356
+Description: DSC-MATE-1356 is a human male, standing approximately 6'3" tall and weighing approximately 210 lbs. DSC-MATE-1356 is a car salesman who wears a suit and tie during business hours. DSC-MATE-1356 has distinguishable orange stripes on his face and a two-color band on his forehead. DSC-MATE-1356 is always seen with normal glasses and a pair of goggles on his forehead. DSC-MATE-1356 always carries a cigarette.

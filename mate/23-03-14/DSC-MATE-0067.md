@@ -1,0 +1,2 @@
+ID # : DSC-MATE-67
+Description: Subject 67 appears as a monkey of the male sex, capable of speech and intelligent reasoning. The subject often adorns a blue bandana on his head and is frequently found wearing horn-rimmed glasses. During periods of high activity, a gold chain can be seen around his neck and a whistle in his possession.

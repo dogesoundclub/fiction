@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9080
+Description: Subject 9080 is a male human with a profession as a beautician. The subject appears to be of average height with a normal hair color of blonde. Subject's most striking feature is the numerous spots that cover their face, giving them a mole-like appearance.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7079
+Description: DSC-MATE-7079 is a male monkey with ski goggle eyes and jade earring ears. It stands at 1.2 meters in height and is commonly found wearing a red scarf and smoking a cigarette. DSC-MATE-7079 has demonstrated a high level of intelligence and a remarkable ability to communicate through sign language.

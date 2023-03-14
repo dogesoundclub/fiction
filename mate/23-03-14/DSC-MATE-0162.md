@@ -1,0 +1,2 @@
+ID # : DSC-MATE-162
+Description: Item 162 appears as a 1.2-meter-tall monkey with a frightened expression with its mouth open widely at all times. Its eyes are protected by ski goggles, its tiny thin fingers have claws, and it is usually seen wearing a red scarf around its neck. Item 162 is employed by the local metro system as a train driver, and it takes safety procedures very seriously.

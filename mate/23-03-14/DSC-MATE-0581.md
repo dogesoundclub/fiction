@@ -1,0 +1,2 @@
+ID # : DSC-MATE-581
+Description: DSC-MATE-581 is a female human, approximately 32 years old. She stands at 5'8" and has an unusual appearance which sets her apart from other humans. Her face features orange stripes and bright red lips, along with blue clown eyes. She often wears a tiara and green cross earring, along with a gold chain and cigarette as accessories.

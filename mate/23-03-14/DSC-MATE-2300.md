@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2300
+Description: DSC-MATE-2300 is a male Siberian Tiger Mafia boss. The subject stands at approximately 7 feet in height and weighs approximately 600 lbs. DSC-MATE-2300 has two distinct color bands located on his forehead and a red cross earring on each ear. The subject is often seen wearing a police cap and a gold chain around his neck. Additionally, DSC-MATE-2300 is addicted to smoking and is never seen without a cigarette.

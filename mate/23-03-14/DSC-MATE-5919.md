@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5919
+Description: Subject 5919 is a male human, with distinct orange stripes on his face. The subject has a permanent smile and wears a police cap with a silver chain as an accessory. Despite his mildly unusual appearance, subject 5919 is otherwise unremarkable.

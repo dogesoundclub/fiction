@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6543
+Description: DSC-MATE-6543, commonly referred to as "The Tiger" due to its appearance, is a male Bengal tiger standing at approximately 10 feet tall and weighing in at an estimated 1000 pounds. DSC-MATE-6543's most notable features are its VR Jade LED eyes, red beanie on its head, and a silver chain around its neck. DSC-MATE-6543 is also commonly seen wearing a normal gas mask.

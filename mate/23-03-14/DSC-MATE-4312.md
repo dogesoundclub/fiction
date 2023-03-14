@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4312
+Description: DSC-MATE-4312 is a female human who works as a delivery driver. Subject's appearance is distinctive, featuring orange stripes on their face, red lips, and orange eyebrows. A tiara is present on their head, along with two color bands on the forehead and red cross earrings on each ear. Additionally, DSC-MATE-4312 is often seen wearing a gold chain and a normal gas mask.

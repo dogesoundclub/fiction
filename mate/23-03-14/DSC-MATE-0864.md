@@ -1,0 +1,2 @@
+ID # : DSC-MATE-864
+Description: 864 is a human male of average height and build. Their most notable feature is their blue clown eyes, which are thought to be the result of an anomalous mutation. They often wear a short peak cap, with a two-color band around their forehead and a goggle on their forehead. 864 also sports a gold earring on their left ear and can frequently be seen with a candy stick in their mouth.

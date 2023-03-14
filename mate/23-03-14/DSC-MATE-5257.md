@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5257
+Description: Subject 5257 is a male monkey of indeterminate breed. The subject often sports a doge hat on his head, with a jade earring adorning each ear. He is frequently seen with a red scarf wrapped around his neck, and a whistle in hand.

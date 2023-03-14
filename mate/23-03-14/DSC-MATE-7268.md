@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7268
+Description: 7268 is a male monkey species employed as a security guard. They stand at approximately 4 feet tall, with green hair tucked under a purple cap. They display a frightened mouth at all times, with normal eyes behind thick glasses, and wear a jade earring in their right ear. Additional features include a silver chain around their neck and a whistle on a chain, both of which they carry with them at all times.

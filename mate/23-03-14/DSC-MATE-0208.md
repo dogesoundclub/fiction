@@ -1,0 +1,2 @@
+ID # : DSC-MATE-208
+Description: DSC-MATE-208 is a male human with a mouth spot and frightened mouth. Its eyes resemble ski goggles, and its head is made of a powerful yet lightweight metal in a shade of purple. It wears a medical mask over its mouth, and has a jade earring in each ear. DSC-MATE-208 also wears a gold chain as an accessory.

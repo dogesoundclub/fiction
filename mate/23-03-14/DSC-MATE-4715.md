@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4715
+Description: DSC-MATE-4715 is a male real estate agent of the human species and displays characteristics of natural born leadership, often taking charge of situations. They are easily identifiable by their orange-striped face and police cap, as well as the VR Jade LED eyes and gold chain accessory they wear.

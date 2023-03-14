@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1130
+Description: Item 1130 is a male monkey of the genus Macaca, standing at 1.2 meters tall and weighing 50 kilograms. The subject's head is adorned with a striking mohawk hairstyle, and its eyes are constantly covered with horned rim glasses. Item 1130 is often seen wearing a red scarf and smoking a cigarette.

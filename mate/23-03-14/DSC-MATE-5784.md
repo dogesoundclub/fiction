@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5784
+Description: DSC-MATE-5784 is a human male of average height and weight. It has several notable physical features, including a small spot located near the corner of its mouth, ski goggle-like eyes, and a metal head. DSC-MATE-5784 also wears a gas mask equipped with an LED lighting system and a red scarf around its neck.

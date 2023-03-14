@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1919
+Description: Item 1919 is a humanoid male denoted as a Homo sapiens. Item 1919 exhibits unique physical features, with orange stripes on their face and a bucket hat on their head. Their eyes are red clown eyes, and they have a two-color band on their forehead. Item 1919 sports a gold earring in their ears, a silver chain around their neck, and a candy stick in their hand.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1951
+Description: DSC-MATE-1951 is a human male in his mid-30s, standing at 5'11". Its face is characterized by a spot on its mouth that resembles a black ink stain, and its mouth is perpetually in a frightened expression. Its eyes are covered by ski goggles, and it often wears a gold earring in its left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-93
+Description: Subject is a male humanoid of the species human, aged early twenties. He wears a hoodie that conceals his head, except for his ski goggles that cover his eyes. His face features a constant smile, and he is often seen wearing a silver chain around his neck and smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3068
+Description: DSC-MATE-3068 is a human male, approximated to be in its late 30s, designated as a Traffic Officer for the local department. DSC-MATE-3068 exhibits two distinct facial features: a small, circular spot on the upper left of its mouth and an expression of fright. It routinely wears a Doge hat and normal glasses, along with a silver chain. DSC-MATE-3068 is otherwise physically unremarkable.

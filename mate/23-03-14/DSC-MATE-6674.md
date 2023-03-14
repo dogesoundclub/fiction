@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6674
+Description: DSC-MATE-6674 is a female human known to the general public as a banker. DSC-MATE-6674's appearance is characterized by her spots on her face and her purple lips. Her hair is blonde and has a wing, and she wears normal glasses. Her forehead has a 2-color band and has jade earrings on her ears. DSC-MATE-6674 commonly wears a medical mask and a choker around her neck.

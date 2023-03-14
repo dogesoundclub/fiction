@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4076
+Description: 4076 is a sentient tiger, standing at approximately 6 feet tall when upright. Their physical appearance is further accentuated by their unique accessory items. 4076's eyes appear similar to ski goggles which, behaving as actual goggles, do not impede their vision in any way. An odd Doge hat protrudes from their head, often giving the impression of a strange fusion between a tiger and a canine. Two jade earrings dangle from 4076's ears, bouncing back and forth as they move. Around their neck, a gold chain decorates them.

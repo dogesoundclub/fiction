@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2902
+Description: DSC-MATE-2902 appears to be a male rabbit of approximately 1.2 meters in height, wearing a police cap and red scarf. The subject's most notable feature is the horned rim glasses over the eyes. The subject's mouth is often seen in a state of fear or distress. DSC-MATE-2902 is known to be impulsive and will act on emotions rather than logic, often leading to humorous or surprising outcomes.

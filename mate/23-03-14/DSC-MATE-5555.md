@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5555
+Description: DSC-MATE-5555 is a male monkey of the genus Cercopithecus with a charming and charismatic personality. DSC-MATE-5555 primarily wears a purple cap with a headset, goggles on the forehead, a red scarf, and a normal gas mask. DSC-MATE-5555's eyes are also protected by regular glasses.

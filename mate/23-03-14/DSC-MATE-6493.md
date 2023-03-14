@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6493
+Description: DSC-MATE-6493 is a human female with distinctive facial features. They have orange stripes around their eyes and a red lip. The eyebrows are also orange. The head is adorned with a tiara, which appears to be purely decorative. The forehead is split by a two-color band, and there is a gold earring on each ear. They often wear a choker.

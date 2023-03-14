@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8691
+Description: DSC-MATE-8691 is a male tiger who has displayed anthropomorphic traits. DSC-MATE-8691 stands at approximately six feet in height bipedally and weighs around 250 pounds. DSC-MATE-8691 has black and orange stripes and sports a gold chain around their neck as an accessory.

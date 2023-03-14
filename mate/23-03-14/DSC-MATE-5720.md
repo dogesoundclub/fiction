@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5720
+Description: DSC-MATE-5720 is a female human identified as a real estate agent. DSC-MATE-5720 has distinct spots on its face and wears normal glasses. DSC-MATE-5720's head is blonde and typically covered by an ushanka hat. DSC-MATE-5720 has a two-color band on its forehead and green cross earrings. DSC-MATE-5720 often wears a choker and smokes cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5463
+Description: DSC-MATE-5463 is a female human of average height and weight. The subject possesses unique facial features, including distinctive orange stripes running down each cheek and purple lips. The eyes of DSC-MATE-5463 are also notable, featuring a blue clown-like iris.

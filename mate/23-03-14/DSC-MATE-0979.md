@@ -1,0 +1,2 @@
+ID # : DSC-MATE-979
+Description: DSC-MATE-979 is a female human beautician, standing at approximately 5'5". Her most notable feature is a pattern of spots covering her face, which she often accentuates with bright red lipstick. Her eyes are an unusual shade of orange, matching her eyebrow color. She often wears a rainbow-colored festival headband, and a pair of goggles rest on her forehead. DSC-MATE-979 also wears a distinctive red cross earring and a choker necklace.

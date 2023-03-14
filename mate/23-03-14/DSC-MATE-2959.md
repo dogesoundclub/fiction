@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2959
+Description: DSC-MATE-2959 is a human female approximately 28 years of age. DSC-MATE-2959 stands at 1.68 meters in height and weighs 68.5 kilograms. DSC-MATE-2959's most prominent feature is her orange striped facial markings, which cover the majority of her face. DSC-MATE-2959 also has purple lips and orange eyebrows, which are strikingly unusual. DSC-MATE-2959's hair is a bright green color and is often seen under a purple cap with the number "69" written on it. DSC-MATE-2959 wears a red cross earring and a choker around her neck.

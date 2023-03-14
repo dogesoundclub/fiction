@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3364
+Description: Subject 3364 is a female mechanic, with striking orange stripes on her face, and normal glasses covering her eyes. She has short hair that could be characterized as "witchy," with a green cross earring adorning one ear. She is often seen wearing a medical mask, and a choker around her neck.

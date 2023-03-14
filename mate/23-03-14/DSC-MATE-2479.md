@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2479
+Description: Subject 2479 appears to be a human female of average height and weight, with distinct spots on her face and a friendly smile. Their eyes are a unique shade of VR jade LED and are often obscured by a bucket hat. 2479's mouth is typically covered by a medical mask, and they are sometimes seen wearing a gold chain and earring as accessories.

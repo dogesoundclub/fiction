@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1336
+Description: DSC-MATE-1336 is a humanoid robot, standing at 6 feet tall. Its appearance is that of a middle-aged man wearing a headset with LED lights, nerd glasses, and a medical mask covering its mouth. DSC-MATE-1336's features include a frightened mouth and a gold chain around its neck.

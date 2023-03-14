@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6382
+Description: DSC-MATE-6382 appears as a humanoid robot that resembles a human male car salesman. He has normal glasses covering his eyes, a retro cap on his head, a jade earring on his left ear, a gold chain around his neck, and a cigarette in his mouth. DSC-MATE-6382 shows a charismatic personality, often striking up conversations with others quickly.

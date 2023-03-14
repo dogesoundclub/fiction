@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6333
+Description: DSC-MATE-6333 is a train driver robot with a green cyclops eye as its primary facial feature. Its eyes are made of VR jade LED and it wears a jade earring on each ear. DSC-MATE-6333 always carries a silver chain around its neck and a cigarette in its mouth.

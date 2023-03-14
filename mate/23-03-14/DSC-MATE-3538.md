@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3538
+Description: DSC-MATE-3538 is a human male, standing approximately 1.9 meters tall and weighs approximately 100 kilograms. DSC-MATE-3538's most distinctive feature is the mouth spot, located just under the bottom lip. DSC-MATE-3538's eyes have been replaced with ski goggles, which appear to be surgically implanted into the eye sockets. DSC-MATE-3538 has a green cross earring in the left ear and is often seen wearing a normal gas mask.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5990
+Description: Subject 5990 is a male human, approximately 6 feet tall and weighing approximately 180 pounds. Their eyes are VR Jade LED, and they often wear a short peak cap and a jade earring. Subject 5990 is typically seen wearing a silver chain and carrying a cigarette on their person. 

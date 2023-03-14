@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4202
+Description: DSC-MATE-4202 is a female human identified as a security guard. They have purple spots on their face, with a distinctive purple lip, and typically cover their head with a hoodie. Their mouth is consistently covered with a medical mask.

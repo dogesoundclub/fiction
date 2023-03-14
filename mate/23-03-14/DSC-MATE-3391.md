@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3391
+Description: DSC-MATE-3391 is a humanoid of the female sex, who appears to be a car salesman by occupation. DSC-MATE-3391's facial features are unusual, with spots covering her face and a purple lip. DSC-MATE-3391's eyes emit a VR rainbow LED, which changes in color and intensity at irregular intervals. DSC-MATE-3391's head has a pink rabbit shape and a goggle on the forehead. DSC-MATE-3391 also wears a green cross earring, choker, and smokes cigarettes constantly.

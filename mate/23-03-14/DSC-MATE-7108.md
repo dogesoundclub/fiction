@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7108
+Description: Agent 7108 is a male human with a unique physical feature in the form of a mouth spot located on his lower lip. He possesses normal eye glasses and a head of distinct monk-like appearance. The addition of a green cross earring balances the rest of his otherwise understated clothing choices. His most noticeable accessory is a constant-cigarette protruding from his mouth, which makes him easily tracked by agency staff.

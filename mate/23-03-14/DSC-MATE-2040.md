@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2040
+Description: DSC-MATE-2040 is a male adult tiger, measuring approximately 2.5m in length and weighing approximately 300kg. DSC-MATE-2040 has red clown eyes, which emit an unknown type of aura, causing affected individuals to experience feelings of unease and anxiety. DSC-MATE-2040 also bears a doge hat and a gold earring on its left ear. DSC-MATE-2040's mouth is usually covered with a medical mask, which it periodically removes to eat.

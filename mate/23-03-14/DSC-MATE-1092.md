@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1092
+Description: DSC-MATE-1092 is a female human of average build and height. They possess striking orange stripes on their face, which can vary in intensity based on their emotional state. The most noteworthy feature of DSC-MATE-1092 is their bright orange side-head hair, which is styled in a spiky manner. Their red lips contrast heavily with their facial features.

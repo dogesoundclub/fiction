@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7590
+Description: DSC-MATE-7590 is a humanoid entity resembling a female in her mid-thirties. DSC-MATE-7590 exhibits features commonly associated with the style popular in the early 2000s, including a red lip and a two-color band on her forehead. DSC-MATE-7590's most notable feature is her orange eyebrows, which appear to glow in low light conditions. DSC-MATE-7590 is often seen wearing a green cross earring and a silver chain, and is frequently observed smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7077
+Description: Subject 7077 is a male human police officer with a kind and empathetic personality. They possess a unique facial feature in the form of a mouth spot and frequently wear a smile that appears genuine. Their eyes have been observed to resemble ski goggles in shape and are believed to be a natural occurrence.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1335
+Description: DSC-MATE-1335 is a human female police officer with several unique physical features. Most notably, DSC-MATE-1335 has orange stripes on her forehead and blond hair that resembles a wing. DSC-MATE-1335 also wears a goggle on her forehead, a medical mask over her mouth, and a green cross earring on each ear. Her eyes are red with a clown-like appearance, and she often wears a gold chain around her neck as an accessory.

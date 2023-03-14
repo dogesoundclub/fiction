@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8766
+Description: DSC-MATE-8766 is a male Traffic Officer robot standing at 5'10" tall. DSC-MATE-8766's face features a frightened mouth expression and wears horn-rimmed glasses over its sensors. DSC-MATE-8766's head resembles a red alarm, and they have red cross earrings as well as a gold chain and whistle as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3457
+Description: DSC-MATE-3457 is a male robot of unknown origin. Its face features include one green cyclops eye and a frightened mouth. The ski goggle eyes, bucket hat head, and gold earring ears give it a unique appearance. DSC-MATE-3457 routinely wears a silver chain accessory and carries a whistle on its person. Its programming is that of a Mafia boss, and it behaves accordingly.

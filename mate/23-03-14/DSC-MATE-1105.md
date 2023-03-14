@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1105
+Description: DSC-MATE-1105 appears to be a male rabbit, standing approximately 0.3 meters tall with green fur. The subject has a frightened mouth and wears nerd glasses in front of its eyes. The head of DSC-MATE-1105 is not arranged and its fur is green. The subject wears a gold chain around its neck and a normal gas mask.

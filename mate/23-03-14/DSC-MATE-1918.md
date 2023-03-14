@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1918
+Description: DSC-MATE-1918 is a male human of middle-age, standing at an approximate height of 6 feet and weighing approximately 240 pounds. The subject presents a distinct mottled pattern of spots on their face and has a perpetually frightened expression on their mouth. On their forehead, DSC-MATE-1918 wears a pair of goggles for safety purposes, and they have a gold earring on each of their ears. In addition, DSC-MATE-1918 wears a medical mask over their mouth and a red scarf around their neck.

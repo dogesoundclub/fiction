@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3651
+Description: DSC-MATE-3651 is a male rabbit with an unusual appearance. DSC-MATE-3651 has ski goggle eyes with a bucket hat on its head. Enhancing the peculiarity of its appearance is an LED gas mask that illuminates when DSC-MATE-3651 is under stress or fear. DSC-MATE-3651 displays a high level of intelligence compared to regular rabbits.

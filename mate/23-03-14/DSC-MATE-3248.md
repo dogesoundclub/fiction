@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3248
+Description: DSC-MATE-3248 appears to be a human female in her mid-30s with distinct facial features. DSC-MATE-3248's face is marked with numerous spots, while its smile is particularly wide and unsettling. DSC-MATE-3248's eyes are constantly red and appear to be similar to that of a clown. Its head is made of blue metal, while its earrings are made of jade.

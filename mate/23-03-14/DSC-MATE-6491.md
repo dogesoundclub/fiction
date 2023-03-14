@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6491
+Description: DSC-MATE-6491 is a male Siberian tiger in his mid-20s. DSC-MATE-6491 displays unusual physical traits, such as a frightened mouth and a medical mask covering its muzzle at all times, most likely due to previous injuries. DSC-MATE-6491 also possesses a distinctive red cross earring, which it refuses to answer any inquiries about.

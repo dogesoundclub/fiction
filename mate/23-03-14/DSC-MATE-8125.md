@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8125
+Description: 8125 is a male robot designed to operate as a firefighter. Its body is approximately 6 feet tall and covered in a red and silver metallic casing. Its face is equipped with a single green cyclops eye and a mouth that is constantly in a state of fear. The eyes appear to be ski goggles and the head is adorned with a red beanie.

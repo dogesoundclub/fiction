@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9765
+Description: DSC-MATE-9765 appears to be a humanoid robot with a frightened mouth and horn-rimmed glasses for eyes. Its head is shaped like a red alarm, with a goggle on its forehead, and it wears a gold earring in each ear. DSC-MATE-9765 often wears a red scarf as an accessory.

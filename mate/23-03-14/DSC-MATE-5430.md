@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5430
+Description: DSC-MATE-5430 is a male humanoid, standing 5'10" in height and weighing approximately 185 pounds. DSC-MATE-5430 has a distinct mouth spot, two ski goggle-like eyes, and a goggle on the forehead. An unusual silver chain is observed around the neck.

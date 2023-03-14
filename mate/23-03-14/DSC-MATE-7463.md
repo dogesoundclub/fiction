@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7463
+Description: DSC-MATE-7463 is a male human identified as a Mafia Boss by the name of Vittorio 'The Fox' Marconi. DSC-MATE-7463 displays a distinct set of physical features, including orange stripes on the face, a constant smile, and normal glasses. Additionally, DSC-MATE-7463’s appearance includes a monk’s head and a medical mask covering its mouth at all times.

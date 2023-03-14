@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3259
+Description: DSC-MATE-3259 is a human female, with the distinctive physical features of orange stripes on their face and purple lips. Their head is adorned with a rainbow festival, and they wear a gold earring. They also wear a choker and carry a cigarette as two additional accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1141
+Description: Subject 1141 is a female human with distinctive orange stripes on her face, complemented by a pair of purple lips and red clown eyes. She sports a head of 90s brown hair which she styles in a punk fashion. Her appearance is completed by a normal gas mask she wears at all times, making it impossible to identify her without it.

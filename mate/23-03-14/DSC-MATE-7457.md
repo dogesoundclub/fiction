@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7457
+Description: DSC-MATE-7457 is a Caucasian female human with blonde hair typically found wearing an ushanka hat. DSC-MATE-7457 possesses unique orange eyebrow eyes and is often seen wearing gold earrings. DSC-MATE-7457 is employed as a beautician, operating out of a salon located in a suburban area where they offer a variety of cosmetic services.

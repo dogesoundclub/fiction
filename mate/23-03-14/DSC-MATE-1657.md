@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1657
+Description: DSC-MATE-1657 appears to be a sentient robot designed to resemble a traffic officer. It stands approximately six feet tall and possesses a male appearance. The robot's face features a perpetually frightened mouth and multi-colored VR LED eyes. Its head is not arranged in the standard form for this type of robot, displaying a green color. DSC-MATE-1657 wears a gold earring and a medical mask over its mouth at all times. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1436
+Description: DSC-MATE-1436 is a female human politician who exhibits caring and nurturing behavior towards those around her. Her facial features include bright red lips, and she often wears normal glasses. Her hairstyle is reminiscent of a 00s schoolgirl, and she sports a red cross earring. She is typically seen wearing a gold chain and an LED gas mask.

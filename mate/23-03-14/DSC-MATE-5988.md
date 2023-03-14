@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5988
+Description: Subject 5988, known by her pseudonym "Orange Stripes", is a female human with notable physical features, primarily her orange and black striped hair. Her red clown eyes are a defining feature of her face, and her head is described as "not arranged green". She is often seen with a two-color band on her forehead and a cigarette in hand. 

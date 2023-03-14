@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4351
+Description: Subject resembles a male rabbit with curly brown fur, standing at 80 centimeters in height. The subject sports a purple cap and a set of nerd glasses, his eyes appear notably more intelligent than the average rabbit. Additionally, the subject is commonly seen with a red scarf and candy stick, the properties and origins of which are currently unknown. 

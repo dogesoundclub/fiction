@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7201
+Description: DSC-MATE-7201 appears as a male monkey-like humanoid in his early twenties, standing at 5'5". DSC-MATE-7201 is commonly seen wearing a doge hat on his head, gold earrings on his ears, nerd glasses on his eyes, and a gold chain around his neck. Additionally, DSC-MATE-7201 is often seen carrying a candy stick in his hand while wearing a no-nonsense expression on his face.

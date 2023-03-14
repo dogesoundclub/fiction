@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6116
+Description: DSC-MATE-6116 appears to be a male monkey, standing approximately 1.2 meters tall and weighing approximately 33 kilograms. It wears a blue bandana around its head, a pair of normal glasses over its eyes and a gold chain around its neck. DSC-MATE-6116 consistently carries a candy stick in hand.

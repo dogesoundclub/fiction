@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1073
+Description: DSC-MATE-1073 is a male monkey of the species Macaca fascicularis, standing at approximately one meter in height. The subject's most distinctive feature is its frightened mouth, which it maintains often even when not exhibiting signs of fear. DSC-MATE-1073's eyes are obscured by horned rim glasses, and it wears a purple cap with green hair. The subject has elongated, jade-colored earrings in both ears and is frequently seen smoking cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9839
+Description: Item 9839 is a female human of unknown age and nationality. Item 9839’s appearance includes red clown eyes and a rainbow festival hat, making her stand out in a crowd. Item 9839’s ears are adorned with a jade earring and they wear a medical mask across their mouth at all times, likely due to concerns about hygiene. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3882
+Description: Subject 3882 is a male monkey, with a frightened mouth and normal glasses over his expressive eyes. He wears a purple cap with a headset, and a jade earring on his left ear. Subject 3882 carries a silver chain around his neck, and often wears an LED gas mask as protection against potential hazards.

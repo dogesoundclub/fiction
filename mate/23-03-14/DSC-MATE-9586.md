@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9586
+Description: DSC-MATE-9586 is a female human with orange stripes on their cheeks. Their eyes resemble those of a clown; red and oversized. Her head consists of a pink rabbit with prominent ears, and she wears a gold earring. DSC-MATE-9586 also wears a choker around their neck. 

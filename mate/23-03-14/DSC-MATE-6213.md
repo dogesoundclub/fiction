@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6213
+Description: Subject 6213 is a male tiger of unknown origin, possessing the ability to speak and perform human-centric tasks. It is currently employed as a fast food worker and often wears a purple cap with a headset, and a gas mask fitted with LED lights. It also wears a gold chain around its neck and goggles on its forehead. Subject 6213's eyes are normal but are often hidden behind the lenses of its glasses. Its most distinct feature is its frightened mouth, often seen during confrontational interactions with customers. 

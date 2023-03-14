@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2276
+Description: DSC-MATE-2276 is a male monkey with freakish features, including frightened mouth and horned rim glasses for eyes. It wears a purple cap with a headset and a goggle on its forehead. Furthermore, it has a gold earring and a silver chain as accessories.

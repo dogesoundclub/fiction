@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5885
+Description: DSC-MATE-5885 is a humanoid entity identifying as a female of the human species. Their physical appearance includes a smile as their primary facial feature, normal glasses framing their eyes, and two pigtail hairstyles. DSC-MATE-5885's forehead is marked by a two-color band, and their ears are adorned with a red cross earring. They often wear a choker and smoke cigarettes.

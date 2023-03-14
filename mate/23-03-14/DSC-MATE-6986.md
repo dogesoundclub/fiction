@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6986
+Description: DSC-MATE-6986 is a male humanoid with orange stripes on his face and green layers on his head. DSC-MATE-6986's mouth is always covered by a medical mask and his blue clown eyes are constantly wide and frightened. DSC-MATE-6986 also has green cross earrings in both ears. Despite these unusual physical traits, DSC-MATE-6986 is a human.

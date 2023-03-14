@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8665
+Description: DSC-MATE-8665 appears to be a male rabbit, standing at approximately 30 centimeters in height. It possesses red clown eyes that are capable of exerting a powerful hypnosis effect on anyone who makes direct eye contact with it. Additionally, DSC-MATE-8665 wears a hoodie at all times and accessorizes with a gold chain and a cigarette.

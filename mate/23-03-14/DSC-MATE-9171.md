@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9171
+Description: DSC-MATE-9171 is a human female with brown hair styled in a 90s fashion, red clown eyes, and red lipstick. It has a silver chain necklace and a jade earring in each ear. DSC-MATE-9171 is often seen smoking cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9748
+Description: Item #9748 appears to be a male humanoid made entirely of metal located in a humanoid body structure. Item #9748 stands at approximately 6 feet tall, and weighs approximately 400 pounds, with a normal glass for eyes, a hoodie for a head, a red scarf for an accessory, and a whistle for another accessory. Item #9748 has a seemingly sentient mind capable of independent thoughts.

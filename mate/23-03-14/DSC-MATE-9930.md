@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9930
+Description: DSC-MATE-9930 is a male monkey with a frightened mouth, VR rainbow LED eyes, and a hoodie on its head. DSC-MATE-9930 also possesses one accessory, a cigarette. DSC-MATE-9930 appears to have a unique ability to use the virtual reality software to manipulate the world around it.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5326
+Description: DSC-MATE-5326 is a male Bengal tiger that displays several unusual physical traits, including Jade LED eyes that emit a virtual reality effect, a blue bandana wrapped around its head, and a goggle on its forehead. DSC-MATE-5326 also sports a jade earring on its left ear, a silver chain worn around its neck, and a whistle hanging from its bandana.

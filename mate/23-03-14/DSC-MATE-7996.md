@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7996
+Description: DSC-MATE-7996 is a male monkey belonging to the species Macaca fascicularis. It stands approximately 1 meter tall and is adorned with a blue bandana and a gold earring. DSC-MATE-7996's eyes consist of a virtual rainbow LED display that changes color depending on its mood.

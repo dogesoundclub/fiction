@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3272
+Description: DSC-MATE-3272 is a male monkey of the species Macaca mulatta (rhesus monkey) with black fur and horned rim glasses worn over its eyes. DSC-MATE-3272's face features a constantly frightened mouth. DSC-MATE-3272's head is covered in normal black hair.

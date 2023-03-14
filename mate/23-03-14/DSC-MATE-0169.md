@@ -1,0 +1,2 @@
+ID # : DSC-MATE-169
+Description: DSC-MATE-169 is a female human with an orange side-shaved head. DSC-MATE-169 is a qualified veterinarian but exhibits erratic and impulsive behavior. DSC-MATE-169 has a tendency to act without thinking, which has led to several minor accidents and mishaps. It is believed that DSC-MATE-169’s reckless behavior stems from a desire to impress others, often resulting in humorous situations. DSC-MATE-169’s most notable accessory is a gold chain that she wears around her neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1327
+Description: DSC-MATE-1327 appears to be a robotic humanoid with a red alarm for a head and jade earrings in its ears. DSC-MATE-1327's eyes are typically covered by a pair of nerd glasses and it often wears a gold chain around its neck. Accessory #2 is a normal gas mask and is not typically worn by DSC-MATE-1327 unless specifically requested.

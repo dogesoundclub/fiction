@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9658
+Description: Subject 9658 appears as a male human with distinctive spots on his face. He wears normal glasses over his brown eyes, and his head appears to be made of an unknown metal that glows purple in certain lighting conditions. Subject 9658 also wears a gold earring and a gold chain as accessories, along with a normal gas mask that covers his face.

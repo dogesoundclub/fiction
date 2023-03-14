@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2410
+Description: Item 2410 is a male rabbit of indeterminate breed, weighing approximately 3 kg. The rabbit wears a doge hat, a pink bowtie and carries a candy stick. The rabbit speaks human language (English) fluently and has displayed a high level of intelligence and self-awareness. The rabbit also exhibits an energetic and enthusiastic personality, with a tendency to get overly excited about mundane things.

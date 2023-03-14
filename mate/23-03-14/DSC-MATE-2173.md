@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2173
+Description: DSC-MATE-2173 is a male, sentient Siberian tiger. It stands at 2 meters tall and weighs 250 kg. DSC-MATE-2173 is capable of speaking fluently in human languages, with a noticeable Chicago accent. DSC-MATE-2173 exhibits a preference for wearing jade earring and nerd glasses, and purple cap.

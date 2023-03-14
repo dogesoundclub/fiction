@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1579
+Description: DSC-MATE-1579 is a human male, with blue clown eyes and spot-like marks on his face. He sports a mohawk hairstyle and wears a silver chain as his accessory. Two color bands can be seen on his forehead, and he wears a goggle as a headgear. Additionally, his ears are pierced with green cross earrings.

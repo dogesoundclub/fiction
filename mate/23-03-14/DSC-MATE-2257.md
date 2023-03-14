@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2257
+Description: DSC-MATE-2257 is a human male with orange stripes on his face and a peak spike on his head. He possesses a pair of red clown eyes, a set of green cross earrings, and goggles that are worn on his forehead. DSC-MATE-2257 also carries a candy stick as well as a red scarf.

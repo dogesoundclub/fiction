@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5051
+Description: Subject 5051 is a male humanoid, appearing to be roughly in their mid-thirties. They dress eccentrically, wearing a bucket hat and featuring a two-color band around their forehead. Additionally, they keep a goggle on their forehead at all times. The subject carries a portable gas mask with built-in LEDs that illuminate their face. 

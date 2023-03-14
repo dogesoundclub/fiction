@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8111
+Description: DSC-MATE-8111 is a male rabbit with VR Rainbow LED eyes, a frightened mouth, and a purple cap adorned with a headset. The rabbit has a gold earring and a silver chain around its neck. It also has a whistle and goggles on its forehead.

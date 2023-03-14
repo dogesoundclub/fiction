@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2058
+Description: DSC-MATE-2058 appears to be a robotic firefighter, standing at 6'3" tall and weighing approximately 250 lbs. DSC-MATE-2058's head is a red alarm, with a single green cyclops eye serving as its primary method of visual input. Its eyes are a virtual reality rainbow LED display, and its mouth is covered by a medical mask. DSC-MATE-2058 has a gold earring in one ear and a gold chain around its neck, neither of which serve any apparent function.

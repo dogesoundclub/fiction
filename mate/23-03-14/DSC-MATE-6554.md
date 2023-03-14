@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6554
+Description: The Theater Manager is a Human male with a distinctive Mouth Spot located just below his bottom lip. His smile is infectious and has been known to disarm even the most hostile individuals. The subject is rarely seen without his trademark blue bandana wrapped around his head, which serves to partially conceal his beady eyes.

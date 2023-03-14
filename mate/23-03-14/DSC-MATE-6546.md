@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6546
+Description: DSC-MATE-6546 is an autonomous delivery driver robot designed to transport packages and goods between locations. It stands at 5 feet 6 inches tall and weighs approximately 200 pounds. Its body is predominantly composed of steel and plastic materials. It is equipped with a single green cyclops eye for visual navigation and can see in both daylight and low-light conditions. DSC-MATE-6546's face features include a Doge hat sitting atop its head and normal glasses to disguise its appearance as human.

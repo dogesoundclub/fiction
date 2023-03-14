@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1701
+Description: Subject 1701 is a male human with a penchant for rebellion. He stands at approximately 5 feet 9 inches tall, and typically wears a purple cap with a headset and a silver chain around his neck. The subject's most distinguishing features are his VR Rainbow LED eyes, which emit a pulsating rainbow light.

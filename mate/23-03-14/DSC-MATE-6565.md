@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6565
+Description: DSC-MATE-6565 is a male rabbit weighing approximately 5 kg. DSC-MATE-6565 has black fur and bears a red scarf and a LED gas mask. DSC-MATE-6565 also wears a bucket hat on its head and goggles on its forehead feature.

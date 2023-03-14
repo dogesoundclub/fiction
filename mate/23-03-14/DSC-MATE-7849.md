@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7849
+Description: Subject 7849 is a human male with a seemingly friendly demeanor. It works as a veterinarian and is well respected in the community. Subject 7849 is often seen wearing a purple cap with a headset, a red medical mask, and a red scarf around his neck. Its most distinctive feature is its eyes, which are naturally red and clown-like in appearance. However, it is unclear if these are an anomaly or a result of cosmetic lenses or contacts.

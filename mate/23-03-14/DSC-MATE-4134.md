@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4134
+Description: DSC-MATE-4134 is a human female roughly in their mid-twenties, with distinct spots across their face. They possess bright orange eyebrows and wear a medical mask, making identification of facial features difficult. Their overall appearance is reminiscent of a schoolgirl from the 2000s, complete with a choker accessory. Despite their unusual appearance, DSC-MATE-4134 displays no anomalous physical or cognitive abilities.

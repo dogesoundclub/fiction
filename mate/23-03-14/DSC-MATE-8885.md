@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8885
+Description: Officer 8885 is a male monkey approximately 3 feet in height. The subject is characterized by its frightened mouth and horned rim glasses over its dark brown eyes. The head of the subject is often adorned with a blue bandana and a single jade earring on its right ear.

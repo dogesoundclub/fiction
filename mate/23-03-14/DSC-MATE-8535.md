@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8535
+Description: Subject 8535 is a human female who works as an electrician. She stands approximately 5'8" in height and has a slender build. She has red clown eyes which are consistently present, giving her a clown-like appearance. Her ears have a red cross earring which appears to be non-anomalous in nature. Additionally, she sports a gold chain around her neck and wears an LED gas mask as a regular accessory.

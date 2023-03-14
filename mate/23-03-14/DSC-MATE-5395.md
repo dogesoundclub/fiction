@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5395
+Description: DSC-MATE-5395 is a male monkey, identified as a member of the species Cercopithecus aethiops. DSC-MATE-5395's head is parted pink and its ears sport a gold earring. DSC-MATE-5395 often wears nerd glasses and is frequently seen smoking a cigarette.

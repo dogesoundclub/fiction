@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8894
+Description: DSC-MATE-8894 is a male rabbit of an unknown breed. Its physical appearance is that of an average farm-raised rabbit, with the exception of a jade earring on its left ear. Its true anomalous properties only become apparent when it is observed performing tasks related to its profession. DSC-MATE-8894 exhibits unparalleled efficiency and productivity, completing tasks that would normally take humans hours in mere minutes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8593
+Description: DSC-MATE-8593 is a male human with distinct physical features. He has spots on his face and a perpetual smile, regardless of the situation. DSC-MATE-8593's eyes have been replaced with what appears to be ski goggles, though they function as normal eyes. DSC-MATE-8593 often wears a retro cap on his head and a jade earring in one of his ears.

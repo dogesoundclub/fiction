@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6740
+Description: Item #6740, also known as the "Security Guard," is a male human with distinctive orange stripes on his face. His eyes are VR Jade LED and his head features a mohawk hairstyle. He wears a gold earring in one ear and a silver chain around his neck. Additionally, Item #6740 can often be found carrying a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4623
+Description: Item #4623 was a male human of average height and weight, with a unique set of facial features. The individual possessed spotted skin and a constant, friendly smile on their face. Their eyes were obscured by ski goggles, and they often wore a police cap to complete their outfit. A green cross earring adorned one of their ears, and they frequently wore a red scarf as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8479
+Description: DSC-MATE-8479 is a gold chain wearing primate, possessing the physical attributes of the genus Macaca. DSC-MATE-8479 stands approximately 1.3 meters tall and weighs 50 kg. His head always has a retro cap with the initials "J.J" on it. DSC-MATE-8479 is known to wear an LED gas mask at all times, which is required for his survival. DSC-MATE-8479 is inclined to use his special abilities to conduct electrical work and is capable of modifying electronic devices with without risk of electrocution.

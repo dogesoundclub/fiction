@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3649
+Description: DSC-MATE-3649 is a humanoid entity that appears to be a young adult female of the Homo sapiens species. Despite its humanoid appearance, DSC-MATE-3649 exhibits several unique and anomalous physical features, including orange stripes on its cheeks, purple lips, and red clown-like eyes. DSC-MATE-3649’s head is also green with an unkempt edge curl, and it has one gold earring in its left ear.

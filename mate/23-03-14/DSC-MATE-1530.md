@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1530
+Description: DSC-MATE-1530 is a female human with a unique appearance. Her face is characterized by various spots and a constant smile, along with blue clown eyes. DSC-MATE-1530 has blonde hair, which has been observed to sometimes take on a wing-like appearance. On her forehead, DSC-MATE-1530 has two colored bands, and she wears gold earrings and a chain as accessories.

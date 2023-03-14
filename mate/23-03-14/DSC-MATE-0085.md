@@ -1,0 +1,2 @@
+ID # : DSC-MATE-85
+Description: DSC-MATE-85 is identified as a male rabbit, equipped with the VR Jade LED eyes, a police cap on its head, a gold earring on one ear, and a gold chain. DSC-MATE-85 stands out compared to most rabbits due to its humanoid behavior, having enough intelligence to communicate with humans through a speech module on its collar. DSC-MATE-85's personality is that of a charismatic leader, always keen to be in charge of situations. It has remarkable political and interpersonal skills, which let him maneuver through conversations effortlessly.

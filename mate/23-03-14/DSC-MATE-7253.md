@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7253
+Description: DSC-MATE-7253 is a humanoid female identified as a beautician. They exhibit an orange stripe pattern on their cheeks and possess normal glasses over their eyes. DSC-MATE-7253's head is green with edge curls, and they typically conceal their mouth with a medical mask. 

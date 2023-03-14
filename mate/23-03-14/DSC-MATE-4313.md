@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4313
+Description: DSC-MATE-4313 is a male human with blue clown eyes, who wears a medical mask and a police cap with goggles on the forehead. They have a gold earring on one ear and a silver chain around their neck. DSC-MATE-4313’s most notable feature is their frightened mouth expression, which they display even when not afraid.

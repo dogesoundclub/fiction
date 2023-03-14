@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1397
+Description: DSC-MATE-1397 is a humanoid creature bearing the appearance of a tiger. DSC-MATE-1397 stands approximately 6 feet tall and weighs approximately 300 pounds. DSC-MATE-1397's head is adorned with a red beanie with a 2-color band around the forehead. DSC-MATE-1397's ears are pierced and sport a gold earring on each side. DSC-MATE-1397 also wears a gold chain around its neck and an LED gas mask as a mouth covering.

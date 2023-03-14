@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2561
+Description: Item #2561 is a theater manager robot designed to manage and oversee theatrical performances. The entity's head is in the form of a hoodie, with a cigarette accessory placed on its mouth, which it does not light. Item #2561 stands at 6 feet in height, and weighs approximately 200 pounds.

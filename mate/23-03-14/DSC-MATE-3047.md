@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3047
+Description: DSC-MATE-3047 is a male monkey of an unknown species, with a height of 1.6 meters and an estimated age of 10 years. Its head is adorned with a blue bandana, and a red scarf is draped around its neck. DSC-MATE-3047 has demonstrated the ability to walk upright and manipulate objects with its hands.

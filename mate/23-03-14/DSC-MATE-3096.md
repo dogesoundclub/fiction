@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3096
+Description: DSC-MATE-3096 is a humanoid individual of female sex and human species. DSC-MATE-3096 is the current boss of a criminal organization based in [REDACTED]. DSC-MATE-3096 has distinctive purple lips and blue clown eyes. DSC-MATE-3096's head is colored in metallic blue, and DSC-MATE-3096 often wears a gold chain as an accessory.

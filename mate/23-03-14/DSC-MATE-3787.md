@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3787
+Description: DSC-MATE-3787 is a juvenile male baboon, exhibiting typical physical traits of their species with the addition of a jade earring and a gold chain. DSC-MATE-3787 sports parted pink hair and reflective nerd glasses, further peculiarities that make their appearance easily recognizable.

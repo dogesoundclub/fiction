@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7179
+Description: DSC-MATE-7179 is a highly advanced robot, presumed to have been developed by an unknown group. DSC-MATE-7179 stands at approximately 2 meters tall and weighs over 120 kilograms. DSC-MATE-7179's body is primarily composed of metallic alloys and reinforced composite materials.

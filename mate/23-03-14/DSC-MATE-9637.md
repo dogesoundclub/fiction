@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9637
+Description: DSC-MATE-9637 is a male human with a distinctive mouth spot located on the upper left side of his lip. The eyes are equipped with VR Rainbow LED technology that plays different colors depending on his mood. The head is parted with a pink color and has green cross earrings. DSC-MATE-9637 always wears a red scarf as an accessory.

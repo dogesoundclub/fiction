@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9210
+Description: DSC-MATE-9210 appears as a male humanoid with physical traits similar to those of a Bengal tiger. Its eyes are bright red with vertical pupils, resembling those of a circus clown. DSC-MATE-9210 wears a purple cap with a headset attached and a pair of gold earrings. It also wears a gold chain necklace and often carries a cigarette in its mouth.

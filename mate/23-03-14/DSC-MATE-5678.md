@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5678
+Description: Subject 5678 appears to be a young human female in her early twenties, with an unusual appearance that includes a traditional 00s school girl outfit and a striking set of jade earrings. She is known to wear a normal gas mask at all times, regardless of any potential health hazards she may face. Her personality is characterized by a strong sense of independence and a rebellious streak that can cause her to disobey orders or engage in potentially dangerous activities without warning.

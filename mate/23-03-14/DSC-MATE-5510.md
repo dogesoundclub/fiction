@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5510
+Description: DSC-MATE-5510 appears as a male Tiger with ski goggle eyes, a purple cap with a headset, and a red cross earring on both ears. DSC-MATE-5510 responds to the name "Tigger," and identifies as a delivery driver. When prompted, DSC-MATE-5510 will present the required documentation for any package delivery it is assigned.

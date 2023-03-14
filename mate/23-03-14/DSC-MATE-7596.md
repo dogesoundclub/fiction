@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7596
+Description: DSC-MATE-7596 is a male Bengal tiger standing at approximately 2.5 meters tall and weighing 220kg. It displays bright blue clown eyes which emit a mesmerizing effect, compelling any individual it makes eye contact with. DSC-MATE-7596 wears a purple cap with a headset on its head at all times, as well as a jade earring on its right ear. Additionally, DSC-MATE-7596 carries around a candy stick as a personal accessory.

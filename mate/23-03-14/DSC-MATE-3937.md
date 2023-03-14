@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3937
+Description: DSC-MATE-3937 is a female human with orange stripes on her face and a continuous smile that never fades away. The subject's eyes are similar to those of a clown, with bright red pupils and white sclera. Her head is slightly tilted to the right, permanently in a side-facing position. DSC-MATE-3937 is always seen wearing a gas mask with LED lights attached to its surface. The mask serves no practical use in filtering air, making its purpose unclear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7902
+Description: DSC-MATE-7902 is a human male identified as an electrician. The subject is approximately 1.8 meters in height and weighs approximately 82.5 kilograms. The subject's most notable feature is its appearance; its head is entirely made of metal and painted in a shade of purple. Its eyes are replaced by VR Rainbow LED, and it wears goggles on its forehead. It also has a green cross earring on its left earlobe. DSC-MATE-7902 always wears a medical mask and a red scarf. It speaks with a monotone voice.

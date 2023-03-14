@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8681
+Description: 8681 appears to be a humanoid robot standing at 6'2", dressed in a blue uniform with a short peak cap. The robot's face features a single green Cyclops eye and a frightened mouth. The eyes are VR rainbow LED, which can display various expressions. On the forehead lies a set of goggles, and the robot sports a red cross earring on the left ear. The robot appears to be attached to a silver chain, and a normal gas mask hangs around its neck. 

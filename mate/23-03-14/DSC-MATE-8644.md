@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8644
+Description: DSC-MATE-8644 appears to be a human male of average height and build. His most notable features include orange stripes on his face, a blue bandana on his head, and green cross earrings on his ears. He often wears nerd glasses and a silver chain as accessories.

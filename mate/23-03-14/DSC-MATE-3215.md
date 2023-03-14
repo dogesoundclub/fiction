@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3215
+Description: DSC-MATE-3215 is a female human of average height and build. DSC-MATE-3215 possesses several distinctive physical features which include spots on her face and a pronounced purple hue to her lips. DSC-MATE-3215's unique features are enhanced by her custom-made VR Rainbow LED eyes and her choice of a green cross earring as her trademark accessory. DSC-MATE-3215 is never seen without her silver chain which is believed to have significant sentimental value.

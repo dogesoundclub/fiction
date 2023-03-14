@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3357
+Description: Item #3357 is a human female who possesses an unnaturally high level of agility, strength, and intelligence. Her most distinctive feature is her blue clown eyes, which are always visible through the eye lenses of her LED Gas Mask. Item #3357 prefers to remain concealed, often covering her head with a black hoodie and her face with the LED Gas Mask.

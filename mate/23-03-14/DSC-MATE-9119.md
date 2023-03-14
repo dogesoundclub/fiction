@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9119
+Description: Subject 9119 is a human male in his late thirties with a slight build and a peculiar appearance. The subject wears green ski goggles that cover his eyes at all times, a plain retro cap and a single earing on his left ear, resembling a green cross. Additionally, subject is often seen carrying a candy stick or other sugary treat in their pocket, which serves as a physical manifestation of their personality trait of always attempting to improve their mood or those in their surroundings.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2195
+Description: Object 2195 has been identified as a human female, with distinguishing orange stripes on her face, and a perpetually smiling expression. The subject's eyes are of a blue clown hue, and their head is often adorned with a hoodie for unknown reasons. Their mouth is obscured by a medical mask, which may or may not have been worn as a protective measure. Object 2195 is often seen wearing a gold chain, which does not seem to have any anomalous properties.

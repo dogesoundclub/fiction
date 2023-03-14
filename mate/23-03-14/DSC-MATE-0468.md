@@ -1,0 +1,2 @@
+ID # : DSC-MATE-468
+Description: DSC-MATE-468 is a human female with distinct orange stripes on their face. Their eyes have been replaced with VR rainbow LED display lenses. DSC-MATE-468's head hair is not arranged and of green color. A goggle is positioned on their forehead that has no apparent use other than aesthetics. DSC-MATE-468 typically wears a choker accessorized around their neck.

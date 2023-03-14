@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9919
+Description: Subject 9919 is a female human with pigtail hairstyle, green cross earrings, and orange eyebrow eyes. They frequently wear a gold chain as an accessory. They possess a captivating smile that has been observed to be disarming to some individuals.

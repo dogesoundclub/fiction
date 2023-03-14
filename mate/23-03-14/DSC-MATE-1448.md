@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1448
+Description: DSC-MATE-1448 is a male human of Italian descent, standing at approximately 185 cm tall and weighing 85 kg. DSC-MATE-1448 is the leader of an organized crime syndicate, known as the “Bloody Angels”, operating primarily within the tri-state area. DSC-MATE-1448 is known for his aggressive tactics, as well as his tendency to take risks that often put others in danger.

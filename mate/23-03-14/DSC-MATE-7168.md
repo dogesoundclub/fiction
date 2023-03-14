@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7168
+Description: Item #7168 is a sentient robot believed to be of extraterrestrial origin. The object appears to possess the skills and personality traits of a Mafia Boss, and has been known to engage in various criminal activities such as racketeering, extortion, and murder-for-hire.

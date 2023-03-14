@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2418
+Description: Subject 2418 appears to be a human male in his mid-30s with a slender build standing at about 5'8" in height. Other notable physical attributes include round-lensed nerd glasses, a police cap bearing the logo of a local TV news station, and a pair of goggles worn on his forehead. He also dons a jade earring on his right ear and a silver chain around his neck. 

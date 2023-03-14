@@ -1,0 +1,2 @@
+ID # : DSC-MATE-219
+Description: Subject 219 is a male human of average height and build. The subject has distinctive orange stripes on their face and a frightened expression, which is commonly seen on the subject's mouth. They typically wear normal glasses and a medical mask, and accessorize with a gold chain around their neck. The subject's blonde hair is styled in a normal men's cut, and they wear a red victory band on their forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9880
+Description: Subject 9880 is a male humanoid of the Homo sapiens species. He appears to be in his early thirties and physically fit for his age. His hair is parted and dyed a bright pink color. He wears a red victory band on his forehead and a jade earring in each earlobe. He also dons a pair of nerd glasses and a silver chain around his neck.

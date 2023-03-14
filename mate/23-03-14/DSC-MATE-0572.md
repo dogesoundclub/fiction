@@ -1,0 +1,2 @@
+ID # : DSC-MATE-572
+Description: DSC-MATE-572 appears to be a male humanoid measuring approximately 1.8 meters in height and weighing 75 kilograms. The subject has an appearance characterized by spots on its face and a ski goggle-like pair of eyes. DSC-MATE-572 is often seen wearing a short peak cap, a medical mask covering its mouth, a goggle on its forehead, and a green cross earring on its left ear. It is also frequently seen wearing a gold chain as an accessory.

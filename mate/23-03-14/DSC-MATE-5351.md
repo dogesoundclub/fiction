@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5351
+Description: Subject 5351 is a human female of average build, standing at 5'8" and weighing approximately 135lbs. The subject's most distinctive feature is the bright orange stripes on her face, which are complemented by her purple lips. Her hair is styled in a shoulder-length bob, with a metallic blue hue that shimmers in the light. The subject's earlobes sport gold earrings. The subject wears prescription glasses, which appear to serve no anomalous purpose.

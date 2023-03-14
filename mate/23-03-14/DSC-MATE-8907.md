@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8907
+Description: DSC-MATE-8907, also known as the Candy Man, is a humanoid creature of unknown origin. The subject appears to be human, with noticeable green layers covering its head, and red clown eyes that glower with malice. The subject sports a number of spots on its face, which have not been identified as any known skin condition.

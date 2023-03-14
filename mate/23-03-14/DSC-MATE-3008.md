@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3008
+Description: DSC-MATE-3008 is a male robot designed to appear as a humanoid police officer. It is equipped with a single green cyclops eye and VR rainbow LED eyes. DSC-MATE-3008 sports a police cap on its head, with a goggle on its forehead, and medical mask over its mouth.

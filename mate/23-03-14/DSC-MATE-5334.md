@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5334
+Description: DSC-MATE-5334 is a male robot designed to resemble a police officer. DSC-MATE-5334's body is made of metal, with hydraulic joints, and is covered by a blue uniform. The robot stands at 1.8 meters in height, and weighs approximately 200 kilograms.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5311
+Description: DSC-MATE-5311 is a male tiger humanoid measuring 1.8 meters tall. The subject works as a real estate agent and dresses in a suit and tie. DSC-MATE-5311 expresses human-like intelligence and characteristics, including the ability to communicate in English fluently. DSC-MATE-5311's notable features include a gold earring on its left ear, horned rim glasses, and two black bands on its forehead. The subject also wears a candy stick and goggles on its forehead, used for unknown purposes.

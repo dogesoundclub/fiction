@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2759
+Description: Subject 2759 appears as an anthropomorphic monkey, standing approximately five feet tall. The subject wears a blue bandana around its forehead with a jade earring attached to its right ear. Its mouth is in a constant state of fear and anxiety, and it often chews on a Candy Stick for comfort. Despite its timid appearance, 2759 is highly intelligent and capable of advanced medical knowledge, having worked as a respected doctor for many years prior to containment.

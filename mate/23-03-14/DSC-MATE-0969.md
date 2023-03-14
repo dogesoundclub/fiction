@@ -1,0 +1,2 @@
+ID # : DSC-MATE-969
+Description: Officer 969 is a male human police officer with a unique appearance. He is easily recognizable by his orange striped facial features and red clown eyes that gleam in the dark. His head bears a strange, green hairdo that is never seen arranged.

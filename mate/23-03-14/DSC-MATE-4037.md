@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4037
+Description: Subject 4037 appears to be an average human male in his mid-thirties, with short brown hair, immaculately groomed facial hair and nerd glasses. His head is frequently adorned with a red beanie featuring a 2 color band on the forehead. He is often seen wearing a jade earring in his left ear.

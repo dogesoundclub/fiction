@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8864
+Description: DSC-MATE-8864 is a human female with orange stripes on her face and red lips. DSC-MATE-8864 wears a retro cap with goggles on her forehead, normal prescription glasses, a gold earring, and a silver chain. DSC-MATE-8864 carries a normal gas mask as protective gear when necessary.

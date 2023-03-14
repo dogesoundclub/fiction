@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8313
+Description: DSC-MATE-8313 is a male monkey, identified as a member of the species Macaca mulatta, standing at approximately 1.2 meters in height. DSC-MATE-8313's notable features include its bright red clown eyes that appear to glow under low-light conditions, a partially shaved and dyed pink head, and the presence of silver chain and candy stick that it carries around with it at all times.

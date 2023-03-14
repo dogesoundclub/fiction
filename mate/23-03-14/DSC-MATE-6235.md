@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6235
+Description: DSC-MATE-6235 is a male rabbit, approximately 1.6 meters in height, exhibiting typical features of its species. DSC-MATE-6235 is capable of verbal communication in English and displays typical rabbit behavior such as a fondness for carrots and clovers, and an aversion to loud sounds or sudden movements.

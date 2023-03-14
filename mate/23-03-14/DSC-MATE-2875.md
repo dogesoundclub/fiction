@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2875
+Description: Item 2875 is a human male identified as a news anchor. It stands at 6'1" and has an array of colorful features, including a mohawk on the crown of its head, and jade earrings on its earlobes. Its eyes are striking blue clown eyes, which are notable given the otherwise-human facial features item possesses. DSC-MATE-2875 is often seen wearing a red scarf and an LED gas mask; both accessories are presumed to be cosmetic.

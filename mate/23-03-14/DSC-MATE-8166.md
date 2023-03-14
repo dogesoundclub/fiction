@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8166
+Description: DSC-MATE-8166 is a humanoid designated as a farmer. DSC-MATE-8166 is a female with striking orange stripes on their face, accompanied by a set of orange eyebrows and a red lip. DSC-MATE-8166 has blonde hair, with what appears to be a wing protruding from their head. DSC-MATE-8166 wears a jade earring and a gold chain around their neck. A medical mask covers DSC-MATE-8166's mouth.

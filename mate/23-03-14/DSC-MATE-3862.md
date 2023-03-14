@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3862
+Description: DSC-MATE-3862 is a human male, now identified as a Mafia Boss. DSC-MATE-3862 possesses the ability to hypnotize individuals through eye contact, due to the VR Rainbow LED installed in his eyes. This effect only lasts for a short time, estimated to be around 15 minutes for strong-willed individuals. DSC-MATE-3862 also carries a red scarf and a cigarette, both of which he never seems to let go of.

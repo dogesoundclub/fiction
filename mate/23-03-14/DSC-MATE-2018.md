@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2018
+Description: Subject 2018 is a female humanoid of the human species. The subject has a distinct purple lip, wears normal glasses, and sports a hoodie as a headpiece. In addition, the subject also wears a choker as an accessory.

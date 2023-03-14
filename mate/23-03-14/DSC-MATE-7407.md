@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7407
+Description: DSC-MATE-7407 is a human male identified as a Real Estate Agent with a bright smile that is constantly present. DSC-MATE-7407 has distinct blue clown eyes and green cross earrings, as well as a silver chain and a candy stick as accessories. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4185
+Description: DSC-MATE-4185 is a human female with distinctive physical features. Their face is marked with numerous spots, and they frequently wear red lipstick. They have normal eyesight and wear glasses. On their head, they wear a bucket hat, which bears a two-color band on their forehead. DSC-MATE-4185 also sports one earring, made of gold.

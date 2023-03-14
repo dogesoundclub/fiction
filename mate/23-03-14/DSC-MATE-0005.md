@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5
+Description: DSC-XXXX is a male monkey, standing approximately 1 meter tall, weighing 25 kg. It is identified as a traffic officer, wearing a purple cap with a headset, normal glasses over its eyes, a gold earring on its right ear, a gold chain around its neck, and a whistle hanging from its neck. DSC-XXXX speaks in a surprisingly clear voice and has demonstrated exceptional intelligence, able to read and understand human languages, and use basic communication tools.

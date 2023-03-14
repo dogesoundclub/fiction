@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6228
+Description: Item 6228 appears to be a male, human of average height and weight, with vibrant VR Rainbow LED eyes that blink continuously. The head of the subject is covered with a red beanie and a goggle, which is often seen resting on the forehead. The ears of the subject are adorned with a green cross earring, and a red scarf is draped around the neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1418
+Description: DSC-MATE-1418 appears to be a human male in his mid-twenties. The subject's face displays orange stripes, while its eyes are red clown eyes. DSC-MATE-1418 is often seen wearing a hoodie, with a red victory band on its forehead and a silver chain as its accessory. DSC-MATE-1418's most notable characteristic is its strong sense of duty and responsibility, which manifests in everything it does.

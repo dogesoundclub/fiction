@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1690
+Description: Subject 1690 is a female human with unique facial features. She has spots on her face and wears bright red lipstick. She wears normal glasses and a purple cap with a headset. She also has an earring in the shape of a red cross and wears a silver chain around her neck. Subject 1690 often smokes cigarettes as a stress-relieving mechanism.

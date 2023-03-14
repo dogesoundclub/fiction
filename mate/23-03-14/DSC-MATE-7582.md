@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7582
+Description: Subject 7582 is a male human of unknown age with distinct orange stripes across their face. The subject's eyes resemble ski goggles, and they often wear a police cap, gold chain, and a candy stick. They also possess a jade earring on their left earlobe. Despite their odd appearance, subject 7582 is relatively unremarkable - that is until they open their mouth.

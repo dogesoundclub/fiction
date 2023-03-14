@@ -1,0 +1,2 @@
+ID # : DSC-MATE-646
+Description: DSC-MATE-646 is a male tiger with unusual physical and mental characteristics. The subject possesses red clown eyes unusual to its species. There is a two-color band visible on its forehead, and a pair of goggles worn by the subject.

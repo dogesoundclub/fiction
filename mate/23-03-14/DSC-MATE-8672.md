@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8672
+Description: Subject 8672 is a humanoid robot possessing an advanced artificial intelligence system. The body structure of the subject is approximately 6 feet tall, with a green Cyclops eye as its primary facial feature. Subject 8672 mainly communicates through audible speech, accompanied by horn-rimmed glasses and a retro cap. 

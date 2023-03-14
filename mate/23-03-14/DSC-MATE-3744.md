@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3744
+Description: DSC-MATE-3744 is a male human of average height and build, sporting various distinctive features. DSC-MATE-3744 has spots covering his entire face, with blue clown eyes as his primary feature. DSC-MATE-3744 is always seen wearing a purple cap with a headset, a jade earring, and a red scarf around his neck. DSC-MATE-3744 is also fond of carrying around a candy stick as a personal item.

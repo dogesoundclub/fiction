@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2511
+Description: Subject 2511 is a male tiger with a humanoid appearance. The subject stands at 6'5" feet and weighs approximately 240 pounds. Subject 2511 has emerald green hair, styled in a long mane that drapes over a purple cap. The subject's face features a frightened look with white medical masks covering the nose and mouth. The subject wears nerd glasses, with goggles on the forehead. A red scarf is draped over the subject's shoulders.

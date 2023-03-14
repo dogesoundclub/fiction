@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4917
+Description: Subject 4917 is a female human approximately in her mid-twenties with spots on her face. They possess blue eyes that resemble clown eyes and has metal blue head with red cross earrings. They are frequently seen wearing a choker and a normal gas mask.

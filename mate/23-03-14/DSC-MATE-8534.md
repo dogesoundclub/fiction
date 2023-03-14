@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8534
+Description: DSC-MATE-8534, also known as "The Tiger", is a male tiger that stands at approximately 1.5 meters in height. DSC-MATE-8534's face features a consistently frightened expression, with its VR Jade LED eyes adding a more robotic touch to its appearance. DSC-MATE-8534 is commonly seen wearing a green bucket hat and sporting a jade earring. It also accessorizes with a silver chain and a cigarette, which it often smokes while on break.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6807
+Description: DSC-MATE-6807 is a humanoid entity presenting with a tiger-like appearance. Its fur is predominantly orange with black stripes, and it stands at 1.8m tall. DSC-MATE-6807 has jade LED eyes, green hair, and a purple cap. On its forehead, DSC-MATE-6807 wears a pair of goggles. Its ears bear a single gold earring.

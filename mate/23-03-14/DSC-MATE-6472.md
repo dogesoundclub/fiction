@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6472
+Description: DSC-MATE-6472 was a human female of unknown age, identified as a security guard working on Site ██. DSC-MATE-6472 was notable for its purple lip, normal glasses, and orange hair styled to one side. DSC-MATE-6472 was always seen wearing a medical mask and a choker as accessories.

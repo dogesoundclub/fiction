@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3537
+Description: DSC-MATE-3537 is a humanoid rabbit, standing at 1.5 meters tall. It wears a red beanie with a red victory band on its forehead. Its mouth is in a perpetually frightened expression. The eyes are currently unknown due to the LED gas mask that it wears over the upper half of its face.

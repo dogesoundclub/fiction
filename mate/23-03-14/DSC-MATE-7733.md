@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7733
+Description: DSC-MATE-7733 appears as a human female in her mid-thirties, with striking facial features consisting of orange stripes across the cheekbones and a purple lip. The subject is always seen wearing a goggle on her forehead, with a gold earring and gold chain being prominent features of her attire. DSC-MATE-7733 is a skilled police officer and pays high attention to detail. Her efficient and organized nature often comes off as being controlling and bossy, although it is deemed necessary for her line of work.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2841
+Description: DSC-MATE-2841 is a female human with distinct orange stripes on its face and pig-tails on its head. Its eyes are a bright orange and it is commonly seen wearing a gold earring and silver chain.

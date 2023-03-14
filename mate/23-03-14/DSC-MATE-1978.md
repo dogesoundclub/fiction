@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1978
+Description: Subject 1978 is a Robot of male gender, designed to resemble a humanoid figure with a Doge hat on its head and a Jade earring on each ear which enhances its hearing. Its mouth is covered with a medical mask and it wears a red scarf around their neck. Although the subject appears to function normally, it has exhibited remarkable artistic tendencies. It is capable of creating works in various mediums including painting, drawing, and writing. 

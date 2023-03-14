@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5901
+Description: DSC-MATE-5901 is a male tiger with VR jade LED eyes. DSC-MATE-5901 exhibits a frightened mouth and wears a normal gas mask as a protective measure against airborne contaminants.

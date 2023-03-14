@@ -1,0 +1,2 @@
+ID # : DSC-MATE-309
+Description: Subject 309 is a male human, about 6 feet tall with a mohawk hairstyle. Their face features are distinct, with a mouth spot and a clown mouth, giving them an eerie appearance. They have blue clown eyes and a two-color band on their forehead. The subject accessorizes their appearance with a green cross earring and a silver chain.

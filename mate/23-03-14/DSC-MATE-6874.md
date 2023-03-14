@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6874
+Description: DSC-MATE-6874 is a female human appearing to be in their mid-twenties with facial spots and a purple lip. Their eyes are VR Jade LED, which emit a soft, pulsating light. DSC-MATE-6874's head resembles a pink rabbit, with two floppy ears and a goggle worn on the forehead. The subject also wears a green cross earring and a choker around their neck. When interacting with personnel, DSC-MATE-6874 is seen wearing a normal gas mask.

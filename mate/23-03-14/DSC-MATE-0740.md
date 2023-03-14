@@ -1,0 +1,2 @@
+ID # : DSC-MATE-740
+Description: DSC-MATE-740 is a humanoid robot with a green Cyclops eye and a frightened mouth. The robot is outfitted with horned rim glasses to provide human-like eyesight, while the head is topped with a red beanie and a red cross earring dangles from its right ear. DSC-MATE-740 is equipped with a silver chain around its neck and a whistle on its person.

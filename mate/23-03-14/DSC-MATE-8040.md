@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8040
+Description: Item 8040 appears to be a male monkey species of unknown origin, wearing a retro cap and gold earring. The subject's most notable facial features are its frightened mouth and shaded glasses, obscuring its eye color. Additionally, Item 8040 is often seen wearing a gold chain accessory around its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4808
+Description: DSC-MATE-4808 is a human male of average height and weight. Their most distinctive feature is the irregular spots on their face. DSC-MATE-4808's eyes display red coloration similar to that of a clown, and they wear a jade earring in their left ear. They also wear a red scarf and a standard gas mask during their shifts. DSC-MATE-4808's personality is impulsive and often irrational, leading to unforeseen consequences.

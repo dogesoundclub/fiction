@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1447
+Description: DSC-MATE-1447 is a female news anchor, identified as Iris Hadiya. DSC-MATE-1447's face exhibits unusual orange stripes and she has a purple lip color. DSC-MATE-1447's eyes infectiously turn into red clown eyes, resulting in a heightened sense of terror in other humans. DSC-MATE-1447's head always appears to be encased in a hoodie, with her mouth covered by a medical mask.

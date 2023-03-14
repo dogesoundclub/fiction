@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5624
+Description: Item 5624 is a tiger hybrid, standing at 6 feet tall and weighing approximately 200 pounds. It possesses certain humanlike qualities, such as the ability to communicate verbally and the awareness of its own existence, but also has physical traits of a tiger, including fur, claws, and teeth. 

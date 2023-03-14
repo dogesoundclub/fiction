@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6237
+Description: Item 6237 is a human male of average build and height, with multicolored spots covering his face. The subject is in the upper-middle-class tier and works as a banker at a local financial institution. Item 6237 is known to wear normal prescription glasses and a jade earring in his left ear. Most often, he will appear wearing a red scarf and medical mask.

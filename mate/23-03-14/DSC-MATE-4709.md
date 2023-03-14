@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4709
+Description: Subject 4709 is a tiger, male, native to the Indian subcontinent. Despite its imposing form, the creature appears to be emotionally weak, prone to tears and overwhelmed by sentimentality. 4709's most salient feature is its perpetually frightened mouth - a phenomenon researchers attribute to chronic anxiety and stress.

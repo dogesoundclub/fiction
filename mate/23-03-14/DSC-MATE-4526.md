@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4526
+Description: DSC-MATE-4526 is a humanoid entity which appears to be a male of the Homo sapiens species. DSC-MATE-4526 displays two distinct features on its face: multiple spots and a constant smile. Its eyes are notably red and resemble those of a clown.

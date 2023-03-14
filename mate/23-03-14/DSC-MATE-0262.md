@@ -1,0 +1,2 @@
+ID # : DSC-MATE-262
+Description: Item 262 is a human male with significant orange stripes on his face. He wears a short peak cap and nerd glasses. On his forehead, he keeps a goggle. He often has a smile on his face and wears a gold chain and candy stick around his neck.

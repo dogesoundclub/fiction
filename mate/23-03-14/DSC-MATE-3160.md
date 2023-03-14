@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3160
+Description: DSC-MATE-3160 is a male monkey of the Cercopithecus genus, measuring approximately 1 meter in height and weighing 15 kg. DSC-MATE-3160 appears to be moderately skilled in the art of hair styling and grooming, using various tools and techniques to create aesthetically pleasing hairdos and make-up looks on other humanoid DSCs. DSC-MATE-3160's frightened mouth may suggest that it is not entirely comfortable in its containment and may be in distress.

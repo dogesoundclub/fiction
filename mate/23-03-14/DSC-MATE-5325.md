@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5325
+Description: DSC 5325 is a female human with distinctive orange stripes on their face. They have a perpetual smile on their face and possess red clown eyes. DSC-MATE-5325 wears a tiara on their head and has a goggle on their forehead.

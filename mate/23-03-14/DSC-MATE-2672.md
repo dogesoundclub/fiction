@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2672
+Description: DSC-MATE-2672, also known as "The Politician," appears physically as a human male with a frightened mouth and eyes that resemble ski goggles. DSC-MATE-2672 possesses green hair and wears a purple cap, a green cross earring, a silver chain, and is often seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5033
+Description: Item 5033 is a fully functional robot with a humanoid appearance. It stands at a height of 6 feet and is primarily made up of various metals and circuitry. Among its distinguishing features is a single large, green Cyclops eye in place of regular human eyes, and a set of nerd glasses. Its head is green and unarranged, and it wears a jade earring and a gold chain as accessories.

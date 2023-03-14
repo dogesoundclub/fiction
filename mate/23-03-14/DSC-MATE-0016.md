@@ -1,0 +1,2 @@
+ID # : DSC-MATE-16
+Description: DSC-MATE-16 is a humanoid male identified as a doctor. His face features a unique mark on his mouth, and he possesses a smile that seems to be permanently etched onto his face. DSC-MATE-16's most striking feature, however, are his blue clown-like eyes, which have been observed to glow under certain lighting conditions.

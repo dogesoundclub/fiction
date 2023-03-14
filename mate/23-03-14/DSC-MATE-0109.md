@@ -1,0 +1,2 @@
+ID # : DSC-MATE-109
+Description: DSC-MATE-109 appears to be a humanoid robot measuring 1.8 meters tall and weighing 60 kilograms. Its body is composed of a lightweight metallic alloy and is adorned with several unique features. DSC-MATE-109's head is covered by a Doge hat, and it has a single, bright green cyclops eye on its forehead. The robot's eyes are covered by what appear to be ski goggles, and it has a gold chain around its neck. DSC-MATE-109's most unusual feature is an LED gas mask that covers its mouth and nose.

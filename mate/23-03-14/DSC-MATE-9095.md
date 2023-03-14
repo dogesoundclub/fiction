@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9095
+Description: DSC-MATE-9095 is a female human with an unusual physical appearance. DSC-MATE-9095's face features a consistent smile, even in neutral expressions, and wears normal glasses. DSC-MATE-9095 has a distinctive pink rabbit head resembling a mascot costume, with gold earrings and often wears a medical mask to conceal their human mouth.

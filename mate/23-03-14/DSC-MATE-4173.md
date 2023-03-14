@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4173
+Description: Subject 4173 is a human female with distinct facial features, including purple lips and gold earrings. The subject is often seen wearing normal glasses and a medical mask, presumably to protect themselves from airborne pathogens. Despite the limitations of their job, they exhibit a personality that leans towards adventure and risk-taking, often leading to humorous yet dangerous situations.

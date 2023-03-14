@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3545
+Description: DSC-MATE-3545 is a humanoid male of the Homo sapiens species, with a distinctive red beanie on their head and a two-color band on their forehead. They also wear a jade earring, as well as a silver chain accessory. DSC-MATE-3545's occupation prior to containment was that of a car salesman.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8873
+Description: Subject 8873 appears to be a male human with distinct orange stripes on their facial features. Their eyes are reminiscent of ski goggles, and with a police cap as their head attire. One noticeable feature is a gold earring adorning one ear while a medical mask obscures their mouth. Strangely enough, Subject 8873 wears a silver chain as an accessory.

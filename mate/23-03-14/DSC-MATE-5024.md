@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5024
+Description: DSC-MATE-5024 is a male monkey, identified by a parted pink head with a two-color band and a pair of goggles resting on its forehead. The monkey wears a gold earring and a silver chain around its neck, as well as a candy stick often seen dangling from its mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3983
+Description: DSC-MATE-3983 is a female human of average height and build. Its most striking features are the orange stripes on its face and the red lips. Its eyes have orange eyebrows and its hair appears to be done in a rainbow festival style. DSC-MATE-3983 also has red cross earrings and wears a silver chain. 

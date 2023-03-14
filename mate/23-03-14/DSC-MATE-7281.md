@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7281
+Description: Subject 7281 is a human female with unique physical features. She bears spots on her face and sports a bold red lip. Her eyes are obscured by normal glasses, and she has an orange side head hairstyle. A goggle is often seen resting on her forehead as she wears a medical mask to cover her mouth. She frequently accessorizes with a gold chain and gold earrings.

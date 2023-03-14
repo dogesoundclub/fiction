@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5866
+Description: DSC-MATE-5866 is a humanoid robot, standing approximately 6'2" tall, with various accoutrements attached to its body. Its head is adorned with a short peak cap and a pair of nerd glasses, while goggles are strapped to its forehead. DSC-MATE-5866's mouth is covered with a medical mask, which appears to have no functional purpose.

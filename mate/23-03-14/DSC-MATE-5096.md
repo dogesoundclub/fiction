@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5096
+Description: 5096 is a male rabbit with a distinctive jade earring on its left ear. It appears to have heightened intelligence and can communicate using simple sign language. 5096 shows an affinity for adventure and takes risks that often lead to near-death experiences. Fortunately, due to its natural agility and quick reflexes, 5096 has survived all its dangerous escapades without harm.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7029
+Description: DSC-MATE-7029 is a human male identified as a skilled mechanic. The subject stands at approximately 5'9" and weighs approximately 170 pounds. DSC-MATE-7029's most notable physical features include a spot on the right side of their mouth and a pair of thick, prescription nerd glasses. DSC-MATE-7029 also has several green layers atop their head and a jade earring on their left ear. The subject commonly wears a red scarf as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8789
+Description: Subject 8789 is a male humanoid, with a distinct feature of orange stripes on his face. The subject has blue clown eyes and is seen sporting a wide, confident smile at all times. His forehead bears a red victory band, and he wears a gleaming jade earring on his right ear. The subject is often seen carrying a candy stick, which possesses no anomalous effect.

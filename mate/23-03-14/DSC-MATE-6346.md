@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6346
+Description: DSC-MATE-6346 appears to be a male monkey, roughly the size of a small human, with blue clown eyes and a frightened mouth. DSC-MATE-6346 is always seen wearing a red beanie on its head. DSC-MATE-6346 is known for its mischievous personality and enjoys pushing boundaries to see what happens. It is often seen breaking rules deliberately or searching for loopholes to exploit. DSC-MATE-6346 is not violent, but can be unpredictable, which makes containment difficult.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-702
+Description: DSC-MATE-702 appears to be a humanoid male of average height and weight. Their appearance is adorned with a short peak cap and a jade earring in each ear. They often wear a red scarf around their neck and a medical mask over their mouth. DSC-MATE-702's eyes are covered with normal glasses. 

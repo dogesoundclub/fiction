@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2883
+Description: DSC-MATE-2883 is a male rabbit of the Lepus europaeus species. It stands at approximately 1.5 meters tall, which is significantly larger than other rabbits of its species. DSC-MATE-2883 is generally harmless and possesses no anomalous abilities. However, it exhibits human-like behaviors and is able to communicate fluently in several languages, including English, French, and Spanish. DSC-MATE-2883 also displays a fondness for cigarette smoking and has been observed holding a lit cigarette in its mouth.

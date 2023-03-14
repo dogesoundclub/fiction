@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6013
+Description: Subject 6013 is a male humanoid of the human species, measuring approximately 5'10" in height and weighing approximately 160 pounds. They possess a striking appearance, with not arranged green hair, normal glasses over their eyes, and a green cross earring in each ear. They are often seen wearing a red scarf, which they seem to hold as a personal accessory. 

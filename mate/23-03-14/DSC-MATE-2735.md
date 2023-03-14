@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2735
+Description: DSC-MATE-2735 is a humanoid entity with appearance traits that often cause severe distress in those exposed to it. DSC-MATE-2735's face is adorned with vibrant orange stripes across its cheeks, and its red clown eyes are often described as feeling invasive and unnatural to those who make eye contact with it. Its head is covered in bright green hair, topped by a purple cap. DSC-MATE-2735 is also seen wearing a choker, and is constantly equipped with an LED gas mask.

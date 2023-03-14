@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9653
+Description: DSC-MATE-9653 is a humanoid male, identified as a Mafia Boss in his previous life. DSC-MATE-9653 displays various physical abnormalities, such as random spots on his skin, and a persistent smile on his face. DSC-MATE-9653's eyes are artificial and emit a rainbow-colored LED light at all times.

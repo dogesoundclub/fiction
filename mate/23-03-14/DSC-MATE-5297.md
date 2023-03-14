@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5297
+Description: DSC-MATE-5297 appears to be a male tiger, standing at 2 meters tall and weighing approximately 300 kilograms. DSC-MATE-5297 is capable of speech and is fluent in multiple languages. DSC-MATE-5297 often wears a hoodie with a red scarf and carries a candy stick as a signature accessory.

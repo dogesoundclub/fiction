@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4803
+Description: 4803 is a male human of average height and build, with prominent spots on his face and a frightened mouth. He wears nerd glasses which accentuate his intelligent nature, and his hair is fashioned into a peak spike. 4803 is often seen wearing a medical mask over his mouth, which is believed to be a precaution against airborne contaminants.

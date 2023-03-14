@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8178
+Description: Subject 8178 is a human female of average height and weight with normal glasses over a set of strikingly blue eyes. She is often seen wearing a headset with LED lighting commonly used in her profession as a mechanic. Subject 8178 has a great sense of humor and may enjoy making others laugh. This often leads to an infectious positive energy, although it is recommended to proceed with caution when exposed to subject's sense of humor.

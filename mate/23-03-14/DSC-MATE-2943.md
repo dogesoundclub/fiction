@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2943
+Description: Subject 2943 is a female human of unknown age with a love for adventure and a tendency to take risks. They possess distinctive purple lips and are known to wear a tiara on their head and jade earrings on their ears. Subject 2943 is often observed wearing a medical mask and a silver chain as an accessory.

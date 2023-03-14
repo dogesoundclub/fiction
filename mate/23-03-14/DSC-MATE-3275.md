@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3275
+Description: DSC-MATE-3275 is a male robot, composed of advanced technological components with a green, non-arranged head, adorned with a gold earring on each ear. DSC-MATE-3275 has a medical mask covering its mouth, along with a gold chain accessory.

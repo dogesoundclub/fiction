@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4274
+Description: Subject 4274 is a male humanoid with blue clown eyes and an unarranged green head. The subject is often seen wearing a silver chain accessory. 4274 is currently employed as a car salesman, and is known to possess a highly empathetic and compassionate personality. However, its tendency to take on other people's problems as its own has made it a potential threat to itself and others.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-15
+Description: DSC-MATE-15 is a female human in her late twenties, with brown hair styled according to fashion trends typical of the 1990s. She is generally friendly towards Foundation personnel and enjoys cracking jokes, even in stressful situations. DSC-MATE-15 has been observed telling humorous stories and doing impressions of various personalities to make others laugh. This behavior appears to be genuine and unrehearsed.

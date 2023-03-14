@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7895
+Description: DSC-MATE-7895 appears to be a male human of average height and build. They wear thick-rimmed nerd glasses which are believed to enhance their cognitive abilities. There are no abnormalities in DSC-MATE-7895's physical appearance other than a metal purple head, which appears to be cosmetic in nature rather than a manifestation of anomalous properties.

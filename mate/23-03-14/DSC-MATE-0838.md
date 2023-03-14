@@ -1,0 +1,2 @@
+ID # : DSC-MATE-838
+Description: DSC-MATE-838 is a Capuchin monkey that stands 60 cm tall and wears a set of shade glasses and a jade earring. DSC-MATE-838 also wears a silver chain and an LED gas mask, which allows it to communicate with humans more easily.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5028
+Description: Subject 5028 is a male individual of human species displaying spot-like patches on his complexion. The subject also exhibits a constant expression of timidness and a frightened mouth. His eyes appear to be a VR Jade LED display, protruding from his cranial cavity. The subject always wears a retro cap and goggles resting on his forehead, along with a golden earring. The most distinguishing feature is the LED gas mask he wears as an accessory that hides his nose and mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6717
+Description: Subject 6717 is a human female of approximately 30 years of age. She possesses a creative talent for fashion design and styling, alongside a charismatic personality. Subject 6717 is most recognizable by her signature red lip, normal glasses, and purple cap with a headset. She also wears a red cross earring and a medical mask over her mouth. Subject 6717's forehead is adorned with a 2 color band and a gold chain completes her outfit.

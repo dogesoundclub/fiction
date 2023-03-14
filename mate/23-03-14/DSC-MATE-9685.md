@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9685
+Description: DSC-MATE-9685 is a male rabbit standing at approximately 1.5 meters tall. It is often seen wearing a retro cap and horned rim glasses, as well as a gold earring and chain. DSC-MATE-9685 is known to smoke cigarettes regularly.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-975
+Description: DSC-MATE-975 is a human male of average height and weight with a unique appearance. The subject's mouth features a distinctive spot, resembling a candy stick, and exhibits a frightened expression. The eyes are covered by ski goggles, while the head is entirely covered in a metallic purple material. The ears are adorned with a gold earring, and DSC-MATE-975 can typically be seen wearing a gold chain and carrying a candy stick.

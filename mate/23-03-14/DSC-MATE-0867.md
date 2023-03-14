@@ -1,0 +1,2 @@
+ID # : DSC-MATE-867
+Description: DSC-MATE-867 is a male non-anomalous primate of the species Macaca fascicularis (also known as the crab-eating macaque). DSC-MATE-867 has demonstrated above-average intelligence for its species and is capable of complex problem-solving and communication. DSC-MATE-867 typically wears a blue bandana over its head and has a gold earring in its left ear. It also wears large nerd glasses and a silver chain around its neck.

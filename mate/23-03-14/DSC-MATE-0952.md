@@ -1,0 +1,2 @@
+ID # : DSC-MATE-952
+Description: DSC-MATE-952 appears to be a female human of indeterminate age. It possesses exceptional magical abilities, which it utilizes seemingly at will. Its face is recognizable by its characteristic red lip and short, witchy hair. The entity adorns itself with a jade earring and a gold chain for accessory purposes only.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8288
+Description: 8288 is a female human of Caucasian descent with unique facial and fashion features. She has spotted skin, blue clown eyes, and distinctive red lips. Her head is covered in blonde hair hidden under a fur ushanka, and she sports a red cross earring on one ear. Her accessories consist of a choker and an LED gas mask.

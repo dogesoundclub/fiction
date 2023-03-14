@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5353
+Description: DSC-MATE-5353 appears to be an anthropomorphic robot, resembling a humanoid figure with a green cyclops eye and a frightened mouth. DSC-MATE-5353's head wears a police cap over a ski goggle-eyed face with a goggle on its forehead. DSC-MATE-5353's primary distinguishing feature is its LED gas mask, which it wears at all times for life support. DSC-MATE-5353 identifies as male, using he/him pronouns.

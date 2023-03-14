@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9199
+Description: DSC-MATE-9199 is a male Monkey, approximately 1.2 meters in height with blue clown eyes and a distinctive Jade earring in its left ear. It dresses in a blue suit, accessorized with a silver chain and is frequently observed smoking a cigarette. DSC-MATE-9199's behavior is largely unpredictable, switching from mild to aggressive in a matter of seconds.

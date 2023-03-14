@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1785
+Description: DSC-MATE-1785 is a robot train driver designed for urban transportation. It stands at 6 feet tall and weighs approximately 550 lbs. Its body consists of a combination of steel, polymer, and various electrical components. Its head is covered by a bucket hat and ski goggles, which serve as its main source of vision. DSC-MATE-1785's forehead also features a pair of goggles, which it can use to magnify its view when necessary.

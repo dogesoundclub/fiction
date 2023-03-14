@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8461
+Description: DSC-MATE-8461 is a human male identified as [REDACTED], who works as a reporter in various news agencies. DSC-MATE-8461's most prominent features are the orange stripes on his face and the ski goggle-like eyes. Further physical traits include the metal-tinged purple head, green cross earring on both ears, and a gas mask.

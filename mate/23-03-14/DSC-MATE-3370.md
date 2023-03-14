@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3370
+Description: Subject 3370 appears to be a male monkey of unknown species. Its notable physical features include a green-colored mohawk and a jade earring in its left ear. The subject also wears black nerd glasses and is often seen with a cigarette.

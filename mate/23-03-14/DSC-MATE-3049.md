@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3049
+Description: 3049 is a human male with distinct features that set him apart from other humans. He has spots scattered across his face, making his appearance similar to that of a leopard. He has red clown eyes that appear to be permanently dilated, and his head is made of a metal purple material, which has unknown origins.

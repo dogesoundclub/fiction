@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9574
+Description: DSC-MATE-9574 is a male humanoid of the species Homo sapiens. DSC-MATE-9574 has spots all over their face, a smile on their lips, and wears a red scarf around their neck. DSC-MATE-9574 is often seen smoking a cigarette, and possesses a pair of VR Rainbow LED eyes and a green cross earring. Although DSC-MATE-9574 is of average height and weight, their physical attributes are augmented by an unknown anomalous effect, making them more agile and fast than most humans.

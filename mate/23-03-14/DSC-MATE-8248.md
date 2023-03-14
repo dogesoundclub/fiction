@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8248
+Description: DSC-MATE-8248 is a female human, approximately 30 years old, with red lips and orange eyebrows. She has not arranged green hair and wears a silver chain as an accessory. DSC-MATE-8248 has a unique set of features on her forehead, including a two-color band and a goggle that is constantly worn.

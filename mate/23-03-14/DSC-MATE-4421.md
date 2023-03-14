@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4421
+Description: DSC-MATE-4421, also known as "The Banker", is a human female of approximately 32 years of age. DSC-MATE-4421 is notable for the presence of prominent brown spots on her face, a two-color band on her forehead, and a pair of goggles worn on her forehead. DSC-MATE-4421 also frequently wears a choker and earrings made of jade. When engaged in social activities, DSC-MATE-4421 will wear a medical mask, citing "health concerns". DSC-MATE-4421 works as a banker for [REDACTED], and her cover story is adequately constructed and maintained.

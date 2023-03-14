@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8620
+Description: DSC-MATE-8620 is a human female of average height and weight, with distinctive spots on her face and prominent red lips. Their eyes are replaced with VR Rainbow LED, which appear to function as a method of enhancing awareness and perception. DSC-MATE-8620 is typically seen wearing a gold chain and a normal gas mask as accessories.

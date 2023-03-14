@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6619
+Description: DSC-MATE-6619 is a female, human politician with distinct facial features, including spots and a constant smile. DSC-MATE-6619 wears normal glasses, layered silver chain, and a jade earring on each ear. The head of DSC-MATE-6619 is green with an edge curl, an anomaly that has yet to be explained. DSC-MATE-6619 is always seen wearing a normal gas mask to prevent any form of pollutants or diseases that affect the lungs.

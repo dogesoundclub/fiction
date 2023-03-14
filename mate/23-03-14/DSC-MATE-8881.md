@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8881
+Description: DSC-MATE-8881 is a human male of average height and weight. The subject has green layers for hair, blue clown eyes, and a smile that is always present on his face. DSC-MATE-8881 is often spotted wearing a normal gas mask, which he claims is due to the polluted city where he works.

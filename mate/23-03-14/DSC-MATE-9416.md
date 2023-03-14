@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9416
+Description: DSC-MATE-9416 is a female human of unknown age with distinct facial features. She possesses clown-like eyes with an intense crimson hue, and lips that appear unnaturally purple. DSC-MATE-9416's head is adorned with a purple cap with green hair sprouting from it. Additionally, a pair of goggles remain on her forehead when not in use, and her ears bear jade earrings.

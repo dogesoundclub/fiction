@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5663
+Description: Subject 5663 is a human male with a distinguishing mark on his mouth in the shape of a spot. He regularly wears normal glasses, a red scarf, and is often seen with a candy stick in his mouth. Subject 5663 also possesses a gold earring on one ear and has been seen wearing a monk's hood.

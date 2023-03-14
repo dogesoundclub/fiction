@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9554
+Description: DSC-MATE-9554 is a female human who appears to be in her mid-30s. She measures at a height of 5'8" and weighs 152 lbs. Her facial features include distinct orange stripes and a red lip. She wears normal glasses and a red cross earring on her right ear. Her head is blonde and covered by a fur ushanka. DSC-MATE-9554 also wears goggles on her forehead and a medical mask over her mouth.

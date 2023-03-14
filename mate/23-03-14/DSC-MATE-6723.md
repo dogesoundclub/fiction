@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6723
+Description: Subject 6723 is a female human with spotted skin, blue clown eyes, and a bucket hat on her head. She wears a red cross earring in each ear and a choker around her neck. 6723 also wears a standard gas mask as an accessory. Despite her unusual appearance, 6723 is a trained veterinarian with experience in both small and large animals.

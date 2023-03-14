@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6523
+Description: DSC-MATE-6523 is a humanoid robot measuring approximately 1.8 meters in height. It appears to be a middle-aged male with a green cyclops eye for a face feature. Its eyes are concealed by a pair of normal glasses, and it wears a gold earring on one ear and a red scarf around its neck.

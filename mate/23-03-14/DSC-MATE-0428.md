@@ -1,0 +1,2 @@
+ID # : DSC-MATE-428
+Description: Subject 428 is a male tiger with a remarkable intellect and cunning, who rose to become a formidable Mafia Boss. Subject 428's primary weakness is their love of humorous debate, which can prove advantageous for those opposing them. This trait combined with their quick wit can make for some deadly scenarios. 

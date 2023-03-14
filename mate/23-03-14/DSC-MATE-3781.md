@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3781
+Description: DSC-MATE-3781 is a human female identified as a beautician by trade. DSC-MATE-3781 is 1.6 meters tall with a slight build and has short, curly black hair. DSC-MATE-3781's most notable feature is their VR rainbow LED eyes, which emit a soft glow and can be programmed for various effects. DSC-MATE-3781 also wears a silver chain around their neck and a green cross earring on their right ear.

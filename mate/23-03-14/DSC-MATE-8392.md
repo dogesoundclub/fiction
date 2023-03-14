@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8392
+Description: DSC-MATE-8392 is a female human farmer with spots on their face and normal glasses over their eyes. They have a short, witch-like hairstyle and a two-color band on their forehead. DSC-MATE-8392 is often seen wearing a gold chain accessory.

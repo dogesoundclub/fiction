@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7704
+Description: DSC-MATE-7704 is a European-Caribbean human male, approximately 30 years old, standing at 5'10". DSC-MATE-7704's most noticeable features are his neon-orange striped facial tattoos and permanent smile. DSC-MATE-7704 possesses standard human eyesight but wears corrective eyeglasses, which he describes as being "stylish."

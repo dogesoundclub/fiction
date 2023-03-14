@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2045
+Description: DSC-MATE-2045 is a humanoid robot standing at approximately 1.8 meters tall. It has a single green cyclops eye in the center of its head, which serves as its primary sensory apparatus. DSC-MATE-2045 wears a purple cap with a headset and jade earring, and a red scarf as its primary accessories. Its eyes are obscured by horned rim glasses, and its mouth covered by a medical mask.

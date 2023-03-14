@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8960
+Description: DSC-MATE-8960 is a male rabbit, standing approximately 70 cm tall and weighing 55 kg. DSC-MATE-8960 wears a police cap on its head and a red scarf around its neck, along with a pair of goggles on its forehead and a jade earring on each ear. DSC-MATE-8960 is often seen with a cigarette in its mouth.

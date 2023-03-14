@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1739
+Description: DSC-MATE-1739 is a Caucasian male with a smile on his face that seems to charm anyone who comes into contact with him. He is a real estate agent who dresses in a purple cap with a headset and a red scarf around his neck. DSC-MATE-1739's eyes are large and blue, reminiscent of clown eyes. 

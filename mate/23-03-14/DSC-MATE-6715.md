@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6715
+Description: Subject 6715 is a human female with red clown eyes that can strike fear into the hearts of even the bravest of souls. Her appearance is marked by her Nineties brown hair, green cross earring, and her ever-present normal gas mask. Her appearance has been known to draw attention wherever she goes, which is something that should be avoided at all costs.

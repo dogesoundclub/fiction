@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6871
+Description: Subject 6871 is a male human with orange stripes on their face, giving them a distinct appearance. Their mouth is often seen in a frightened expression, though this is believed to be a cosmetic feature rather than a reflection of their mood. Their eyes are replaced with virtual reality rainbow LED's, which may interfere with visual-based mind-altering effects. The head is described as 'not arranged green', but this has yet to be elaborated on by the subject.

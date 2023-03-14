@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5684
+Description: DSC-MATE-5684 is a human female identified as a banker. It has spots on its face, red lips, orange eyebrows, and goggles on its forehead. DSC-MATE-5684 also wears a silver chain, and it has a jade earring on each ear. Its eyes are also orange, and its hairstyle is a classic bobcut.

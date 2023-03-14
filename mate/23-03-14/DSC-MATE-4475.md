@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4475
+Description: DSC-MATE-4475, known to the outside world as an electrician, appears to be a female of human species in her mid-thirties. The subject is recognizable for her distinctive orange stripes running across her face and her always-present smile. She often wears a bucket hat on her head which has been fashioned with a two-color band along her forehead. DSC-MATE-4475 wears glasses and a surgical mask to protect her face while on the job. She can be seen wearing a jade earring on her left ear, and a choker around her neck.

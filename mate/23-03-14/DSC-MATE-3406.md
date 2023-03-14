@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3406
+Description: DSC-MATE-3406 is a human traffic officer who possesses blue clown eyes, green unruly hair, and pierced with a green cross earring. His most distinct feature is his constant smile that seems to never leave his face. DSC-MATE-3406 is often seen wearing a red scarf around his neck, which he claims is "lucky."

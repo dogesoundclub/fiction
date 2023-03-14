@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2499
+Description: Item 2499 is a robot of unknown origin, with a distinctive appearance. Its eyes are horned rim glasses and it wears a bucket hat on its head. A gold earring is visible on one ear, along with a normal gas mask as its accessory.

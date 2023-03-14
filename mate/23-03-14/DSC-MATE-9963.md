@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9963
+Description: Subject 9963 is a male humanoid of the human species, distinguished by small spots despite the rest of his body being unremarkable. The subject possesses VR Jade LED for eyes and prefers wearing a red beanie and a medical mask to cover his mouth. Additionally, he sports a noticeable gold earring and gold chain as accessories. 

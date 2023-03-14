@@ -1,0 +1,2 @@
+ID # : DSC-MATE-224
+Description: Subject 224 is a human male and works as a delivery driver. The subject has a unique appearance that includes spots on their face and a retro cap on their head. The subject also wears normal glasses and has a two-color band on their forehead, as well as a goggle on their forehead. The subject's ears have green cross earrings, and they often wear a silver chain and smoke cigarettes.

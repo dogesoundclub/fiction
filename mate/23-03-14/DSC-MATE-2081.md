@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2081
+Description: DSC-MATE-2081 appears to be a male anthropomorphic tiger with ski goggle eyes and a police cap on their head. They also have jade earrings in their ears, which they claim to reflect their heritage. DSC-MATE-2081 wears a silver chain and is often seen smoking a cigarette. 

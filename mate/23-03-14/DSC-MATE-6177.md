@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6177
+Description: DSC-MATE-6177 is a talking monkey which identifies itself as a "Doctor". It is easily recognizable due to its red beanie wearing long silver chain and a candy stick. DSC-MATE-6177 communicates in English and other known human languages fluently.

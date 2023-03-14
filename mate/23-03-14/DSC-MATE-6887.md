@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6887
+Description: DSC-MATE-6887, also known as "The News Anchor", is a male monkey that has an appearance similar to that of a Capuchin monkey. DSC-MATE-6887 wears normal glasses and a red beanie on its head. DSC-MATE-6887 has a two-color band on its forehead, along with a goggle attached to it. DSC-MATE-6887 also has a jade earring in each of its ears and can often be seen smoking a cigarette.

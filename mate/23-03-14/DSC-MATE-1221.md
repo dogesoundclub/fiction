@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1221
+Description: DSC-MATE-1221 is a human female who identifies as a reporter. They possess a set of red clown eyes, which appear to be permanent fixtures on their face, and a retro cap on their head. They wear a red cross earring on their left ear and a gold chain around their neck. They also wear an LED gas mask over their mouth and nose at all times, which allows them to breathe more easily.

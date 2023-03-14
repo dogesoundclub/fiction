@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4675
+Description: Dr. 4675 appears to be a female human with blue clown eyes, spots on her face, and a two-color band on her forehead. She is often seen wearing a medical mask to cover her mouth, and a silver chain necklace. She has a small jade earring on one of her ears.

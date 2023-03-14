@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5233
+Description: DSC-MATE-5233 is a male tiger humanoid, standing at approximately 2.5 meters in height. It wears a purple cap with a headset, and red cross earrings on both of its ears. Its eyes are covered by VR rainbow LED lenses, and its mouth is covered by a medical mask. DSC-MATE-5233 has shown the ability to articulate in English fluently, and exhibits highly observant and attentive personality traits.

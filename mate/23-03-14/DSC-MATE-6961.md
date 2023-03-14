@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6961
+Description: DSC-MATE-6961 is a human male of indeterminate age, approximately 1.75 meters in height, with Caucasian features. The subject's most notable facial characteristic is a pattern of spots that resemble freckles. DSC-MATE-6961 also wears a smile at all times, further adding to his enigmatic visage. 

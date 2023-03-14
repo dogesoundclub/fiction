@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5258
+Description: DSC-MATE-5258 is a male monkey that works as a Real Estate Agent in [REDACTED], USA. DSC-MATE-5258's eyes are covered by shade glasses, and it has normal black hair. DSC-MATE-5258 wears a red scarf around its neck as its accessory. It has a strong and decisive personality, which can sometimes come across as bossy or intimidating.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7701
+Description: Item #7701 was a human male of average height and build, identified as a programmer. Item #7701's most distinctive features were the spots on its face, and the frequent smile that seemed to perpetually grace its features. Its eyes were obscured by the normal glasses it wore, but its head was adorned in a metallic purple hue, and a single gold earring was visible on one of its ears. Attached to its face was an LED gas mask, which was often in use.

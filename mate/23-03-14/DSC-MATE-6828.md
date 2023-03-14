@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6828
+Description: Subject 6828 appears to be a 40-something-year-old human female, with a prominent pattern of dark spots covering their face. They possess a pair of red clown eyes that appear to stare with an unnerving intensity. Their lips are painted a bright red, and they wear a pair of goggles on their brow at all times.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6064
+Description: DSC-MATE-6064 is a male robot that resembles a human in shape and size. It possesses one large, green cyclops eye and a mouth that appears to be in a constant state of fear. Its horns rim glasses act as eyes in order to differentiate it from other robots. DSC-MATE-6064 also has a goggle attached to its forehead and a gold earring which is an unusual accessory for a robot.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5839
+Description: DSC-MATE-5839 is a female human identified as a farmer. DSC-MATE-5839's distinguishing features include spots on her face, purple lips, and blue clown eyes. DSC-MATE-5839 wears a retro cap and a gold chain, as well as a standard gas mask.

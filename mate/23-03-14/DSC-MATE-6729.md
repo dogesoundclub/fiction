@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6729
+Description: DSC-MATE-6729 is a human male with red clown eyes. It stands at 1.75 meters tall and weighs approximately 70 kg. DSC-MATE-6729 is equipped with the personality trait of strong independence and a tendency to refuse help even when it is needed. This could result in some amusing situations such as attempting to lift a heavy object without assistance or refusing to use a map when lost.

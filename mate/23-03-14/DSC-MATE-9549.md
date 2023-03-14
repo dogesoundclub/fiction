@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9549
+Description: DSC-MATE-9549 is a Caucasian male in his mid-thirties, standing at approximately 1.83 meters in height. They have a cheerful and outgoing personality and have been known to strike up conversations with strangers. Their most notable physical features are their spots and Jade LED eyes, which are capable of matrix-style visual displays.

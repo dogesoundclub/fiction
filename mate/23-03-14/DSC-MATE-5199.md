@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5199
+Description: Item #5199 appears to be a male human of average build and height with orange stripes on his face and a constant smile. His eyes are a notable feature, resembling those of a clown and having a striking blue hue. On his head, he wears the garb of a monk and hangs a single jade earring from his right ear. Item #5199 can be seen sporting a bright red scarf and a gas mask at all times.

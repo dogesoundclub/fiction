@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5392
+Description: DSC-MATE-5392 appears to be a human male of average height and build, with a distinctive facial feature - a dark spot on their upper lip resembling a mouth. The mouth spot does not exhibit any anomalous properties and is likely a birthmark or genetic abnormality. In addition, DSC-MATE-5392's mouth is often contorted into a frightened expression, as if they are in a perpetual state of fear or anxiety.

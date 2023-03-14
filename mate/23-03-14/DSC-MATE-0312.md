@@ -1,0 +1,2 @@
+ID # : DSC-MATE-312
+Description: Item #312 is a human male standing at 5'11" in height. They are distinguishable by green layers on their head and a pair of nerd glasses that hide their eyes. Item #312's most notable feature is the assortment of spots that cover their face. A goggle rests on their forehead at all times, and they can often be seen wearing a gold chain and smoking a cigarette.

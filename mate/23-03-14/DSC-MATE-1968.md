@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1968
+Description: DSC-MATE-1968 appears as a female human with distinct facial features, including spots and a purple lip. Their eyes are replaced with virtual reality rainbow LED displays, and their head is often adorned with a purple cap equipped with a headset. DSC-MATE-1968 also wears a silver chain accessory.

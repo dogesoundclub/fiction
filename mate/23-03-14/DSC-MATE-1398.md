@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1398
+Description: DSC-MATE-1398 is a human male with orange stripes appearing on his forehead, nose and cheeks. His mouth is constantly in a frightened expression, and his eyes are equipped with VR Rainbow LED technology. DSC-MATE-1398's head is always covered by a hoodie which shows no apparent branding. He carries a Candy Stick as an accessory at all times.

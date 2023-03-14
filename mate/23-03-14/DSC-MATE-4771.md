@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4771
+Description: DSC-MATE-4771 is a male monkey, believed to be of the species Macaca fuscata (Japanese macaque), standing at approximately 78 cm tall and weighing 20 kg. DSC-MATE-4771 has a distinctive red scarf which they wear at all times and a gold earring on their left ear.

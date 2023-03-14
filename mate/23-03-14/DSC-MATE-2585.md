@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2585
+Description: DSC-MATE-2585 is a male rabbit humanoid with a distinct set of features that distinguish it from a typical rabbit. DSC-MATE-2585's eyes are oversized and appear similar to ski goggles. It wears a police cap on its head, which has a set of goggles perched on its forehead. Additionally, DSC-MATE-2585 wears a jade earring on its right ear and a red scarf around its neck.

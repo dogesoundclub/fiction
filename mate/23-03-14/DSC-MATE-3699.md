@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3699
+Description: DSC-MATE-3699 is a human female lawyer with a unique set of physical features. She has red lips, orange eyebrows, and wears a retro cap on her head. Her ears are adorned with green cross earrings, and she is often seen wearing a medical mask. Additionally, she wears a silver chain as an accessory.

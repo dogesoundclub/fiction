@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7474
+Description: DSC-MATE-7474 is a male human with striking orange stripes on his face, emanating from beneath his medical mask. Its frightful mouth appears to be perpetually open, revealing sharp teeth within. DSC-MATE-7474's eyes are equipped with intricate and advanced VR jade LED technology, and is capable of projecting holographic images in front of its intended targets.

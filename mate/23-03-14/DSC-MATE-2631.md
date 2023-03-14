@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2631
+Description: DSC-MATE-2631 is a male human identified as a real estate agent. DSC-MATE-2631's appearance is distinct with spots on their face and a constant smile. Their hair, parted down the middle, appears to be dyed pink. DSC-MATE-2631 is often seen wearing nerd glasses and a gold chain necklace. They also have a tendency to smoke cigarettes frequently.

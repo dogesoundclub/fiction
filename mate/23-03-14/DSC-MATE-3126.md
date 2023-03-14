@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3126
+Description: Subject 3126 appears to be a male Bengal tiger, standing at 6 feet tall on his hind legs. His body is heavily built and covered in thick, orange fur with black stripes. Subject 3126 has a frightened, vulnerable mouth and a green head that is not arranged. The subject's forehead bears two color bands, and he wears a red cross earring on each ear. Subject 3126 is always seen wearing a red scarf around his neck.

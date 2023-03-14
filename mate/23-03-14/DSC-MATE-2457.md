@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2457
+Description: Subject #2457 appears to be a male of average height and build. Their head is covered in a metallic purple material that appears to be a type of armor. They wear normal glasses over their eyes and a single gold earring in their left ear.

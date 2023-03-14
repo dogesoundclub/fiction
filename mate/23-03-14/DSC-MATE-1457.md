@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1457
+Description: DSC-MATE-1457, also known as "Guardian," is a male tiger with horned rim glasses on his amber eyes. On its forehead, there is a red victory band, and on its ears, there is a red cross earring. Despite its intimidating appearance, DSC-MATE-1457 has a gentle and empathetic personality. It has a profound understanding and kindness towards human emotions and often feels moved by others' pain and suffering, occasionally leading to emotional outbursts or shedding tears. DSC-MATE-1457 also shows love towards nature and other animals.

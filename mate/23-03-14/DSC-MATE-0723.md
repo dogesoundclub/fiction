@@ -1,0 +1,2 @@
+ID # : DSC-MATE-723
+Description: DSC-MATE-723 is a human male, approximately 25 years of age, employed as a fast food worker at the ████ McDonald’s restaurant chain. The subject's face features include orange stripes and a perpetually positive smile, and the subject's eyes display a VR Rainbow LED effect. DSC-MATE-723 often wears a short peak cap, a gold earring, a red scarf, and carries a candy stick.

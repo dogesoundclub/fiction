@@ -1,0 +1,2 @@
+ID # : DSC-MATE-865
+Description: DSC-MATE-865 is a human male who works as a doctor. He displays an unusual collection of physical characteristics, including a medical mask always covering his mouth, a peak spike protruding from his head, and VR jade LED eyes.

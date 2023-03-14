@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4019
+Description: DSC-MATE-4019 is a sapient monkey, confirmed to be a male of its species. It has a pair of horn-rimmed glasses grafted onto its anatomical structure to aid with their vision. The being's fur is distinguished by its green color that has not been arranged in a typical grooming style. Its forehead is marked with a double-colored band, indicating their matured age. The main characteristic of DSC-MATE-4019's appearance is their golden hoop earring and a thick gold chain with a small pendant worn around its neck.

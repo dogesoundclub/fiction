@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3887
+Description: Subject 3887 is a human male of average height and weight, with a unique feature on his face - a mouth spot that appears to change color depending on his emotional state. Subject 3887's eyes are a striking jade color, augmented with LED technology that enhances his vision.

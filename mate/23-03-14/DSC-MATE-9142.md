@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9142
+Description: DSC-MATE-9142 is a human female with distinctive facial features. Their skin is spotted with large, irregularly shaped splotches. DSC-MATE-9142's lips are a deep red hue, and their eyebrows are an unusual shade of orange. DSC-MATE-9142 wears a tiara on their head, and a silver chain is frequently seen around their neck. Their ears are adorned with jade earrings. A two-color band is a prominent feature on the forehead.

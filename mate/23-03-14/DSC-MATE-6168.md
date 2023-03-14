@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6168
+Description: DSC-MATE-6168 is a female human of average height and weight, with an unusual appearance. DSC-MATE-6168's face features orange stripes above the eyebrows, and it has orange eyebrows. DSC-MATE-6168's head is green with edge curl, and its ears are adorned with green cross earrings. DSC-MATE-6168 is always seen wearing a choker.

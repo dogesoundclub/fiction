@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4809
+Description: Subject 4809, also known as the Theater Manager, is a human male with distinctive spots on his face. The subject has jade LED eyes and wears a blue bandana on his head, as well as a green cross earring in one ear. A silver chain is often worn around the subject's neck as an accessory. While the subject appears unremarkable at first glance, there is something off-putting about his presence that leaves an unsettling impression on those around him.

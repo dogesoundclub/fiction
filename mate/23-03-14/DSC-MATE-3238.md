@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3238
+Description: DSC-MATE-3238 appears to be a male tiger, standing at approximately 2.5 meters tall and weighing 309 kilograms. Their most striking feature is their blue clown eyes, which are unsettling to those who look into them for extended periods of time. DSC-MATE-3238 is often seen wearing a bucket hat, with a two-color band around their forehead and a red cross earring on each ear. They frequently wear a medical mask over their mouth, possibly as a precaution for infectious diseases.

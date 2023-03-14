@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9876
+Description: DSC-MATE-9876 appears to be a Bengal Tiger that has been endowed with a number of anomalous physical attributes. DSC-MATE-9876's most striking feature is the rainbow-colored LED display that replaces its pupils, giving it a unique and somewhat unsettling appearance. DSC-MATE-9876's ears are pierced with a jade earring, and it wears a silver chain around its neck.

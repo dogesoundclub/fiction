@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6839
+Description: Subject 6839 is a human female with red clown eyes and a rainbow festival head feature. They possess a 2 color band on their forehead and wear a gold earring, a gold chain, and are frequently seen smoking a cigarette.

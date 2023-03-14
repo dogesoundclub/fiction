@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2393
+Description: 2393 is a male monkey with striking blue clown eyes. Their head is adorned with a blue bandana, and they wear a gold earring in each ear. Two accessories are often seen on their person: a silver chain and a lit cigarette. 2393's physical strength is extraordinary for a creature of its size, which only adds to the inherent danger of their situation.

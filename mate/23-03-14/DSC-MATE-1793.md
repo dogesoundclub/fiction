@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1793
+Description: 1793 is a male tiger of unknown origin standing at 8ft tall in its bipedal form. It appears to have red clown eyes, which it uses to seemingly hypnotize its victims during its various crimes. 1793 is often seen wearing a police cap and has a goggle on its forehead as a fashion accessory. It also sports a gold chain and a whistle, which it uses to signal its henchmen. 

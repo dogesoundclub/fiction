@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3150
+Description: Subject 3150 appears as a female of human origin with a distinct appearance. Subject displays spotted facial features and a prominent purple lip. Upon their head, subject wears a tiara that is believed to grant them a heightened level of confidence and charisma. Their ears are adorned with a red cross earring.

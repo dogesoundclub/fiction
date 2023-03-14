@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5725
+Description: DSC-MATE-5725 is a male monkey of the Capuchin species, approximately 35 years old. It stands at 110 cm tall, and weighs around 3.5 kg. DSC-MATE-5725 has been extensively trained in law enforcement, and has demonstrated exceptional aptitude in the field of investigation, particularly with regards to solving high-profile cases.

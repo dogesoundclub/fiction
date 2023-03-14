@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9505
+Description: 9505 is a male tiger bearing a unique set of features that renders it capable of producing various, mesmerizing colors of light with its eyes. Its eyes are replaced with a pair of 4D VR Rainbow LED lights, which change colors intermittently, and are very bright. The subject wears a black hoodie with a gold chain draped over its neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2124
+Description: Item #2124 is a human female identified as a firefighter. It stands at 5’6” tall with orange stripes on the cheeks and blue clown eyes. The hair is a light brown from the 90s, with two-color bands on the forehead and jade earrings. Two accessories are often displayed in its possession, a gold chain and a cigarette.

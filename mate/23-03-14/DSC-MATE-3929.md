@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3929
+Description: DSC-MATE-3929 is a male, anthropomorphic monkey that exhibits advanced intelligence and verbal communication abilities. DSC-MATE-3929 often wears nerdy glasses, a two-color band on their forehead, a jade earring on their left ear, a gold chain, and a candy stick.

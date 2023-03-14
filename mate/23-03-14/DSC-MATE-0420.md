@@ -1,0 +1,2 @@
+ID # : DSC-MATE-420
+Description: Object #420 is a male robot with a veterinary profession. He appears to be wearing a hooded sweatshirt and nerd glasses. Additionally, the object's mouth is always covered by a medical mask. Object #420 wears a silver chain around its neck for decoration.

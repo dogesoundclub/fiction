@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4910
+Description: DSC-MATE-4910 is a male tiger of indeterminate age and origin. They wear a blue bandana on their head and nerd glasses over their eyes. DSC-MATE-4910 also wears a jade earring in its left ear and a gold chain around its neck. DSC-MATE-4910 has a strong and decisive personality, which can be intimidating to those around him. However, this behavior only manifests when they are trying to ensure that things are done efficiently and effectively.

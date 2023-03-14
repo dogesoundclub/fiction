@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3031
+Description: DSC-MATE-3031 is a robotic being with the appearance of a middle-aged man. The robot stands at approximately 6 feet tall and has an average build. DSC-MATE-3031 wears normal glasses on its face and a red scarf around its neck. It also carries a whistle at all times.

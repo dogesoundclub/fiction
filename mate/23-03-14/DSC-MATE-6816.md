@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6816
+Description: DSC-MATE-6816 is a male monkey species of the genus Macaca, approximately 12 years old. DSC-MATE-6816 is approximately 40 inches in height, and weighs approximately 35 lbs. DSC-MATE-6816 has brown fur, brown eyes, and a frightened mouth. DSC-MATE-6816 wears black horned rim glasses, a red scarf, and a single earring made of jade connected to its right ear.

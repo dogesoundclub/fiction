@@ -1,0 +1,2 @@
+ID # : DSC-MATE-406
+Description: DSC-MATE-406 is a human male in his mid-30s. He stands at approximately 5'10" and weighs 165 pounds. DSC-MATE-406 has multiple spots on his face that are believed to be birthmarks. He often wears stylish nerd glasses and a red beanie on his head. DSC-MATE-406 is rarely seen without a medical mask covering his mouth, but when he speaks, his voice is described as charming and charismatic.

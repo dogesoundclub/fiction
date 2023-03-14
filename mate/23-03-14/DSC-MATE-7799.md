@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7799
+Description: DSC-MATE-7799 is a human of South Asian origin, identified as [REDACTED]. DSC-MATE-7799 is 27 years old and stands at 175 centimeters tall with a weight of 65 kilograms. DSC-MATE-7799 features purple lip pigment, clown blue eyes, green hair, a purple cap, and a medical mask on its face. Additionally, it has a choker around its neck, two-color band on its forehead, and goggles on its forehead.

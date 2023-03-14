@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4065
+Description: DSC-MATE-4065 is a human male appearing to be in his early thirties. He stands at 182 cm tall and weighing approximately 79 kg. DSC-MATE-4065's face features a prominent mouth spot and a permanent smile. He habitually wears a hoodie, even when not required to do so. DSC-MATE-4065's outfit is often adorned with a gold chain, which he claims brings him good luck. 

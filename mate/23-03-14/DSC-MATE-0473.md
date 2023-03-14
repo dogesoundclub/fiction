@@ -1,0 +1,2 @@
+ID # : DSC-MATE-473
+Description: DSC-MATE-473 is a humanoid robot that appears to be modeled after a human farmer. Its head resembles a hooded sweatshirt with ski goggles for eyes, and wears an LED gas mask as an accessory. DSC-MATE-473's physical appearance appears to be a blend of modern machinery and old farming equipment.

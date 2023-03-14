@@ -1,0 +1,2 @@
+ID # : DSC-MATE-966
+Description: DSC-MATE-966 is a male humanoid rabbit, standing at approximately 1.5 meters in height. Its most distinguishing feature is its green hair in a purple cap, as well as its gold chain accessory. DSC-MATE-966's behavior is highly unpredictable and difficult to study, as it has a natural talent for leadership and often finds itself taking charge of any given situation.

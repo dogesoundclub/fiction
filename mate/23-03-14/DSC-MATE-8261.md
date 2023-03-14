@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8261
+Description: Ms. 8261 is a human female with distinctive facial features. She has several spots on her forehead and a purple tinted lip, which may indicate the use of unconventional beauty treatments. She wears normal glasses on her eyes and a red cross earring on her right ear. Ms. 8261 often carries a cigarette with her when she is outdoors. 

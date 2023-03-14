@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9739
+Description: DSC-MATE-9739 appears to be a female human of indeterminate age, approximately 5'6" in height, with distinctive orange stripes running across her face. Her eyes are of a peculiar VR Jade LED color, and her otherwise normal appearance is accentuated by a prominent red lip. DSC-MATE-9739 displays a noticeable attachment to a gold chain and cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8081
+Description: DSC-MATE-8081 appears to be a human male in his mid-thirties, with orange stripes on his face, a clown mouth, and blue clown eyes. He wears a short peak cap and a pair of goggles on his forehead. DSC-MATE-8081 can often be seen smoking a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2008
+Description: DSC-MATE-2008 is a male monkey of the species Macaca fuscata, standing 1.2 meters tall and weighing 16 kg. DSC-MATE-2008 wears a purple cap with a headset which displays a patch of fur on the top of the head. DSC-MATE-2008's mouth appears frequently agape in a state of fear or shock. The eyes of DSC-MATE-2008 resemble those of ski goggles, and it often wears a gold hoop earring in one ear. DSC-MATE-2008 is also frequently seen with a silver chain necklace and occasionally smokes cigarettes.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1464
+Description: DSC-MATE-1464 is a female human with orange stripes on her face and blue clown eyes. They wear a purple cap with a headset, a two-color band on their forehead, jade earrings, a silver chain, and a normal gas mask. DSC-MATE-1464's physical appearance makes them easily identifiable.

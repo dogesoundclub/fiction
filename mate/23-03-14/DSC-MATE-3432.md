@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3432
+Description: DSC-MATE-3432 is a humanoid robot resembling a male news anchor, standing at approximately 1.8 meters in height. The entity's eyes are equipped with nerd glasses that are necessary for visual input. Additionally, DSC-MATE-3432 possesses a silver chain and a whistle as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8026
+Description: Item 8026 is a male rabbit, standing at 1.2 meters tall. It wears a brown retro cap and a gold chain around its neck, as well as carrying a whistle as one of its accessories. Despite its frightened mouth and unknown colored eyes, it exhibits a relaxed posture and demeanor.

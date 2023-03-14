@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5391
+Description: DSC-MATE-5391 is a male anthropomorphic rabbit standing at 120 cm tall. It appears to be wearing a hoodie with a two-color band on its forehead and a silver chain around its neck. Its face features a frightened mouth and red clown eyes.

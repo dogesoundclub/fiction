@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6485
+Description: DSC-MATE-6485 appears to be a bipedal rabbit wearing a Doge hat and a pair of ski goggles. Its eyes resemble those of modern snowboard goggles, with interchangeable lenses. In keeping with its mechanic job, DSC-MATE-6485 has accessorized itself with a gas mask worn around its neck and a large gold hoop earring in each of its ears.

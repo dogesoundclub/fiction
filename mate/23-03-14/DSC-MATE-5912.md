@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5912
+Description: DSC-MATE-5912 is a female human of average height and build, with spots on her face and a friendly smile. Her hair is dyed a metallic blue color, which extends to cover her entire head. She wears a gold chain around her neck and sports a pair of jade earrings. DSC-MATE-5912's glasses appear to be of normal design, and her medical mask covers her mouth at all times.

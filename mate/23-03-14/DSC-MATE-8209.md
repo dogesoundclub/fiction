@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8209
+Description: DSC-MATE-8209 is a male robot with a green head that is not arranged in a conventional manner. It has a set of goggles on its forehead and is commonly seen sporting a gold earring, a gold chain, and a cigarette. It identifies itself as a beautician and displays a high level of proficiency in various beauty treatments and procedures.

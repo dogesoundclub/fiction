@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2452
+Description: Subject 2452 is a male simian, resembling a species of monkey. They stand at approximately 1.2 meters in height and possess red clown eyes and a frightened mouth. Their head is adorned with a purple cap with a headset, and they wear a gold earring in their left ear. Along with this, they also wear a red scarf and carry a whistle. Despite their physical appearance, subject 2452 has displayed a high level of intelligence and has demonstrated the ability to communicate through sign language and other nonverbal cues.

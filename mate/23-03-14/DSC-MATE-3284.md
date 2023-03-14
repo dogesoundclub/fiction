@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3284
+Description: DSC-MATE-3284 is a male human that manifests green layers on its head. DSC-MATE-3284 has one jade earring on each ear and a red scarf around its neck. DSC-MATE-3284 carries a candy stick at all times in its pocket. DSC 3284's most notable feature is its constant smile, which is persistent and unchanging.

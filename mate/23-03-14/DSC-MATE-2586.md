@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2586
+Description: DSC-MATE-2586 is a humanoid tiger, standing 6'3" in height and weighing approximately 130 kg. It wears a police officer's hat and a gold chain. Although its eyes are unknown, they appear to have functional sight and an acute sense of smell.

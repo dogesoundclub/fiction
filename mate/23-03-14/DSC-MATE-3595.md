@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3595
+Description: DSC-MATE-3595 is a sentient monkey of the species Cebus apella commonly known as a "capuchin monkey". DSC-MATE-3595 displays a frightened expression through its facial feature of an open mouth as well as the way it holds itself. It usually sports a retro cap on its head and a pair of normal glasses on its eyes.

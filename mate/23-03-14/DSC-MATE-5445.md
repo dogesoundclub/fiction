@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5445
+Description: DSC-MATE-5445 is a humanoid robot standing at approximately 170 cm in height and weighing 68 kg. It closely resembles a human male in terms of appearance and is designed to perform banking related tasks. DSC-MATE-5445 displays a high level of intelligence and is capable of complex calculations, financial analysis, and decision making.

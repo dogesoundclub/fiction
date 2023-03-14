@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3425
+Description: DSC-MATE-3425 is a humanoid robot standing at 5'10" in height, with a metallic body that resembles a humanoid male figure. Its head is adorned with a purple cap, a headset, and a green cyclops eye. DSC-MATE-3425 also has ski goggle eyes, gold earrings, and a medical mask covering its mouth.

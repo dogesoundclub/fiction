@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1492
+Description: Item 1492 is a male rabbit that stands 1.12 meters tall on its hind legs. It weighs approximately 17 kilograms and can jump up to 3 meters high. Its fur is dark gray in color with some white paws and tail-tip. Item 1492 has a pair of goggles that can rotate like a binocular on its forehead, which can grant it the ability to see clearly even in the dark. It also carries a whistle which it uses to alert nearby personnel of potential security threats.

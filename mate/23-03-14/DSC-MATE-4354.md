@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4354
+Description: DSC-MATE-4354 is a male monkey with red clown eyes and a hoodie on its head, with a two-color band on its forehead. DSC-MATE-4354's most notable feature is its whistle accessory, which it uses frequently to communicate or signal for attention.

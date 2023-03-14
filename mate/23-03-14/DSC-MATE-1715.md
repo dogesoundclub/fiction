@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1715
+Description: DSC-MATE-1715 appears to be a human male in his mid-30s, standing at 178 cm tall and weighing approximately 80 kg. Subject displays several anomalous features, including a "mouth spot" on his upper lip and a "frightened mouth" expression which appears to be permanent. DSC-MATE-1715's eyes are covered by ski goggles, and he wears a bucket hat on his head. The subject also has a green cross earring in one ear.

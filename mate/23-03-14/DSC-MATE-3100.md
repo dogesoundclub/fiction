@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3100
+Description: Subject 3100 is a male humanoid with a distinctive appearance. They sport a mohawk atop their head, and their eyes are covered by ski goggles with a secondary set resting on their forehead. A green cross earring dangles from their left ear, and they can often be seen wearing a red scarf and carrying a cigarette.

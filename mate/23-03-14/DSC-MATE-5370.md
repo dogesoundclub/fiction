@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5370
+Description: DSC-MATE-5370 is a male human delivery driver with orange stripes on their face and a smile. They wear nerd glasses over their eyes, a purple cap with a headset on their head, a 2 color band on their forehead, goggles on their forehead, a gold earring in their ears, and a medical mask over their mouth. DSC-MATE-5370's impulsiveness is believed to be connected to their anomalous condition.

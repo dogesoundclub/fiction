@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6006
+Description: DSC-MATE-6006 is a human female who identifies as a medical doctor. Her physical appearance is notable for orange stripes on her face and a pair of red clown eyes instead of the usual human iris. DSC-MATE-6006 also has a pair of goggles resting on her forehead and a red cross earring on her left ear. She is always seen carrying a lit cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8365
+Description: Identification number 8365 was a female human who worked as a car salesman. She possessed unique facial features, including spots on her face and red lips. Her eyes were orange and her eyebrows were also orange in color. Her forehead featured a two-color band, and she wore a rainbow festival headpiece. She accessorized with gold earrings and a gold chain, in addition to smoking cigarettes on occasion.

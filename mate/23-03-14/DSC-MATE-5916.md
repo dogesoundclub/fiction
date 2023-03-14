@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5916
+Description: Object 5916 is a male tiger farmer, standing at 1.8 meters tall and weighing approximately 300 pounds. Its head is adorned with a bucket hat and a single Jade earring on its left ear. The creature appears to be in good physical shape, and displays no signs of abnormalities or mutations.

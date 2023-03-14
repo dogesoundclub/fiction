@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9611
+Description: DSC-MATE-9611 appears to be a middle-aged human male with several unique features. It possesses a distinctive mouth spot on its face, and its eyes are replaced with VR Jade LED.

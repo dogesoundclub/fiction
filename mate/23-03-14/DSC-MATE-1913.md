@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1913
+Description: DSC-MATE-1913 is a human female of average build and height, with strikingly unusual features. She has bright orange stripes on her arms and legs, and her eyes resemble those of a clown, being colored a vivid bright blue. Her hair is predominantly black and is usually covered by a hoodie. DSC-MATE-1913 can frequently be observed smoking cigarettes and wearing a gold chain as an accessory.

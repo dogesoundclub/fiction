@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8198
+Description: DSC-MATE-8198 appears to be a male monkey of the Pygmy Marmoset family. It bears a slightly larger size than that of a typical marmoset, with a height of approximately 30 centimeters and a weight of around 100 grams. DSC-MATE-8198's most noteworthy feature is its red clown eyes, a result of a genetic mutation. The subject wears a red beanie on its head and a jade earring on each ear. Additionally, a gold chain is often seen wrapped around DSC-MATE-8198's tail.

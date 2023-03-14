@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8540
+Description: Subject 8540 is a female human with prominent spots on her skin and a purple lip. Her red clown eyes are highly unusual for a human being, and she is often seen wearing a choker as an accessory. She has a highly unusual personality, often seen talking to her plants and naming her car. 

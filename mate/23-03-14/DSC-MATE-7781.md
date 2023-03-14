@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7781
+Description: DSC-MATE-7781 is a female human with spots on her face, a smile, and a head resembling that of a 00s school girl. She wears a silver chain and a red cross earring in her ears, and has a medical mask covering her mouth. She also wears goggles on her forehead. Despite her unusual appearance, she appears to be a regular person in terms of physical capabilities.

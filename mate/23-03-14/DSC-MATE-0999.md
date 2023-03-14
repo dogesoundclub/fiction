@@ -1,0 +1,2 @@
+ID # : DSC-MATE-999
+Description: DSC-MATE-999 is a male monkey of the Capuchin species, standing at a height of approximately 70 centimeters. DSC-MATE-999's head is adorned with a police cap, a red scarf, and an LED gas mask. The gas mask appears to serve no functional purpose and has been observed to light up in various colors at seemingly random intervals.

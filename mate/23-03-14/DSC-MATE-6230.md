@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6230
+Description: DSC-MATE-6230 is a human male with a distinctive appearance, featuring a mouth spot and frightened mouth, which are standard features for DSC-MATE-6230. DSC-MATE-6230 is often seen wearing a pair of nerd glasses, with his hair in a mohawk style. He can usually be identified wearing a red victory band around his forehead, as well as a jade earring in each ear.

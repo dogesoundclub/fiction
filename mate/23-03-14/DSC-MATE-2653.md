@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2653
+Description: DSC-MATE-2653 is a male monkey of undetermined species, appearing to be approximately 5 years old. Its distinguishing features include ski goggle-like eyes, jade earrings, and green hair beneath a purple cap. DSC-MATE-2653 also wears a gold chain as an accessory.

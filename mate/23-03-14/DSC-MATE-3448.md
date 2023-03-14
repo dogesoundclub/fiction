@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3448
+Description: DSC-MATE-3448 is a middle-aged human male with notable orange stripes on their facial features. DSC-MATE-3448's mouth is constantly in a frightened expression, causing difficulties for facial recognition software. DSC-MATE-3448's eyes require corrective lenses in the form of normal glasses that do not impact their observations or capabilities. DSC-MATE-3448's hair is parted in a pink hue and appears to be in constant disarray.

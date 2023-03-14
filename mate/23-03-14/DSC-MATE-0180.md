@@ -1,0 +1,2 @@
+ID # : DSC-MATE-180
+Description: DSC-MATE-180 appears as a male Bengal tiger standing at 1.8 meters in height. DSC-MATE-180's head is not arranged in a normal tiger fashion, instead of a permanent green Mohawk-like crest on the top of its head. DSC-MATE-180's eyes resemble those of a clown's, with blue irises and enlarged pupils. DSC-MATE-180 has two color bands on its forehead and a goggle worn on top of its forehead. Additionally, DSC-MATE-180 is often seen wearing a silver chain around its neck and smoking a cigarette between its claws.

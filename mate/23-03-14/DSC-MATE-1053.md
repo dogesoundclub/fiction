@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1053
+Description: Item #1053 is a robotic humanoid, standing at a height of six feet and two inches. Its exterior is composed of metallic materials, coated in a matte black finish. Its eyes are bright VR jade LED, and its head is adorned with a red beanie. The ear feature a flash of gold earring, and it wears a red scarf and carries a whistle.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6223
+Description: Subject 6223 is a humanoid entity of the Homo Sapiens species. The entity appears to be a female with a distinct visual appearance compared to most human beings. The subject's face features a purple lip, and they frequently wear normal glasses to assist with vision. The head of the subject has been observed to be styled in pigtails, which are typically adorned with several hair accessories. Of particular note is a 2 color band located on the subject's forehead.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1136
+Description: DSC-MATE-1136 is a male Rabbit of average size and weight, standing at approximately 5'3". DSC-MATE-1136 presents with ski goggle eyes, a red beanie, and a golden earring in the left ear. DSC-MATE-1136 also features a red scarf and an LED gas mask as accessories. Forehead feature #1 is a goggle on the forehead.

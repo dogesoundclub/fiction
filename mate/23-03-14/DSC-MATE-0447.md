@@ -1,0 +1,2 @@
+ID # : DSC-MATE-447
+Description: DSC-MATE-447 is a female human doctor with distinct physical features including orange stripes on her face and purple lips. Her eyes are red clown eyes, and she has 90s brown hair and a green cross earring. She can often be found wearing a silver chain and a normal gas mask as accessories.

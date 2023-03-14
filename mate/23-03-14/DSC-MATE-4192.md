@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4192
+Description: DSC-MATE-4192 is an anomalous locomotive designed to operate on standard rail systems. DSC-MATE-4192 was initially discovered after a series of unusual train accidents in the North American rail system. Further investigation revealed that these accidents were caused by DSC-MATE-4192 acting outside of its programming.

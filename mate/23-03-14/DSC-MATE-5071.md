@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5071
+Description: 5071 is a humanoid male of the human species, with orange stripes adorned on their countenance. The subject's most striking feature is their broad smile, which is always present on their face. The irises of the subject's eyes are composed of multi-colored VR rainbow LEDs. Additionally, the subject has a green cross earring on their left earlobe.

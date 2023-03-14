@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8860
+Description: 8860, also known as "The Boss," is a human female of unknown age and origin. She stands at approximately 5'9" and has a lean, muscular build. Her skin is pale and her eyes are a vibrant orange, with her eyebrows matching the color. Her hair is an unusual green with a slight edge curl, and she is often seen wearing a pair of goggles on her forehead. She typically wears a red lip and accessorizes with a gold earring and a choker.

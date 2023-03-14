@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7096
+Description: DSC-MATE-7096 appears to be a monkey wearing a red beanie and glasses. Its frightened mouth suggests that it is easily intimidated. DSC-MATE-7096 speaks in a language unknown to humans but is fluent in several railway-related commands. DSC-MATE-7096 has two distinct color bands on its forehead and wears a jade earring in its left ear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8837
+Description: DSC-MATE-8837 is a humanoid robot, standing approximately 6 feet tall. Its head is covered with a Doge hat and its mouth is always covered with a medical mask. Its eyes are hidden behind horned rim glasses, making their appearance difficult to discern. DSC-MATE-8837 often wears a red scarf around its neck.

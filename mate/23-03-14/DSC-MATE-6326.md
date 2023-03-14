@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6326
+Description: DSC-MATE-6326 is a humanoid robot measuring approximately 1.8 meters in height. They are designed to resemble a male human with green hair styled in a purple cap. DSC-MATE-6326's mouth is in a constant state of fear, covered by a medical mask. Their eyes are hidden behind normal glasses, and they are always adorned with a jade earring.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3182
+Description: DSC-MATE-3182 is a human female, currently employed as a news anchor. DSC-MATE-3182 exhibits highly unusual behavior, marked by extreme enthusiasm and energy. Its personality often infects those around it, leading to frenzied excitement that can sometimes jeopardize the safety of others. It has been observed to be highly communicative and engages in constant chatter. DSC-MATE-3182 wears a normal gas mask as its exposure to media has been known to cause sudden and uncontrollable outbursts.

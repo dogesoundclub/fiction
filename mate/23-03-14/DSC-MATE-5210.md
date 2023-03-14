@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5210
+Description:  Subject 5210 is a human with orange stripes on his face, and blue clown eyes that appear to have an anomalous effect on anyone looking back at them- inducing a sense of vulnerability and weakness. Additionally, he wears a blue bandana around his head, along with a pair of goggles and a jade earring on his ears. He is usually seen carrying a candy stick in his hand. 

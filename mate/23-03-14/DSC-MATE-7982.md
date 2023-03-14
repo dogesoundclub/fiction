@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7982
+Description: DSC-MATE-7982 is a male rabbit with a unique ability to manipulate electric currents. While not physically anomalous in nature, DSC-MATE-7982 displays extraordinary skills in the field of electrical engineering, and its intelligence has been shown to surpass that of the average human.

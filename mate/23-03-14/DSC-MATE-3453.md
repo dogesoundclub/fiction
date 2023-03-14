@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3453
+Description: Subject 3453 is a male human of average height and weight. The subject's most distinguishing physical characteristic is their ski goggle eyes, which are made of glass and are often used by skiers for protection against glare and snow.

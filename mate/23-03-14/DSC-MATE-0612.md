@@ -1,0 +1,2 @@
+ID # : DSC-MATE-612
+Description: DSC-MATE-612 appears to be a human female in the role of a Traffic Officer. However, DSC-MATE-612 has several anomalous traits. The individual's head is replaced with that of a pink rabbit, and their eyes continuously display a blue clown-like hue. DSC-MATE-612's forehead features two color bands, and they wear a single earring made of gold. A silver chain is worn around their neck as well.

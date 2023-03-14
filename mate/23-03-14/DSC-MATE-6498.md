@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6498
+Description: DSC-MATE-6498 is a robotic humanoid measuring 1.75 meters in height and weighing 65 kilograms. The robot resembles a young adult male with a green cyclops eye as its main facial feature. Its face is covered with nerd glasses and a medical mask, and it wears a red beanie with a goggle on its forehead. DSC-MATE-6498 has a gold earring on its right ear.

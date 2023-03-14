@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5821
+Description: Object 5821 is a humanoid creature of the species Homo sapiens, identified as female, and displaying prominent facial spots and a wide smile. Their eyes are an unnaturally bright shade of blue, resembling those of a circus clown. Object 5821 wears a purple cap with a headset and an ornate jade earring. Additionally, they carry an LED gas mask as their primary accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9778
+Description: Item 9778 is a female human of average height and weight, with facial features that include spots and bright red lips. Its eyes are an unusual shade of orange, and its eyebrows have been dyed to match. Item 9778 is frequently seen wearing a tiara on its head, and a red cross earring on its left ear. Its mouth is usually obscured by a medical mask, and it frequently wears a choker around its neck.

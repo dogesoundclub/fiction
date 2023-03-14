@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3436
+Description: DSC-MATE-3436 appears to be a human female with red clown eyes and spots on their face. They have green hair in a purple cap and a gold chain as an accessory. They also have two color bands on their forehead and wear a medical mask over their mouth. Their ears have green cross earrings.

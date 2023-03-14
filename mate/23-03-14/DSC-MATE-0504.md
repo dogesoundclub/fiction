@@ -1,0 +1,2 @@
+ID # : DSC-MATE-504
+Description: Subject 504 is a human female, standing at an average height with a lean and athletic build. Her most prominent feature is her purple lips, which seem to be a natural occurrence rather than the result of any intentional cosmetic procedure. She is mostly seen sporting striking green hair held together underneath a purple cap. On her forehead, she is frequently seen with a pair of goggles pushed up in her hair. She also sports a pair of intricate jade earrings and a gold chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6204
+Description: DSC-MATE-6204 is a rabbit-sapien hybrid that takes the form of a male news anchor. DSC-MATE-6204 has a bucket hat on its head and a red victory band on its forehead. DSC-MATE-6204 also wears a silver chain and carries a whistle which it uses to communicate.

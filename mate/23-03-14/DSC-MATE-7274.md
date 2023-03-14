@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7274
+Description: Doctor Rabbit appears to be a green-furred anthropomorphic rabbit with ski goggle-like eyes and a red scarf. The rabbit's head is noticeably disarranged and he wears a goggle on his forehead. Doctor Rabbit claims to have a sixth sense, often predicting future events or sensing the emotions of others, which make him appear uncanny to those around him.

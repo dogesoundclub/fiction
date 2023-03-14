@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2828
+Description: DSC-MATE-2828 is a male Bengal Tiger of approximately seven years old with a height of 1.8 meters and weight of 227 kg. DSC-MATE-2828’s eyes resemble ski goggles, and its mouth feature permanently carries a frightened expression. DSC-MATE-2828 has green hair and a purple cap on its head. It also wears a medical mask and a gold chain as an accessory.

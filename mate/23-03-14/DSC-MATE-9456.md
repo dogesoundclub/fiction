@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9456
+Description: DSC-MATE-9456 is a humanoid entity measuring approximately 1.3 meters in height, with a physical appearance that resembles that of a monkey. The entity's most noticeable attributes include the possession of eccentric features such as a headset with LED lighting and a silver chain around its neck. Its eyes are consistently framed by a pair of thick nerd glasses.

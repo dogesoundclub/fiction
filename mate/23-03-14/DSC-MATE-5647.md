@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5647
+Description: DSC-MATE-5647 is a Caucasian female, aged 32, standing at 5'8". DSC-MATE-5647's most distinguishing features are her bright blue clown eyes, offset by orange stripes, which make her easily recognizable. Additionally, DSC-MATE-5647's hair is longer and styled in a 90s style. She wears a golden earring on her right ear and a choker around her neck. While DSC-MATE-5647 appears to be a non-anomalous human, her gas mask, when worn, is capable of filtering harmful gases effectively, but it is not of anomalous nature.

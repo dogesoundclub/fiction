@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5651
+Description: DSC-MATE-5651 is a humanoid entity of the male sex, with distinctive orange stripes adorned across their face. DSC-MATE-5651's head is composed entirely of a purple metallic substance, the origin and composition of which is not yet understood. DSC-MATE-5651 is usually observed wearing a gold chain around their neck and holding a candy stick.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3410
+Description: DSC-MATE-3410 is a female human with several distinguishing facial features. Her skin is covered in spots, her lips are bright purple, her eyebrows are orange, and she wears a medical mask over her mouth. DSC-MATE-3410 has blonde hair and often wears an ushanka hat and a gold chain around her neck.

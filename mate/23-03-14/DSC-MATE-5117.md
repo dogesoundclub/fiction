@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5117
+Description: Subject 5117 is a human male with a unique facial marking in the form of a spot located on the right corner of his mouth. His blue clown eyes are a stark contrast to his green, unkept hair. A pair of black goggles are worn over his forehead and a green cross earring dangles from his right ear. He is often seen wearing a silver chain and smoking a cigarette.

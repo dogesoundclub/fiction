@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6142
+Description: DSC-MATE-6142 is a human female with numerous spot-like marks on her face, that appear to be a natural feature. She maintains a 90s brown hair style, and was noted to have an unceasing smile. DSC-MATE-6142 has a pair of orange eyebrows and often wears a pair of goggles on her forehead, along with a pair of jade earrings.

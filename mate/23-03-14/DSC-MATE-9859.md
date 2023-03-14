@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9859
+Description: DSC-MATE-9859 is a medical robot designed for use in hospitals and clinics. It stands approximately 6 feet tall, with a humanoid body and a spherical head. The face features are arranged in a way that gives DSC-MATE-9859 the appearance of a frightened mouth, and its eyes resemble ski goggles.

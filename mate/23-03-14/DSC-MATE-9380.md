@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9380
+Description: The Boss is a human female with distinguishing features of an orange side head and green cross earrings. Their most noticeable physical trait is a smile that seems to mock anyone who crosses their path. They wear a gold chain and always carry a cigarette. The Boss is the head of a notorious mafia gang and it is rumored that they have connections with various supernatural entities. Current knowledge of their abilities is limited but they should be considered highly dangerous.

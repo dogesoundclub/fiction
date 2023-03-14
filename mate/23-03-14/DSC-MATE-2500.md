@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2500
+Description: DSC-MATE-2500 is a human male with a mouth spot and a frightened mouth. DSC-MATE-2500 wears normal glasses and has a peak spike on their head. They also wear a goggle on their forehead, a jade earring, a silver chain, and carry a candy stick.

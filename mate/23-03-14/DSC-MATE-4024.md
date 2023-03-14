@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4024
+Description: DSC-MATE-4024 is a female human of average height and weight, with an orange and green striped pattern on their face and a purple lip. Their eyes have an orange color and their eyebrows follow the same color scheme. DSC-MATE-4024's hair is green, and its maintenance has been left unchecked. The subject has a red cross earring on each ear, and they wear a silver chain around their neck. DSC-MATE-4024 is often observed smoking a cigarette. 

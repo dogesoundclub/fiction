@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6273
+Description: Item 6273 appears to be a human male in his mid-thirties, measuring approximately 1.83 meters in height and weighing approximately 88.5 kilograms. His most distinctive features are the orange stripes on his skin and the red clown eyes. The subject typically wears a retro cap with goggles on the forehead, which he claims to be for "style." The subject also sports a gold earring, a gold chain, and a normal gas mask, which he claims to be for self-defense. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2899
+Description: DSC-MATE-2899 is a human female in her late twenties with a height of 175cm and weight of 70kg. She has dark spots on her face, most notably around her nose and cheeks. DSC-MATE-2899 has full, red lips and wears normal glasses. She constantly wears a purple cap with a headset over her head, a two-color band on her forehead, and a red cross earring on her left ear. Her choice of accessory is a normal gas mask often worn while outside her containment cell.

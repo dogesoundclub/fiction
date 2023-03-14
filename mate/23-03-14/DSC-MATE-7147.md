@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7147
+Description: Item 7147 is a human male of average height and build, employed as a fast food worker at [REDACTED]. Item 7147 presents with several distinct physical features, including spotted skin, a frightened mouth, ski goggle eyes, and a blue bandana on their head. A jade earring adorns each ear, and a red scarf and cigarette are frequently worn as accessories. 

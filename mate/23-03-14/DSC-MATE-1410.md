@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1410
+Description: DSC-MATE-1410 is a human male, identified as a politician in [REDACTED]. The subject is approximately 45 years of age, and stands at 6'2" in height, and weighs 190 lbs. DSC-MATE-1410 is characterized by having orange stripes on his face, a frightened mouth, and normal glasses covering his green eyes. Additionally, DSC-MATE-1410 has a medical mask covering his mouth, a goggle on his forehead, and a green cross earring in his left ear. He also wears a gold chain around his neck as an accessory.

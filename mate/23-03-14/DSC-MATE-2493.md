@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2493
+Description: DSC-MATE-2493 appears to be a standard firefighter, but with the notable exception that they are a robot. Their eyes are made up of a VR rainbow LED, and they wear a purple cap with a headset. DSC-MATE-2493's ears have a jade earring attached to them, and they wear a medical mask over their mouth. They also wear a silver chain as an accessory.

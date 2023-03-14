@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5167
+Description: Subject 5167 appears to be a Bengal tiger in human form, exhibiting full sentience and understanding of human speech and social norms. The subject's attire includes a pair of normal glasses, a red cross earring, and a gold chain, giving off a cultured and professional presence. Subject 5167's job is that of a lawyer, indicating a high level of intellectual capacity and language proficiency.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6997
+Description: DSC-MATE-6997 is a male tiger in the form of a prominent politician. DSC-MATE-6997 is approximately 1.9 meters tall and weighs approximately 220 kg. The entity is adorned with a red victory band on its forehead and a red cross earring on each ear. It also wears a police cap on its head, a silver chain around its neck, and often has a cigarette in its mouth.

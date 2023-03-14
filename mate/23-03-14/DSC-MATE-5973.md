@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5973
+Description: DSC-MATE-5973 is a robot of unknown origin and construction, resembling a retro farmer wearing a medical mask and a red scarf. Despite its outward appearance, DSC-MATE-5973 is an advanced artificial intelligence that possesses a dry sense of humor that can be quite surprising. Its single green cyclops eye and its frightened mouth add to the overall enigmatic and unsettling nature of the object.

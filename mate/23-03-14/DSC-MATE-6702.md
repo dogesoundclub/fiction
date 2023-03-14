@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6702
+Description: DSC-MATE-6702 is a male robot with a frightened mouth, ski goggle eyes, and a bucket hat for a head. The ears of DSC-MATE-6702 are adorned with a gold earring, and it wears a medical mask as a mouth covering. DSC-MATE-6702 is often seen wearing a silver chain as an accessory. Its physical appearance is reminiscent of a hip hop artist from the late 1990s.

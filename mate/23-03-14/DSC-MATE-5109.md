@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5109
+Description: DSC-MATE-5109 is a male rabbit humanoid with jade LED eyes and a headset with LED that covers its ears. It stands at 1.2 meters tall and weighs approximately 35 pounds. DSC-MATE-5109 works as a real estate agent, where he is known for his bold salesmanship and fast-paced talking style. DSC-MATE-5109 is often seen wearing a gold chain and smoking cigarettes.

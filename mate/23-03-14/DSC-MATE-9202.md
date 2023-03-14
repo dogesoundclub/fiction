@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9202
+Description: DSC-MATE-9202 is a robotic train driver with a male personality. The robot's eyes are equipped with horned rim glasses to aid in its vision. Its head is adorned with a purple cap with a headset, while it sports a gold earring on each ear. Accessory #1 is a red scarf that the robot wears around its neck, while Accessory #2 is a normal gas mask that it wears on its face.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4160
+Description: Subject 4160 appears to be a human female in her mid-thirties, with a bright smile and a retro cap atop her head. She often wears a gas mask, which seems to be a part of her regular attire, along with a jade earring, a choker, and a two color band across her forehead. These accessories are believed to hold some form of significance to the subject.

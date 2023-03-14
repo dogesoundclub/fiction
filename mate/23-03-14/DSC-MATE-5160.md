@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5160
+Description: Subject 5160 is a middle-aged male human with a notable mouth spot and VR jade LED eyes. They wear a purple cap with a headset and jade earring. The subject appears to suffer from a strong sense of duty and responsibility, which can lead to a tendency to take on more than they can handle. Despite this, the subject continues to function as a successful farmer.

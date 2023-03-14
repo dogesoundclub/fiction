@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2667
+Description: DSC-MATE-2667 appears to be a male monkey with a frightened mouth as its face feature. However, research shows that DSC-MATE-2667 possesses unknown and abnormal qualities. There are no eyes present on DSC-MATE-2667. DSC-MATE-2667 possesses a bucket hat on its head with a forehead feature of a two-color band.

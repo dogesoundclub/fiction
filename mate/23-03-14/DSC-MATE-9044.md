@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9044
+Description: Dr. 9044 is a female human of average height and weight with a welcoming smile. She wears a medical mask to protect herself and those around her from potential infections. Her eyes are obscured by normal glasses, and she often wears a headset with LED lights when working. Dr. 9044 can often be seen wearing a gold chain as an accessory.

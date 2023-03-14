@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7236
+Description: DSC-MATE-7236 is a tiger who displays physical features commonly associated with human police officers. Its head is adorned with a police cap, and it wears a red cross earring in one ear. Its eyes are an abnormal blue color, resembling clown makeup. DSC-MATE-7236 is also often seen carrying a candy stick, which it claims to be its "nightstick."

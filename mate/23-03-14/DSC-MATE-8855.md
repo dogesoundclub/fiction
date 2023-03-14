@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8855
+Description: DSC-MATE-8855 is a female human with distinct facial features, including multiple spots and red clown eyes. DSC-MATE-8855’s head is described as “not arranged green” and features a two-color band on the forehead. Additionally, DSC-MATE-8855 wears a pair of jade earrings and a gold chain as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5099
+Description: DSC-MATE-5099 is a male humanoid of the Homo sapiens species, with orange stripes that cover his face. He is often seen wearing a retro cap on his head and a silver chain around his neck. He has two color bands on his forehead, along with a green cross earring on each ear. On his forehead, he also keeps a pair of goggles, which do not appear to serve any practical purpose.

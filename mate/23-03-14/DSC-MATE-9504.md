@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9504
+Description: 9504 is a female human of average height and weight. Subject displays unusual face features with notable spots and purple lips. Subject is usually seen sporting a retro cap and accessorizing with gold earrings, silver chains, and a cigarette.

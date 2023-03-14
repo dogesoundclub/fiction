@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3138
+Description: DSC-MATE-3138 is a male rabbit standing at approximately 0.5 meters in height. Its physical appearance is typical of a rabbit, except for its frightened mouth expression. DSC-MATE-3138's eyes are unknown as it refuses to remove its headset in the presence of personnel. DSC-MATE-3138 frequently displays a deep curiosity about various topics, often spouting off obscure facts and trivia to others. DSC-MATE-3138 also has a tendency to become easily frightened and anxious, often requiring reassurance from personnel to calm down.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8751
+Description: 8751 is a male human with spotted face, glasses, and a smile. He is frequently observed wearing a hoodie with a red scarf and holding a cigarette, which he smokes regularly. Prior to containment, 8751 was a notorious mafia boss with a reputation for brutal tactics and unforgiving leadership.

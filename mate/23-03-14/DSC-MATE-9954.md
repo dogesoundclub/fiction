@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9954
+Description: Officer 9954 is a male human with a unique appearance. He has spots on his face and a smile that can light up a room. His nerd glasses adorn his eyes, and his hair is parted and dyed pink. He has a two color band on his forehead and a green cross earring in his left ear. Officer 9954 can always be found carrying around a candy stick, which he uses to help him think.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2526
+Description: DSC-MATE-2526 appears to be a male monkey of unknown origin, measuring approximately 1.2 meters tall when standing bipedally. DSC-MATE-2526's head is adorned with green hair and a purple cap, which obscures its eyes. On its forehead, DSC-MATE-2526 possesses two color bands, and a pair of goggles is also often worn. A single gold earring is present in each of DSC-MATE-2526's ears, and it is often seen with a red scarf around its neck.

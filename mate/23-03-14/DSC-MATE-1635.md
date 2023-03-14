@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1635
+Description: Agent 1635 appears as a human woman with distinctive orange stripes on her face and purple lips. She wears normal glasses and sports a short witch-like haircut. Her forehead features a two-color band and she wears a green cross earring. She can often be seen wearing a choker and an LED gas mask.

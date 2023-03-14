@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7584
+Description: 7584 is a robot fast food worker in the form of a male humanoid. Its head is covered by a green bucket hat, and it has on a pair of nerd glasses over its outer lenses. Additionally, 7584 is always found wearing a single gold earring on its left ear. It appears to be capable of speech and follows a strict routine, which it adheres to without fail. 

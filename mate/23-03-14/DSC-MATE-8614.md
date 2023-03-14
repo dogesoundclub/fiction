@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8614
+Description: DSC-MATE-8614 is a human male with distinctive orange stripes on its face. Its eyes resemble ski goggles and it wears a green cross earring on at least one ear. DSC-MATE-8614 often wears a red scarf and is frequently seen with a cigarette in its hand.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7036
+Description: DSC-MATE-7036 is a humanoid entity bearing the appearance of a middle-aged woman with distinctive spotted skin. Her eyes are unnaturally colored in blue and the subject wears a bucket hat atop of her head, with a red cross earring adorning each ear.

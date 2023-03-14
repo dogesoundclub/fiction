@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5854
+Description: The Reporter, designated as Subject #5854, is a male monkey with horned rim glasses, a purple cap with a headset, a gold chain accessory, and a cigarette. Standing at approximately three feet tall and weighing approximately 20 pounds, the Reporter is known for its forgetfulness and absent-mindedness. When engaged in deep thought or focused on a project, the Reporter may lose track of time, appointments, or important events. This can lead to humorous situations, as well as potential security breaches if not closely monitored. 

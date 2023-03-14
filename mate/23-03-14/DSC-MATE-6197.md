@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6197
+Description: DSC-MATE-6197 is a sentient train driver robot designed for passenger services. It stands at approximately 6 feet tall and is distinguishable by its retro cap and medical mask. Its main body is made of metals and electronic components of varying types. It possesses a gold chain and a gold earring as its personal accessories.

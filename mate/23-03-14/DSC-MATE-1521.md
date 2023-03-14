@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1521
+Description: DSC-MATE-1521 appears as a male Bengal tiger with an average weight of 280kg at full maturity. DSC-MATE-1521 exhibits a constantly frightened mouth, often having difficulty closing it. Their head is adorned with a bucket hat, and they wear a gold chain around their neck which is not removable. Their typical accessories also include a whistle, which they use to communicate with other tigers.

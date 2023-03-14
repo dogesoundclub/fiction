@@ -1,0 +1,2 @@
+ID # : DSC-MATE-776
+Description: Subject 776 appears to be a human female in her mid-30s with a unique set of physical features. Most notably, she has bright red lips and blue clown eyes, which may or may not be a result of cosmetic enhancements. Her head bears the appearance of a pink rabbit, complete with long ears and whiskers. A pair of goggles rest atop her forehead, and she wears a jade earring on each ear. Around her neck is a choker, and she can often be seen holding a cigarette.

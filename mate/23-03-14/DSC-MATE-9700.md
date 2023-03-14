@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9700
+Description: DSC-MATE-9700 is a female human identified as a computer programmer named ███████ ████████. DSC-MATE-9700's appearance is striking, with orange stripes on their face and red lips. Their eyes are that of a clown, with bright blue irises, and they often have their hair styled in a rainbow fashion. They wear a gold earring in their left ear at all times. Notably, DSC-MATE-9700 wears an LED gas mask, which obscures their facial features, during most periods of containment.

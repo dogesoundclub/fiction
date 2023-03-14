@@ -1,0 +1,2 @@
+ID # : DSC-MATE-589
+Description: DSC-MATE-589 is a humanoid robot standing at approximately 1.8 meters tall, resembling a doctor wearing a red and white striped apron over his chest. The robot's head is made of metal, bearing a police cap over it, while his glasses sit on the bridge of his nose. DSC-MATE-589's mouth is covered by a half-mask, worn by medical professionals conducting surgery.

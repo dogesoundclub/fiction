@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1840
+Description: DSC-MATE-1840 is a male rabbit with green hair and a purple cap, measuring approximately 1 meter in height. The entity possesses a distinctive two-color band on its forehead, as well as a gold earring and chain. DSC-MATE-1840 is a news anchor by profession, and is highly adept at public speaking and improvisation.

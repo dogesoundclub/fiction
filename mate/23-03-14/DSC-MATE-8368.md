@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8368
+Description: 8368 is a humanoid female with orange stripes across their face, and blue clown-like eyes. Their head hair is not arranged, and their forehead features a unique two-color band. They wear gold earrings and a silver chain as accessories. 8368 has been identified as human, though their personality displays atypical levels of empathy towards inanimate objects. 

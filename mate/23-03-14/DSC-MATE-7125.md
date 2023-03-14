@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7125
+Description: Subject 7125 is a male robot with a green head that is not arranged properly. The subject always wears a medical mask over its mouth and a red scarf. The subject is a banker by profession and is designed to process financial transactions. It is unknown who created the subject or what its intended purpose was.

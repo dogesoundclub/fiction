@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8720
+Description: DSC-MATE-8720 is a male monkey of the genus Macaca with an overall appearance resembling that of a traditional veterinarian. They stand approximately 0.75 meters and have a green coat of fur. Their head is adorned with a purple cap, while their eyes resemble ski goggles, and they have jade earrings affixed to their ears. DSC-MATE-8720 frequently wears a gold chain and carries a candy stick.

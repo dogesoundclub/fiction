@@ -1,0 +1,2 @@
+ID # : DSC-MATE-389
+Description: DSC-MATE-389 appears to be a young human female with a charming smile, short reddish hair with witchy bangs, orange eyebrows and spots on her face. Her exact age and origin is unknown. DSC-MATE-389 has proven to possess incredible mechanical aptitude, with a keen eye for fixing machines that are thought to be beyond repair. 

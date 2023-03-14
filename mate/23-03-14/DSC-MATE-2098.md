@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2098
+Description: DSC-MATE-2098 is a humanoid female of the Homo sapiens species. DSC-MATE-2098's most noticeable feature is the presence of spots over her body. DSC-MATE-2098 has a VR (Virtual Reality) Jade LED as its eye. DSC-MATE-2098 wears a tiara on its head and has a gold earring on each ear. A medical mask is always worn in front of its mouth, which makes facial expressions indistinguishable.

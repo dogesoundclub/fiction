@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8641
+Description: DSC-MATE-8641 is a male rabbit approximately 1.2 meters tall. It displays a number of anomalous properties, including the ability to speak, manipulate its environment with extreme precision and judgement, and emit a toxin through its breath. DSC-MATE-8641 has bright red clown eyes and a frightened mouth, giving it an unsettling appearance.

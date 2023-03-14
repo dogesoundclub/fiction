@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9354
+Description: DSC-MATE-9354 appears to be a human female in her early twenties, with several noticeable face features. DSC-MATE-9354 has a pattern of spots on her cheeks, and frequently smiles, revealing a set of braces. DSC-MATE-9354 wears normal prescription glasses on a daily basis and has short hair styled in a witch-like fashion. DSC-MATE-9354 also has a green cross-shaped earring on her left ear and a silver chain around her neck at all times.

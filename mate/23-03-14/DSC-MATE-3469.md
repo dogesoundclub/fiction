@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3469
+Description: DSC-MATE-3469 is a robotic humanoid designed and programmed to perform electrical maintenance work. Its face feature is that of a frightened mouth, wearing a doge hat on its head and sporting a golden earring on one ear. DSC-MATE-3469 frequently wears a medical mask over its mouth, though it is not a functional modification.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3609
+Description: DSC-MATE-3609 is a female humanoid with distinct orange stripes on their face. Their head is usually covered with a hoodie, and they wear normal glasses. DSC-MATE-3609 is typically accompanied by an LED gas mask. DSC-MATE-3609's personality is laid-back and easy-going, but they are fiercely loyal and protective of their loved ones. 

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1171
+Description: Subject 1171 is a large, male Bengal tiger in the form of an electrician. They stand at approximately 6'5" tall and display striking red clown eyes, indicating some form of mutation or magical influence. Their head is covered by a peculiar bucket hat and sports a gold earring in its right ear. They wear a medical mask over their mouth, but in rare cases, they have been observed displaying a frightened mouth to others. A silver chain can also be seen hanging around their neck.

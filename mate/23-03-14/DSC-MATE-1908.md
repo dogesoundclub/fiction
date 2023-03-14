@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1908
+Description: Object 1908 is a human male identified as a News Anchor, his exact identity is unknown. He appears to be in his 30s and stands at an average height. Object 1908's most notable physical feature is his wide, unsettling smile, which never seems to waver. However, the most alarming trait of Object 1908 is his eyes which are a vivid shade of red commonly associated with circus clowns.

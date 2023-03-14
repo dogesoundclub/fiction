@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4030
+Description: 4030 is a human female who appears to be in her mid-thirties. They have light-colored spots of varying shades on their face, which give them a unique and striking appearance. Their facial expression is typically that of a broad smile, which can be unsettling to some individuals. Their blue clown-colored eyes are distinct and add to their eccentric appearance. Their headwear consists of a headset which has built-in LED lights.

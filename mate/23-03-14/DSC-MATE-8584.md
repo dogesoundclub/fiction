@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8584
+Description: DSC-MATE-8584 is a female human with unique features. The face of DSC-MATE-8584 is characterized by a constant smile, with orange-colored eyebrows and a medical mask covering the mouth. The head of DSC-MATE-8584 displays a metallic blue hue, which is believed to be a result of previous exposure to an unknown substance. DSC-MATE-8584 is commonly observed wearing a silver chain as the only accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1205
+Description: Subject 1205 is a human male employed as an electrician. Subject 1205 has striking orange stripes on their face, complimenting the red clown eyes. Their head is adorned with a blue bandana, and a gold earring can be seen through the bandana. A medical mask covers their mouth, but the golden chain catches the observer's attention.

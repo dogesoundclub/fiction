@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6757
+Description: DSC-MATE-6757 is a male human of Caucasian descent with the distinguishing feature of a brownish spot on the right side of their mouth. DSC-MATE-6757 has a preference for retro caps and can be most often seen wearing one accompanied by nerd glasses. DSC-MATE-6757 likes to sport a two-colored band on their forehead, a medical mask, and a gold earring in their left ear. Additionally, DSC-MATE-6757 is always seen wearing a gold chain.

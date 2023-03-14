@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3155
+Description: DSC-MATE-3155 is a male tiger, standing at approximately 2.5 meters tall and weighing around 250 kg. DSC-MATE-3155’s head is adorned with a black police cap, with two colored bands on its forehead. DSC-MATE-3155 wears a pair of horn-rimmed glasses over its eyes and a red cross earring on each ear. DSC-MATE-3155's mouth appears to be in a frightened expression.

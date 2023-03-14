@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5256
+Description: DSC-MATE-5256 is a male rabbit standing at approximately 1 meter in height. DSC-MATE-5256 has red clown eyes with a two-color band across its forehead, and a pair of goggles situated on its forehead. DSC-MATE-5256 is typically adorned with a red scarf and an LED gas mask.

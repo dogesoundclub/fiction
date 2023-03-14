@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3070
+Description: DSC-MATE-3070 is a male rabbit with nerd glasses for eyes and a hoodie for its head. Additional features include a two-color band on its forehead and a red scarf around its neck. DSC-MATE-3070 can usually be found carrying a candy stick as it goes about its duties as a traffic officer.

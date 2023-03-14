@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8758
+Description: DSC-MATE-8758 appears to be a human female in her early thirties, standing at approximately 165 cm in height. The subject has short witch-like hair and typically adorns a red lipstick on their mouth with normal glasses. DSC-MATE-8758 often wears a red cross earring on their left ear and a choker around their neck. Additionally, DSC-MATE-8758 possesses a normal gas mask in their possession at all times for unknown purposes.

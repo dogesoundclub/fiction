@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1948
+Description: DSC-MATE-1948 is a humanoid rabbit that stands at 4 feet and 2 inches tall. They have red clown eyes, which can cause instant fear and anxiety to anyone who stares into them. DSC-MATE-1948 wears a doge hat on its head and a jade earring on its left ear. DSC-MATE-1948 is often observed wearing a red scarf and carrying a candy stick around.

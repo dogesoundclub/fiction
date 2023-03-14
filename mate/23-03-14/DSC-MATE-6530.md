@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6530
+Description: DSC-MATE-6530 is a human female with several unique features. She has spotted skin and is often seen with a smile. Her eyes are VR Jade LED, and she sports a blonde Ushanka on her head. DSC-MATE-6530 is usually observed wearing a silver chain around her neck.

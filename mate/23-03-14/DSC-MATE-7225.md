@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7225
+Description: DSC-MATE-7225 is a male human identified by the Foundation as a car salesman. DSC-MATE-7225 exhibits two identifiable anomalies: one large mouth spot situated over the right side of the mouth and a two-color band on the forehead. DSC-MATE-7225 always carries and wears a medical mask over the lower half of his face and a red scarf around his neck. DSC-MATE-7225's personality is characterized as rebellious, frequently choosing to break or bend rules for amusement.

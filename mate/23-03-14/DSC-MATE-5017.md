@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5017
+Description: DSC-MATE-5017 is a robotic villain, modelled after a humanoid figure, approximately 1.9 meters tall. DSC-MATE-5017's head is composed of a red alarm, featuring a single green cyclops eye and a mouth that appears to express fear. DSC-MATE-5017's eyes are protected by what appear to be nerd glasses, and its ears are decorated with a jade earring. DSC-MATE-5017 wears a red scarf and an LED gas mask as its accessories.

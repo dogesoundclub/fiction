@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6858
+Description: Subject 6858, also known as the Delivery Driver, is a female human with orange stripes and purple lips. Their eyes feature distinct orange eyebrows, and they are often seen wearing a tiara and gold earrings, along with a medical mask to cover their mouth. Subject 6858 also sports a gold chain as their primary accessory.

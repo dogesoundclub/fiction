@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5877
+Description: Subject 5877 is a female human, identified as the manager of a local theater. They possess striking physical features, including orange stripes on their face and purple lips. Their clown-like appearance is completed by red eyes and a pink rabbit head.

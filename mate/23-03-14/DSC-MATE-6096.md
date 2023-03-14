@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6096
+Description: 6096 is a female human, with striking features that include a pair of bright blue clown eyes, red lips, and a red cross earring on her right ear. She presents a striking appearance, often wearing unconventional clothing and jewelry.

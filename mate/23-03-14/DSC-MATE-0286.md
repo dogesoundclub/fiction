@@ -1,0 +1,2 @@
+ID # : DSC-MATE-286
+Description: DSC-MATE-286 is a female human identified as a licensed veterinarian. She stands at approximately 5'6" in height and weighs around 145 lbs. DSC-MATE-286 has distinct orange tiger stripes on her cheeks and a permanent smile on her face. Her eyes are obscured by normal glasses, and she frequently wears a blonde ushanka on her head with a jade earring on her left ear.

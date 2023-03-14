@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1611
+Description: DSC-MATE-1611 appears as a male humanoid figure with the features of a tiger including fur and stripes, and stands at approximately 1.8 meters in height. DSC-MATE-1611's face displays a frightened expression at all times while its eyes resemble blue clown eyes. DSC-MATE-1611's head is adorned with goggles on its forehead and gold earrings on its ears. It is seen wearing a silver chain around its neck as well.

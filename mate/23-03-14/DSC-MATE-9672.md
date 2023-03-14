@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9672
+Description: DSC-MATE-9672 is a human female politician, approximately 45 years old. DSC-MATE-9672 exhibits unique physical characteristics, which include spots on the skin, purple lips, blue clown eyes, green colored hair with edge curl, and a two-color band on the forehead. DSC-MATE-9672 also wears a gold earring and a gold chain.

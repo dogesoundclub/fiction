@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3240
+Description: DSC-MATE-3240 is a human female with unique facial and physical features. She has striking purple lips and orange eyebrows, and sports golden earrings on her ears, which are highly sensitive to sound. DSC-MATE-3240 tends to be very outgoing and may enjoy being the center of attention in social situations. 

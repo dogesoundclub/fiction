@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6966
+Description: DSC-MATE-6966 is a human male with a distinctive facial feature; a black spot on their mouth that seems to move and contort in response to emotions. The subject also has a set of VR Rainbow LED eyes, which emit a kaleidoscope of colors. DSC-MATE-6966's blonde hair and jade earring are noteworthy as well.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5113
+Description: Subject 5113 appears to be a humanoid male in his mid-30s, with distinctive orange stripes across his face. He wears normal glasses over his eyes and has a metallic purple head, with a goggle always resting on his forehead. A gold earring is visible on his right ear, and he often wears a red scarf around his neck, presumably for fashion purposes. His mouth is always covered with a medical mask.

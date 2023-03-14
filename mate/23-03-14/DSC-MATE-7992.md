@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7992
+Description: DSC-MATE-7992 is a male Bengal tiger that exhibits an idealistic personality. DSC-MATE-7992 was discovered working at a fast-food restaurant in [REDACTED], wearing a blue bandana, medical mask, and normal glasses. DSC-MATE-7992 always wears a red scarf, and a red cross earring, which is surgically fused into its left ear.

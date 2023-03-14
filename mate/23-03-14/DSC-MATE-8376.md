@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8376
+Description: DSC-MATE-8376 is a human female police officer in her late twenties. It is easily identified by the gold chain accessory it wears around its neck, as well as the green cross earring it wears on its right ear. DSC-MATE-8376 consistently wears a set of goggles on its forehead and an LED gas mask as part of its uniform.

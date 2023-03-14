@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4639
+Description: Subject 4639 appears to be a young human female, with distinctive features including purple lips, orange eyebrows, and blonde hair styled in a ushanka. The subject is commonly seen wearing a jade earring and a gold chain as an accessory. Despite her human appearance, the subject exhibits a high level of physical and mental aptitude, making her a formidable adversary.

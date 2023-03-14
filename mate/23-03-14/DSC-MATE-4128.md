@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4128
+Description: DSC-MATE-4128 is an anomalous robotic entity, resembling a male veterinary doctor, operating under the name of "Doctor Bot". The robotic body is of average humanoid appearance, but with a purple cap with a headset, nerd glasses, and a medical mask halting the sight of the doctor's mouth. DSC-MATE-4128's most distinct feature is its gold earring and red scarf, often seen on its neck. Although lacking emotions, DSC-MATE-4128 can display a frightened expression on its mouth.

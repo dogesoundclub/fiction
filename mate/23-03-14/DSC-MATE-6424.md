@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6424
+Description: 6424 is a female Human with Pig Tails and a charming Smile. They have an interesting fashion sense, including a Green Cross Earring and a Silver Chain. Their most unique feature is their Jade LED eyes.

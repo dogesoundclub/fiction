@@ -1,0 +1,2 @@
+ID # : DSC-MATE-244
+Description: DSC-MATE-244 is a male human, estimated to be in his mid-thirties, standing at approximately 1.8 meters tall. The subject's most notable features include a prominent spot on the lower lip and ski goggle-shaped eyes, which are a result of anomalous genetic mutations.

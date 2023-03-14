@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1137
+Description: DSC-MATE-1137 appears to be a Bengal tiger (Panthera tigris tigris), standing approximately 2 meters tall on all fours. The eyes of DSC-MATE-1137 are blue, and possess the unusual characteristic of being similar in appearance to a clown's eyes. DSC-MATE-1137's head is adorned with a Doge hat, and a red victory band is visible on its forehead. In addition, DSC-MATE-1137 wears a gold chain around its neck and is rarely seen without a candy stick in its mouth.

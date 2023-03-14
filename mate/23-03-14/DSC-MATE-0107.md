@@ -1,0 +1,2 @@
+ID # : DSC-MATE-107
+Description: Subject 107 is a female of human origin, with spots on their face and a noticeable smile. They have blue clown eyes and blonde hair, which they often wear under an ushanka. Subject 107 is an electrician by occupation and has been known to have exceptional abilities when it comes to working with power circuits.

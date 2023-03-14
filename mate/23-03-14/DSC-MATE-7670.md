@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7670
+Description: DSC-MATE-7670 is a human male, identified as a reporter for a local news station. DSC-MATE-7670's most prominent features are a black spot located on the upper right corner of the mouth, and a clown-shaped mouth. DSC-MATE-7670's eyes are a bright blue, similar to those of a clown's. DSC-MATE-7670 wears a red victory band on the forehead, a green cross earring on each ear, a medical mask over the mouth, and a red scarf as an accessory.

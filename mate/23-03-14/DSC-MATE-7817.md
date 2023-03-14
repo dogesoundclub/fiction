@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7817
+Description: DSC-MATE-7817 is a human male of average height with pink hair that is parted down the middle. He has several noticeable spots on his face, and wears normal glasses. DSC-MATE-7817 has a penchant for wearing flashy clothing and jewelry, and sports a gold earring in his left ear. He is often seen with a candy stick in his mouth.

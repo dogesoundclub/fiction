@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2066
+Description: Subject 2066 is a human female with an unusual appearance. Her face features an unsettling smile and striking orange eyebrows that seem to glow in the dark. She wears a choker around her neck, and her head is that of a pink rabbit, complete with long ears and a twitching nose. Her ears are adorned with gold earrings, adding to her eccentric look.

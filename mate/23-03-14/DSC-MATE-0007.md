@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7
+Description: Item 7 is a robotic entity of unknown origin. It appears as a male humanoid with a police cap on its head and a jade earring in each ear. A pair of goggles is affixed to its forehead. Despite its robotic nature, Item 7 exhibits a sense of humor and has a playful side. However, it also values tradition and can be quite no-nonsense when it comes to matters of respect and loyalty.

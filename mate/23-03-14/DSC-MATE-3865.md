@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3865
+Description: Item #3865 is a human female, with striking orange stripes on their face that run from the bridge of their nose to the side of their cheeks. They have an unusual red lipstick on their lips that seems to emit a faint glow. The most attention-grabbing features on the forehead are the two-colored band and a pair of goggles, which they wear from time to time. They also wear a distinctive red cross earring on both ears, and a silver chain around their neck.

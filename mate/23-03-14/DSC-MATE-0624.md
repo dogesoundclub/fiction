@@ -1,0 +1,2 @@
+ID # : DSC-MATE-624
+Description: DSC-MATE-624 is a humanoid entity with unique facial features and traits. The individual possesses a heightened sense of empathy and an ability to understand and connect with those around them emotionally. DSC-MATE-624's connection to animals and nature is of interest to the Foundation, and further studies in this area are ongoing.

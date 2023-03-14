@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7986
+Description: DSC-MATE-7986 is a human female of unknown age and origin. She stands at 5'8" and has a distinct appearance, with an orange side hairstyle and red clown eyes. Her lips are purple, and she has a unique two-color band on her forehead. She also wears a green cross earring and a gold chain as accessories.

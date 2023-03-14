@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6604
+Description: DSC-MATE-6604 appears to be a male robot news anchor. Its face features a single green cyclops eye and a mouth that appears to be in a state of constant fright. Its eyes are composed of VR rainbow LED, and its head is housed within a hoodie. DSC-MATE-6604's accessories include a gold chain and an LED gas mask.

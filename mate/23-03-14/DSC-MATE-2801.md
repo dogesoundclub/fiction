@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2801
+Description: DSC-MATE-2801 is a female human, identified as the manager of a local theater in the late 19██s. They possess peculiar physical features such as orange stripes across the cheeks, red lips, blue clown eyes, green hair underneath a purple cap, and gold earrings on the ears, along with a lit cigarette held in the left hand. It is believed that these features were obtained through anomalous means.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4643
+Description: DSC-MATE-4643 is a male rabbit of the species Oryctolagus cuniculus with purple cap with a headset on its head. Its eyes are VR Rainbow LED and it has a goggle on its forehead. DSC-MATE-4643 occasionally wears a red scarf and a gold earring in one ear. Its most notable accessory is a whistle which it carried around its neck by a string.

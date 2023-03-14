@@ -1,0 +1,2 @@
+ID # : DSC-MATE-918
+Description: DSC-MATE-918 is a human male who was formerly a police officer. He possesses a distinct mouth spot on his left cheek and a frightened expression on his mouth. His eyes are red clown eyes, a phenomenon that is still unexplained. His head is shaved and he bears the visage of a monk. DSC-MATE-918 also wears a gold earring on his right ear.

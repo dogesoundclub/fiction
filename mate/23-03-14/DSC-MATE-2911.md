@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2911
+Description: Subject 2911 is a male rabbit, standing at 1.2 meters tall when upright. His head is adorned with a purple cap with a headset, and his eyes are equipped with ski goggles. The Subject's personal style revolves around gold chains and an LED gas mask, the purpose of which is unknown. The Subject speaks in a deep, authoritative voice, making it evident he has served as a police officer in the past.

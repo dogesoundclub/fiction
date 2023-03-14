@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3564
+Description: DSC-MATE-3564 is a male monkey of the species Macaca fuscata (Japanese Macaque). DSC-MATE-3564 displays a unique set of physical features, including ski-goggle eyes, a frightened mouth, a bucket hat, a goggle on its forehead, gold earrings, and a gold chain accessory. DSC-MATE-3564 has exhibited a strong sense of independence, which can manifest as rebellious behavior towards authority figures.

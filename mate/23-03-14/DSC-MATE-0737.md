@@ -1,0 +1,2 @@
+ID # : DSC-MATE-737
+Description: Subject 737 is a female human with distinctive spots on their face. Their hair is styled in a "witch short" cut, and they wear a red cross earring on one ear. The most striking feature of subject 737 is their eyes, which are fitted with VR rainbow LED lenses that give the appearance of constantly shifting colors. They typically wear a medical mask over their mouth, which they claim is for protection against airborne pathogens but may also serve to hide any unusual dental features.

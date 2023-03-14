@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1359
+Description: Subject 1359 is a human male with distinctive spots on their face. They are often seen sporting a retro cap with a two color band on their forehead, and a gold earring in each ear. Subject 1359 is rarely seen without a candy stick in hand.

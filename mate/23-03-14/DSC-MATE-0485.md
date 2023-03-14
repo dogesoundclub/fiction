@@ -1,0 +1,2 @@
+ID # : DSC-MATE-485
+Description: DSC-MATE-485 is a robotic entity designed to serve as a veterinarian. Physically, DSC-MATE-485 resembles a humanoid figure with a retro cap on its head and a gold earring on one of its metallic ears. Its mouth is covered with a medical mask, and it is adorned with a gold chain around its neck.

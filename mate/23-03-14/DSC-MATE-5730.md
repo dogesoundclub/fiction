@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5730
+Description: Item 5730 is a male Bengal tiger, measuring approximately 2.5 meters long from nose to tail. The subject possesses unique physical features, with frightful mouth and ski goggle eyes. The subject is frequently seen wearing a golden earring and a gold chain around its neck, as well as carrying a candy stick in its paw.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7289
+Description: DSC-MATE-7289 is a human female of average height and build, with orange-dyed hair styled into a side-swept bob. DSC-MATE-7289 is a successful fashion designer and has been known to work with high-end clients. DSC-MATE-7289 is often seen wearing a gold chain around their neck.

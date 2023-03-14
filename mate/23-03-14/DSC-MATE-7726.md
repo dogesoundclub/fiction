@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7726
+Description: DSC-MATE-7726 is a humanoid identified as a female human. It exhibits distinct physical features, including orange stripes on its face, purple lips, VR rainbow LED eyes, and a blonde hair with one wing. Additionally, it has red cross earrings and a gold chain as accessories.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6234
+Description: Subject 6234 is a human male standing at approximately 5'8" in height. Notable physical traits of Subject 6234 include distinctive orange stripes on their face (#1), a set of nerd glasses, parted pink hair, and a green cross earring. Additionally, Subject 6234 is often seen with a cigarette in hand, which is to be confiscated and disposed of upon entering secured facilities.

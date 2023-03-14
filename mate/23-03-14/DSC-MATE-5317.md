@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5317
+Description: DSC-MATE-5317 is a member of the species Oryctolagus cuniculus, commonly known as a rabbit. DSC-MATE-5317 is a male of the species, possessing a number of unique features that distinguish it from normal rabbits. Its most notable appearance is its frightened mouth, which is present at all times even when DSC-MATE-5317 is not obviously distressed. In addition, DSC-MATE-5317 wears a gold earring in its right ear and a silver chain around its neck.

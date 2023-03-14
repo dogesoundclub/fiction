@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4429
+Description: DSC-MATE-4429 is a human female with red clown eyes, likely caused by a genetic mutation. They typically wear a retro cap with a 2 color band on the forehead, gold earrings and a gold chain. DSC-MATE-4429's most distinguishing feature is an LED gas mask that they always wear, citing a sensitivity to pollution and an affinity to electronics.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4357
+Description: DSC-MATE-4357 is a male tiger of the Bengal subspecies, standing at 2.2 meters tall and weighing approximately 200 kg. Its most notable facial feature is a perpetually frightened mouth. The eyes of DSC-MATE-4357 are adorned with horned rim glasses, and the top of its head is often seen wearing a purple cap with an attached headset.

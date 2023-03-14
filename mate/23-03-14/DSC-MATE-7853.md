@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7853
+Description: DSC-MATE-7853 is a male monkey of unknown species, currently employed as an electrician. DSC-MATE-7853 displays a distinctive pair of ski goggle eyes and sports a single gold earring in its left ear. DSC-MATE-7853 is commonly seen carrying a whistle as an accessory.

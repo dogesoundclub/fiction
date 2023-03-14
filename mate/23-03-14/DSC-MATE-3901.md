@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3901
+Description: DSC-MATE-3901 is a female news anchor for a local television station, identified as [REDACTED]. DSC-MATE-3901 possesses blue clown eyes and wears a purple cap with a headset. She also wears a two-color band on her forehead and a jade earring on her left ear. DSC-MATE-3901 is known to carry a normal gas mask as an accessory.

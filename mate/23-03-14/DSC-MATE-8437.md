@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8437
+Description: Subject 8437 is a male Monkey of unknown origin, with a distinctive Mohawk and a pair of two-color bands across their forehead. They possess a frightened mouth which is indicative of anxiety and fear. Subject 8437 is a trained firefighter and often carries a whistle to alert their team in emergency situations. 

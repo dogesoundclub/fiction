@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9360
+Description: DSC-MATE-9360 is a female human politician with distinct facial features, including red lipstick and red clown eyes. DSC-MATE-9360's head resembles that of a pink rabbit and is often adorned with a choker, and cigarette. DSC-MATE-9360 also possesses the ability to control humor, often making others laugh in humorous situations that they create.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6697
+Description: DSC-MATE-6697 appears to be an average human male in his early forties, with green hair and a purple cap on his head. His face is adorned with a constant smile, and he wears a pair of normal glasses over his eyes. DSC-MATE-6697 frequently wears a red victory band across his forehead, as well as a red scarf and a cigarette.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-795
+Description: DSC-MATE-795 is a female human of average height and weight, with distinctive orange stripes across her face and purple lips. DSC-MATE-795 has orange eyebrows and wears a purple cap with a headset. DSC-MATE-795's forehead features a 2 color band, and she wears a gold chain as her primary accessory. DSC-MATE-795's personality is characterized by her ambition and goal-oriented nature. She tends to take on more than she can handle, but is able to pull it off thanks to her strategic thinking and excellent organizational skills. 

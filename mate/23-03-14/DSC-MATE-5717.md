@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5717
+Description: Item 5717 is a male beautician robot equipped with a silver chain and a whistle, along with jade earrings and horn-rimmed glasses. It is known for its goal-oriented and ambitious nature, often attempting to take on more than it can handle. However, it manages to succeed with impressive organizational skills and sharp analytical acumen.

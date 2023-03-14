@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2034
+Description: Item 2034 is a male anthropomorphic tiger with black stripes and golden eyes. He wears normal glasses as corrective eyewear, and a gold earring in his right ear. The item is often seen sporting a medical mask due to allergies and vulnerable respiratory system. A silver chain is also worn around his neck as an accessory.

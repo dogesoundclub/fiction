@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6833
+Description: Item 6833 is a male rabbit of unknown origin. It stands at approximately 3 feet tall and weighs approximately 50 pounds. Item 6833's most distinguishing feature is its red clown eyes, which are constantly dilated and flickering. Its mouth is in a permanent state of terror, and its forehead is adorned with a two-color band.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4969
+Description: DSC-MATE-4969 is a male monkey of unknown species, standing at approximately 1.5 meters tall. DSC-MATE-4969 possesses a green-haired head with a purple cap and a 2-color band on its forehead, jade earrings, and a silver chain. DSC-MATE-4969 is also frequently observed smoking a cigarette.

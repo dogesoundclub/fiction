@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6877
+Description: DSC-MATE-6877 is a male simian resembling a common marmoset, with a frightened expression on its mouth. DSC-MATE-6877 is wearing a headset with LED lights, and its forehead has two color bands and goggles resting on top. Its eyes appear to be normal for a marmoset, but further examination is difficult due to DSC-MATE-6877's frightened demeanor.

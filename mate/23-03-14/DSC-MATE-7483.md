@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7483
+Description: 7483 is a humanoid of the female gender with bright blue eyes resembling those of a clown. The subject's head is typically covered with a hoodie, and she wears an orange striped shirt. 7483 possesses an anomalous ability to manipulate time to a certain degree within a small area of effect. Witnesses have described the effect as if time seems to stutter or skip. However, this effect only lasts a few seconds and leaves 7483 disoriented and unable to recall what happened during these skipped moments.

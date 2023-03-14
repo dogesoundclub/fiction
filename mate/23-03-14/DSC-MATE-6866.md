@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6866
+Description: DSC-MATE-6866 is a humanoid female with blue clown eyes and a metal blue head. Her ears bear golden earrings, and she has a medical mask covering her mouth. DSC-MATE-6866's appearance is unique and draws attention, especially from first-time viewers.

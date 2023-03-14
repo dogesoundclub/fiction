@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2027
+Description: Item 2027 is a male firefighter robot with retro styling. It stands at 6'3" tall and weighs approximately 300 pounds. Item 2027 is capable of independent movement and possesses extraordinary strength, agility, and speed. Its frame is made of a lightweight metal alloy, and its programming is designed to mimic human behavior.

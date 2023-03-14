@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7373
+Description: DSC-MATE-7373 is a humanoid entity identified as a male human, appearing in his early thirties. He has pink, parted hair and wears normal glasses. DSC-MATE-7373 can be identified by his gold earring and a red scarf. It was first discovered when his empathetic nature drew the attention of the Foundation after several anomalous incidents occurred around him.

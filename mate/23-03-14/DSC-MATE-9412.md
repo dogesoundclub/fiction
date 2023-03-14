@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9412
+Description: DSC-MATE-9412 is a female human who holds a prominent political position. They possess orange stripes on their face, which are believed to be naturally occurring. They also have red lips and eyebrows, with a short "witch" hairstyle. DSC-MATE-9412 has a distinctive set of forehead features, consisting of a two-color band above their orange eyebrows and a pair of goggles worn on their forehead. Their ears have red cross earrings, and they often wear a gold chain necklace.

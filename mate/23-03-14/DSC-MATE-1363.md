@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1363
+Description: DSC-MATE-1363 is a male human of average height and weight. They have orange stripes on their face, and wear normal glasses and a blue bandana on their head. DSC-MATE-1363 also has a green cross earring in one ear and wears a medical mask over their mouth. They are often seen wearing a red scarf around their neck.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4499
+Description: Subject 4499 is a male veterinarian with distinctive orange stripes on his face. He wears normal glasses and has unarranged green hair. His gold earring and chain suggest an affinity for accessories, but his most interesting accessory is a candy stick that he constantly holds in his mouth.

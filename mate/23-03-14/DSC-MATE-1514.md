@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1514
+Description: DSC-MATE-1514 is a male Siberian tiger that previously worked as a banker prior to its containment. DSC-MATE-1514 measures approximately 2 meters in length and displays a variety of physical features including a purple cap with a headset, two color bands on its forehead, jade earring, and a gold chain. DSC-MATE-1514 is known to wear nerd glasses.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7858
+Description: DSC-MATE-7858 is a female human with distinctive orange stripes on their face as well as a permanent smile. DSC-MATE-7858's eyes are blue clown eyes, which are unnaturally large and often make prolonged eye contact with those they interact with. DSC-MATE-7858 also wears a tiara and gold earrings as part of their appearance.

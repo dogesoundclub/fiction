@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5284
+Description: Subject 5284 appears to be a human female of average height and build. The subject displays a striking feature in the form of Orange Stripes present on her face. A neat and charismatic smile adorns her face, along with a hoodie that constantly covers her head. A unique forehead feature shows two distinct color bands. The subject displays an accessory in the form of a cigarette.

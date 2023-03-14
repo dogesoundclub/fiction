@@ -1,0 +1,2 @@
+ID # : DSC-MATE-200
+Description: DSC-MATE-200 is a male monkey dressed in a firefighter uniform with a doge hat on his head. The entity is known to wear a silver chain around his neck. DSC-MATE-200's eyes are unknown due to his uniform, but he possesses exceptional sight and hearing abilities. DSC-MATE-200 also exhibits enhanced senses of smell and touch. He has a generally cheerful disposition, but can become emotionally unstable if reminded of his captivity.

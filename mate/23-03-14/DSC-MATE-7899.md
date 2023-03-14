@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7899
+Description: DSC-MATE-7899 (previously known as John Doe) is a human male of indeterminate age, with a distinctive mouth spot and a frightened mouth. They wear normal glasses and a short peak cap, with a goggle on their forehead and a jade earring on their left ear. DSC-MATE-7899 also wears a medical mask and a gold chain.

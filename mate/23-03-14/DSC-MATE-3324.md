@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3324
+Description: DSC-MATE-3324 is a female human with a knack for fashion designing. The subject's face displays multiple spotted markings, which are believed to be the result of an atypical skin condition or a genetic mutation. DSC-MATE-3324 habitually wears a tiara on her head and a pair of jade earrings in her ears. It also wears a silver chain around its neck and is often seen smoking a cigarette.

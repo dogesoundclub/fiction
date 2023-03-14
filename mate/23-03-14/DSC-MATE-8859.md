@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8859
+Description: Officer 8859 is a male tiger with eyes of unknown color. He stands at an impressive height of 6 feet and has a muscular build that suggests he is physically fit. His head is adorned with a purple cap with a headset, while a set of goggles are often seen resting on his forehead. He wears a single jade earring on his left ear and a gold chain around his neck, adding to his already intimidating presence.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2378
+Description: DSC-MATE-2378 is a human female who identifies herself as a beautician. DSC-MATE-2378's physical features include orange stripes on her face, purple lips, blue clown eyes, and a rainbow festival hairstyle. On her forehead, DSC-MATE-2378 wears a pair of goggles. She also possesses a pair of jade earrings and wears a normal gas mask as an accessory.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9166
+Description: Item 9166 is a male robot, and appears to be of human-like design, resembling a real estate agent. It stands at approximately 6 feet tall, and is easily identifiable by its green cyclops eye which is its only eye, retro-style cap, bright red cross earring and silver chain. Item 9166 is also frequently seen smoking cigarettes, despite them being detached from their robotic programming, a highly unusual trait.

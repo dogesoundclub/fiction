@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2144
+Description: DSC-MATE-2144 is a male tiger with a unique set of VR rainbow LED eyes and a red cross earring on its left ear. It is known for its dry sense of humor, often catching people off guard with their deadpan jokes that are surprisingly funny. Despite its humor, it is classified as a Keter-level anomaly mainly because of its violent tendencies towards any human that it encounters.

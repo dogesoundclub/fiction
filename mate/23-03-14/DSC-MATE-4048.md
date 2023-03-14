@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4048
+Description: DSC-MATE-4048 is a robotic security guard, designed and programmed to function as a highly efficient surveillance and protection unit. Its physical appearance consists of a humanoid figure, standing at 6ft tall, clad in a police uniform with a cap on its head, and a silver chain hanging around its neck. The most notable feature of DSC-MATE-4048 is its single, green cyclops eye, which is the primary input/output mechanism of the entity. DSC-MATE-4048 also wears horned rim glasses, and frequently sports a medical mask over its mouth.

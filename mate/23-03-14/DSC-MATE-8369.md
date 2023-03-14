@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8369
+Description: DSC-MATE-8369 is a male Bengal tiger in appearance possessing a green fur, measuring 2.4 meters long and weighing 216 kilograms. The subject has a red victory band around his forehead and a red cross earring on his right ear. He wears a standard medical mask for reasons related to his occupation as a firefighter.

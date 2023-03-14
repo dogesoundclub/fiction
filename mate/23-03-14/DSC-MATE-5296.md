@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5296
+Description: DSC-MATE-5296 is a female human with orange stripes on her face and red clown eyes. She has pig tails and wears a medical mask to cover her mouth. She is often seen wearing a gold chain. DSC-MATE-5296 exhibits a thirst for knowledge and has been known to spend hours researching obscure topics. She is known to collect books, documentaries, and other educational materials. DSC-MATE-5296 is highly intelligent and can be quite passionate about sharing her newfound knowledge with others.

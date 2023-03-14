@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3171
+Description: Subject 3171 is a Caucasian female human with blond hair, green cross earring, and normal glasses. Her most distinctive facial feature is the purple lip she wears at all times, partially concealed behind a medical mask. She can often be seen wearing a gold chain around her neck.

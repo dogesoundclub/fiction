@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1752
+Description: DSC-MATE-1752 is a male monkey, of the species Cebus apella, standing at approximately 1.2 meters and weighing 10 kg. DSC-MATE-1752's most notable facial feature is a permanent expression of fright, with its blue clown eyes perpetually wide open. DSC-MATE-1752 has an unusual accessory on its forehead, a pair of goggles that it tends to wear as a headband.

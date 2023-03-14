@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2691
+Description: DSC-MATE-2691 is a male rabbit standing approximately 1.2 meters tall on its hind legs. Its most distinguishing features are its blue clown eyes, jade earring, and bucket hat. DSC-MATE-2691 typically wears a gold chain, which it asserts is good luck.

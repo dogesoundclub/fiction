@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3464
+Description: DSC-MATE-3464 is a male robotic entity, resembling a train driver. It is 1.75 meters tall and weighs approximately 120 kg. Its most noticeable feature is its green cyclops eye, which is used to detect surroundings and interact with devices.

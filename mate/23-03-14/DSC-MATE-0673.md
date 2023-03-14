@@ -1,0 +1,2 @@
+ID # : DSC-MATE-673
+Description: DSC-MATE-673 is a male rabbit, standing at 15 centimeters in height and weighing approximately 500 grams, being of domesticated origin. It is usually donned in a purple cap with a headset accompanied with horn-rimmed glasses over its large, brown eyes. DSC-MATE-673 also has a red scarf tied around its neck, and a goggle strapped over its forehead. Anomalous properties of DSC-MATE-673 are activated when it makes eye contact with its subject. 

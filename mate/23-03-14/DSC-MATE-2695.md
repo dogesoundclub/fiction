@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2695
+Description: DSC-MATE-2695 is a male monkey with red clown eyes, and a headset with LED, which is believed to be a genetically engineered trait, designed to aid in communication. DSC-MATE-2695 is most commonly found wearing a red scarf, and carrying a candy stick. Despite its genetic voice modulation, DSC-MATE-2695 is easily able to communicate with Foundation personnel.

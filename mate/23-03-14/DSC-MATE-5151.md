@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5151
+Description: DSC-MATE-5151 is a human female in her late 20s, standing at approximately 5'5" (165 cm) in height. DSC-MATE-5151 has a unique appearance, consisting of spots on their face and a trademark red lipstick. Their eyebrows are orange in color, and they wear red cross earrings as their primary form of jewelry. DSC-MATE-5151 commonly wears a silver chain around their neck as an additional accessory.

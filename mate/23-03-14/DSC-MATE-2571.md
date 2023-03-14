@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2571
+Description: DSC-MATE-2571 is a robotic humanoid entity, resembling a male farmer wearing a doge hat. It stands at approximately 2.1 meters in height, weighing approximately 600 kilograms. Its most notable physical feature is the green cyclops eye located in the center of its face. DSC-MATE-2571 possesses an accessory, a whistle, which is believed to be used to control other entities. However, the purpose of the whistle is not fully understood at this time. 

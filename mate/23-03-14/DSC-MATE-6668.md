@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6668
+Description: DSC-MATE-6668 is a human female with spots on her face and purple lips, identified as a news anchor. It wears a medical mask over its mouth and a purple cap with a headset on its head, green cross earring on its ears, and orange eyebrow eyes. DSC-MATE-6668 exhibits empathetic and compassionate behavior, often taking on other people's problems as its own. It has a tendency to feel responsible for fixing everything and everyone around them, which leads to exhaustion.

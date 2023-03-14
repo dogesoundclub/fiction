@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6102
+Description: DSC-MATE-6102 is a female human with orange stripes on its face, giving the appearance of tiger stripes. It has a constant smile, which has been determined to be a natural expression. DSC-MATE-6102 wears normal glasses over its eyes and has green hair with an edge curl that has been observed to be a natural hairstyle. DSC-MATE-6102 also wears a red cross earring on one ear and a choker around its neck.

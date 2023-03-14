@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5253
+Description: DSC-MATE-5253 is a humanoid creature of the human species, specifically a female politician. DSC-MATE-5253 exhibits a number of physical anomalies, including orange stripes on the face, blue clown eyes, and a rainbow festival head. The creature also wears a gold chain and a normal gas mask.

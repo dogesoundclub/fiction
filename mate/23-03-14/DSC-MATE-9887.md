@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9887
+Description: Subject 9887 is a human female with blonde hair often seen wearing an Ushanka and gold earring. Notably, they also wear a choker and cigarette as accessories. The subject exudes a continuous smile, evoking an innocuous appearance. 

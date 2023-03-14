@@ -1,0 +1,2 @@
+ID # : DSC-MATE-194
+Description: DSC-MATE-194 is a human female with unusual physical features. Her face features orange stripes and purple lips. DSC-MATE-194 has blue clown eyes, wears goggles on her forehead and sports a pair of red cross earrings. Her head resembles a pink rabbit, and she wears a silver chain.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4070
+Description: Agent 4070 appears as a humanoid rabbit, standing at approximately 2 feet tall with blue fur and a blue bandana adorning their head. Their long ears are pierced with a gold earring and they often wear a red scarf. Agent 4070's most notable trait is their ability to deliver deadpan jokes that often catch people off guard. Despite their non-threatening appearance, Agent 4070 is to be treated with caution due to their unpredictable and potentially dangerous abilities.

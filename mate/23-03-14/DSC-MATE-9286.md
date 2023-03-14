@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9286
+Description: DSC-MATE-9286 is a Human male in his early thirties. The subject's most noticeable feature is their Metal Purple head. This appearance seems to be permanent and causes no harm to the subject. DSC-MATE-9286 has other visible accessories; Nerd Glasses, a Gold Earring, a Gold Chain, and an LED Gas Mask. DSC-MATE-9286's gas mask has no current scientific explanation for its functionality.

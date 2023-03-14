@@ -1,0 +1,2 @@
+ID # : DSC-MATE-976
+Description: DSC-MATE-976 is a human female with distinct supernatural traits. Its head resembles that of a pink rabbit, with two long ears sporting a jade earring. Orange stripes run across its face, extending from the top of its head down to its chin. DSC-MATE-976 is typically seen wearing a silver chain and smoking a cigarette.

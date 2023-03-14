@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5683
+Description: Subject 5683 is a human female with orange stripes on her face and a striking red lip. Her head is a metallic blue and features a two-color band on her forehead. She has green cross earrings and wears a choker as an accessory. She is a security guard at the facility and is highly organized and strategic in her approach to her work. However, she also possesses a spontaneous side, which occasionally leads to humorous situations.

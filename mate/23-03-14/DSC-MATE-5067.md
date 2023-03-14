@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5067
+Description: Subject 5067 is a male monkey, identified as a farmer. The subject has an unusual appearance, as it wears a hooded sweatshirt and nerd glasses. It is frequently seen wearing a red scarf and smoking a cigarette.

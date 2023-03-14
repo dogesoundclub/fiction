@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5699
+Description: DSC-MATE-5699 is a female human of Caucasian descent with spots on her skin and a smiling face. She has bright blue clown eyes and brown hair that is styled in a 90s fashion. DSC-MATE-5699 has a distinctive two-color band on her forehead and wears a red cross earring. She also wears a silver chain and an LED gas mask.

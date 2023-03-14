@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6906
+Description: DSC-MATE-6906 appears to be a human male in his mid-30s, standing at approximately 6 feet tall. DSC-MATE-6906 typically wears a retro cap, nerd glasses, and a gold earring in one ear. A mouth spot and smile are also notable features of DSC-MATE-6906's face. DSC-MATE-6906 is often seen with a candy stick in his mouth.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5754
+Description: DSC-MATE-5754 is a humanoid robot, 1.8 meters in height, with a distinctive Doge hat placed atop its head. Its mouth displays a permanent expression of fear, while its eyes utilize ski goggles that prohibit eye contact. DSC-MATE-5754 appears to be in full operation and its body appears to be designed for the purpose of social communication.

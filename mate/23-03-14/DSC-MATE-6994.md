@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6994
+Description: DSC-MATE-6994 is a female human of average height and weight. However, DSC-MATE-6994 has unique facial features that include orange stripes on her cheeks and a red lip, as well as blue clown eyes. DSC-MATE-6994 often wears a tiara and a choker accessory. 

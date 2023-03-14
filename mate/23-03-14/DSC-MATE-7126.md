@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7126
+Description: 7126 is a male rabbit of unknown origin. The subject possesses green hair and wears a purple cap. It exhibits a frightened mouth and wears a silver chain. 7126 has a distinctive feature of 2 color band on its forehead and jade earring in its left floppy ear. The subject has been classified as a sentient entity and exhibits signs of intelligence and cognitive ability.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-625
+Description: DSC-MATE-625 is a human female with distinctive purple lips and orange eyebrow eyes. They often wear a hoodie with a 2 color band on their forehead and a choker accessory. Despite their unique appearance, DSC-MATE-625 has shown to be a friendly and easy-going individual. They enjoy making social connections and have a strong sense of harmony towards their fellow beings.

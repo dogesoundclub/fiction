@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1342
+Description: DSC-MATE-1342 is a 35-year-old male human known to many as "Dr. Adventure." Dr. Adventure stands at 6 foot, has an average build and has orange stripes on his face. He is often seen with a smile and wears normal glasses which have been seen to have no anomalous effects.

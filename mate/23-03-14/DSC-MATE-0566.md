@@ -1,0 +1,2 @@
+ID # : DSC-MATE-566
+Description: 566 appears as a humanoid robot with a Doge hat over its head and ski goggles as eyes. An external analysis revealed that 566 is powered through a unique and potentially infinite power source from an unknown origin. It carries a whistle with it at all times, which, when blown, has been reported to have disorienting effects on those within earshot.

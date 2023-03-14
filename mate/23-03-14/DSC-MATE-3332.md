@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3332
+Description: DSC-MATE-3332 is a male rabbit of average height and build, with distinctive gold earrings and a silver chain around its neck. It is known to wear a bucket hat and normal glasses, with a goggle on its forehead and an LED gas mask as extra accessories. The reason for these items is unknown, and DSC-MATE-3332 has shown no adverse reactions when questioned about them.

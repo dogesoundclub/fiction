@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7579
+Description: Subject 7579 is a male human with orange stripes adorning his face. He has nerdy glasses over his eyes and sports an unruly green hairdo that is never arranged. A pair of goggles often rests on his forehead, which he uses as an accessory rather than protective gear. He is a banker by trade and his species is unremarkable.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4290
+Description: DSC-MATE-4290 is a male simian, estimated to be between six and eight years of age. DSC-MATE-4290 exhibits a number of humanoid traits, including the ability to stand upright, opposable thumbs, and a high degree of dexterity.

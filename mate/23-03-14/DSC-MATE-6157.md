@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6157
+Description: DSC-MATE-6157 is a male monkey, standing at 5 feet tall when in a standing position. Its body is covered in short brown fur, except for its face and hands which are hairless. DSC-MATE-6157 has two red clown eyes, which have been surgically implanted. The subject's head is adorned with green hair and a purple cap. It also has a goggle on its forehead and jade earring on each ear. Additionally, DSC-MATE-6157 can be seen wearing a gold chain as an accessory.

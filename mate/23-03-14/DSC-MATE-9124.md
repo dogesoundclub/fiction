@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9124
+Description: DSC-MATE-9124 is a humanoid entity identified as a female human, age 34. DSC-MATE-9124's distinguishing features include orange stripes on the face, blue clown eyes, green hair in a purple cap, and a red cross earring on each ear. DSC-MATE-9124 has a two-color band on the forehead and wears a silver chain as an accessory.

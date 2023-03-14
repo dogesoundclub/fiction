@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5580
+Description: Subject 5580 is a humanoid male approximately 6'2" in height. The subject is easily identifiable through the presence of unusual spots on the skin tissue, along with a police cap resting atop their head. Further facial features include a goggle attached to their forehead, and normal glasses. The subject also appears to wear a pair of green cross earrings in the shape of a medic's symbol. 

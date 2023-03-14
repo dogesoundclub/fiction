@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1077
+Description: 1077 appears to be an ordinary human male in their early 40s, with a mouth spot and a charming smile. They wear normal glasses over their green eyes, often accompanied by a bucket hat and a gold chain. It is noted that 1077 also habitually smokes cigarettes.

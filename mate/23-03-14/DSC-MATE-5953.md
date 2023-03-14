@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5953
+Description: Subject 5953 appears to be a human male, approximately 35 years of age, with distinctive facial features. The subject’s most notable characteristic is the orange stripes that run across their face, giving them a tiger-like appearance. Their face is usually adorned with a friendly smile, revealing white, diamond-shaped teeth. 5953’s eyes are cybernetic, with VR Jade LED technology, capable of analyzing, enhancing, and recording visual data.

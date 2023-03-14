@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2229
+Description: DSC-MATE-2229 is a sapient rabbit with a height of 1 meter that possessed a mechanical expertise equivalent to a high school degree level. DSC-MATE-2229 presents itself as a male wearing a police cap with ordinary glasses, a red scarf and a candy stick in its possession. The creature is also known for its stubborn nature and reliance on its everyday routines.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1395
+Description: DSC-MATE-1395 appears to be a male human in his mid-thirties, with an unusual set of physical attributes. The subject possesses a set of red clown eyes, a peak spike protruding from the top of his head, and a jade earring in each earlobe. His most distinctive feature, however, is a large, circular spot on the left side of his mouth.

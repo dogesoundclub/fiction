@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3492
+Description: Jinx is a male monkey, approximately 3 feet tall with a retro cap on his head and a gold chain around his neck. His eyes are a creepy red, similar to that of clown eyes, and his mouth is often found in a frightened position. Jinx also sports a jade earring on one of his ears and is often seen smoking a cigarette.

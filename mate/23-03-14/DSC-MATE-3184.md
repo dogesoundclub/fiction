@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3184
+Description: DSC-MATE-3184 is a human male with unique and anomalous physical characteristics. DSC-MATE-3184's face features orange stripes, ski goggle-like eyes, a pink parted head, and a medical mask covering its mouth. Additionally, DSC-MATE-3184 has a goggle attached to its forehead and a green cross earring on both ears. DSC-MATE-3184 is often seen wearing a red scarf around its neck. Despite its abnormal appearance, DSC-MATE-3184 is capable of functioning as a standard human being in all aspects.

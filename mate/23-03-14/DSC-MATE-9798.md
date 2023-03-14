@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9798
+Description: 9798 is a male rabbit with bright red clown-like eyes and a distinctively quirky sense of humor. Dressed in a bucket hat and jade earring, he often dons a red scarf around his neck, which creates a striking appearance. Despite his appearance, 9798 is known for being analytical and astute in his work as a mechanic, demonstrating a keen attention to detail.

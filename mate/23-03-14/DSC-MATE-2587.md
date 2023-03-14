@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2587
+Description: Object 2587 appears to be a male robot in the form of a Doctor, with normal glasses covering his eyes and wearing a police cap on his head. The object's unique identifier is a Red Cross Earring in one of its ears, and it always carries a whistle as an accessory. Object 2587 shows great interest in art and other creative pursuits, which can manifest in hobbies such as writing poetry, creating cosplay costumes, or collecting unusual objects.

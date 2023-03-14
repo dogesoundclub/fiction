@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1933
+Description: 1933 appears to be a male monkey with a parted pink head, horned-rimmed glasses for eyes, and a frightened mouth. The forehead features two color bands, and it wears a silver chain around its neck, and a normal gas mask as an accessory.

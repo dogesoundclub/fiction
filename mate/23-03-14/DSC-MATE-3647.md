@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3647
+Description: DSC-MATE-3647 appears to be a male primate of the species Macaca mulatta, often referred to as a Rhesus Monkey. In terms of physical traits, DSC-MATE-3647 exhibits normal black hair on its head, and red clown eyes, with a frightened mouth. DSC-MATE-3647 is particularly fond of candy sticks, which it is often seen holding in its hand.

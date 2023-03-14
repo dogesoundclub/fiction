@@ -1,0 +1,2 @@
+ID # : DSC-MATE-6913
+Description: DSC-MATE-6913 is a young adult female of the human species. DSC-MATE-6913 works as a fast food worker and has displayed no anomalous abilities. DSC-MATE-6913's most prominent physical feature is the presence of orange stripes appearing on the left side of her face. Additionally, DSC-MATE-6913's lips appear purple in color. DSC-MATE-6913's head is orange in color and her ears have green cross earrings. DSC-MATE-6913 can usually be seen wearing a medical mask and a choker.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1992
+Description: Identification number 1992 is a human male bearing orange stripes on their face. They possess the curious ability to generate humor in both themselves and those around them. These occurrences often manifest in the form of witty comments, jokes, or humorous situations they intentionally or unintentionally create. Their eyes are marked by nerd glasses, and they wear a purple cap with a headset and a silver chain.

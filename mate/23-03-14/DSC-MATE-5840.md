@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5840
+Description: 5840 is a male tiger, standing at 2.5m tall and weighing approximately 300kg. 5840 exhibits distinctive features such as green hair in purple cap, gold earrings attached to his ears, and a medical mask covering his mouth. In addition, 5840 is often seen wearing a gold chain around his neck. Despite its appearance, 5840 exhibits human-like intelligence and communication skills. 

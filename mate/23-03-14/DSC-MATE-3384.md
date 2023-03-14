@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3384
+Description: DSC-MATE-3384 is a female humanoid identified by her iconic red lips, blue clown eyes, and metal blue head. She has adorned herself with various accessories, including a red cross earring, choker, and cigarette. DSC-MATE-3384's love for adventure has led her to engage in dangerous and life-threatening activities on numerous occasions. Despite these risks, she has displayed a remarkable ability to survive and continue her escapades.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-327
+Description: DSC-MATE-327 appears to be a human female in her late twenties, with orange stripes and a red lip on her face. The subject's eyes are blue and resemble those of a circus clown, and her head features a rainbow festival design. On the forehead, DSC-MATE-327 has a two-color band and a goggle, which the subject has stated helps her manage the theater.

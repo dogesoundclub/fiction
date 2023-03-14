@@ -1,0 +1,2 @@
+ID # : DSC-MATE-650
+Description: Officer 650 is a male human police officer, approximately 35 years old. His face features a prominent frightened mouth that often gives the impression that he is worried or fearful. He is commonly seen wearing a doge hat as a form of stress relief. His medical mask is worn not only for protection, but also as a way to hide facial expressions that could indicate his emotional state.

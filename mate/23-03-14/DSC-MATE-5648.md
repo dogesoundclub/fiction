@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5648
+Description: DSC-MATE-5648 is a car salesman of human origin. DSC-MATE-5648's facial features are characterized by orange stripes, which are of unknown origin, and a permanent smile. DSC-MATE-5648's eyes are covered by a pair of normal glasses, and DSC-MATE-5648 often wears a hoodie with a red scarf as an accessory. DSC-MATE-5648's mouth is covered by a medical mask, although its purpose of wearing is unclear.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1681
+Description: DSC-MATE-1681 is a humanoid rabbit approximately 1.5 meters tall, wearing a gray hoodie over its head. It appears to be a furry creature with slightly pointed ears and whiskers. The subject is male and is often seen smoking a cigarette.

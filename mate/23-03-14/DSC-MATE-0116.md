@@ -1,0 +1,2 @@
+ID # : DSC-MATE-116
+Description: DSC-MATE-116 is a female human farmer with distinctive orange stripes on her cheeks and a purple lipstick. She wears normal glasses and an early 2000s schoolgirl headwear. One earring is a jade accessory, while the other is a miniature LED gas mask fitted over the ear. Additionally, she wears a gold chain around her neck. Although DSC-MATE-116 exhibits no apparent anomalous properties, she is to be contained to prevent any unauthorized and potentially harmful exploits by human or non-human entities.

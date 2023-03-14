@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1313
+Description: DSC-MATE-1313 is a male human, approximately 35 years of age, with a peak spike hairstyle and blue clown eyes. DSC-MATE-1313 is often seen wearing a gold chain and an LED gas mask. DSC-MATE-1313's most prominent feature is his constant smile, which has proven to be impervious to alteration or force. DSC-MATE-1313 often exudes an aura of positivity, which has been noted to have a calming effect on those around him.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5809
+Description: DSC-MATE-5809 is a human male train driver with a distinctive appearance. DSC-MATE-5809 has a spotted face and red clown eyes. DSC-MATE-5809's hair is blonde and of standard length for males. DSC-MATE-5809's forehead features a two-color band and goggles. DSC-MATE-5809 frequently wears a silver chain and carries a candy stick.

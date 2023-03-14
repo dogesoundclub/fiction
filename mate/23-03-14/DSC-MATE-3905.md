@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3905
+Description: DSC-MATE-3905 is a sapient tiger of Indian origin that manifests as a male human in his late 30s. DSC-MATE-3905 wears a doge hat on his head and a red cross earring in his left ear. DSC-MATE-3905's face has a frightened appearance, with normal glasses framing his eyes, and a red scarf around his neck.

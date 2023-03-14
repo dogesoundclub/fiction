@@ -1,0 +1,2 @@
+ID # : DSC-MATE-3110
+Description: 3110 is a female human with distinctive spots on her face and purple-colored lips. Her eyes are an unusual blue tone with a clown-like appearance. The subject often wears a hoodie and a gold chain around her neck. Although her appearance is unique, there are no anomalous properties associated with it.

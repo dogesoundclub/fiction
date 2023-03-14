@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4330
+Description: Subject 4330 is a 29-year-old female, designated as a human. She stands at approximately 1.7m tall and weighs around 58kg. Subject 4330 works as a beautician and wears a medical mask almost at all times. Her face features orange stripes, purple lip, and orange eyebrow, giving her a unique look. The subject's head is styled in pig-tails, and she often wears goggles on her forehead. She also wears a silver chain around her neck.

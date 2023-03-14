@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4026
+Description: Item 4026 appears to be a female human of average height and build, with orange stripes on her face and a wide smile. The most distinctive feature of Item 4026 is her VR Rainbow LED eyes, which can display a range of colors and patterns. Her 90s brown hair is often styled in a messy bun or ponytail, and she always wears a pair of goggles on her forehead. She also wears a red cross earring and a black choker.

@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2038
+Description: DSC 2038 appears to be a human female, with distinct facial features including orange stripes and purple lips. The subject's eyes have a bright blue color resembling that of a clown. Her green hair is frequently styled in a purple cap, with two colored bands across her forehead and goggles resting on top of her forehead. Subject is frequently seen wearing a gold chain as an accessory.

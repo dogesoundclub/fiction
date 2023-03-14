@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9659
+Description: DSC-MATE-9659 is a human male of average height and weight, with a distinctive mouth spot located on the left side of their upper lip. The subject is typically seen wearing a customized doge hat and a two-color band across their forehead. DSC-MATE-9659, a theater manager by profession, is known for their no-nonsense attitude and their love for tradition. 

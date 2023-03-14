@@ -1,0 +1,2 @@
+ID # : DSC-MATE-8154
+Description: DSC-MATE-8154 is a human male with orange stripes on his face, likely a result of the use of a cosmetic application. His most distinctive feature is the LED gas mask he wears, which makes it impossible to identify his facial features. He has green hair under a purple cap and wears a gold chain around his neck. He also wears normal glasses.

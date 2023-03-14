@@ -1,0 +1,2 @@
+ID # : DSC-MATE-4190
+Description: Subject 4190 is a male human, with bright orange stripes on his face. Subject prefers to wear hoodies that conceal his identity which, along with his medical mask, makes distinguishing facial features difficult. Despite his unremarkable appearance, subject exhibits a highly adventurous personality, often taking incredible risks on a whim. Such impulsiveness has led to several humorous situations, such as jumping off cliffs into lakes and rivers.

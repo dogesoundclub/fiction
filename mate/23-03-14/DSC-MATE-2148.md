@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2148
+Description: DSC-MATE-2148 is a bipedal monkey, standing approximately 1.2 meters in height. DSC-MATE-2148’s head is covered with a hooded sweatshirt, with its eyes behind horn-rimmed glasses. DSC-MATE-2148’s forehead features a two-color band, and it typically accessorizes itself with a silver chain and whistle.

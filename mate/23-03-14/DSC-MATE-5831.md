@@ -1,0 +1,2 @@
+ID # : DSC-MATE-5831
+Description: Subject 5831 is a male human with a unique set of facial features, including a prominent mouth spot and a frightened mouth. The eyes resemble ski goggles and the head is adorned with a blue bandana. The subject's ears are pierced and adorned with a gold earring. The mouth is usually covered by a medical mask, which is theorized to help conceal the subject's identity.

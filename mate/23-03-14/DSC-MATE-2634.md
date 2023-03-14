@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2634
+Description: DSC-MATE-2634 is a sentient rabbit of unknown breed, standing at approximately 3 feet tall on its hind legs. Its fur is predominantly green in color, and its frightened mouth makes it appear as though it is in a perpetual state of agitation. DSC-MATE-2634 has no discernible eyes, although it is capable of seeing its surroundings and navigating complex environments. 

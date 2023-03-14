@@ -1,0 +1,2 @@
+ID # : DSC-MATE-21
+Description: Subject 21, also known as the Traffic Officer, is a human female, possibly of Asian descent, standing at 5'4" and weighing around 120 lbs. Its most notable feature is its head covered with a hoodie, which is black in color and obscures most of its face. The subject often wears a silver chain around its neck and carries a normal gas mask as an accessory.

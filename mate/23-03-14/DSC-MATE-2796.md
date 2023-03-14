@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2796
+Description: Subject 2796 is a Caucasian male with spotted facial features. The subject's hair is parted in a pink hue, and they wear a medical mask over their mouth. They have VR Jade LED eyes, and a jade earring in each ear. Subject 2796 often wears a gold chain as an accessory.

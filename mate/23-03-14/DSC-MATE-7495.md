@@ -1,0 +1,2 @@
+ID # : DSC-MATE-7495
+Description: Item 7495 appears to be a male monkey of the Macaca genus, with red clown eyes and a frightened mouth. Its head is covered by a hoodie, and its forehead features a two-color band. Item 7495 is highly intelligent and possesses proficiency in computer programming. It is able to communicate effectively with humans using a rudimentary form of sign language.

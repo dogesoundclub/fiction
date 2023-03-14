@@ -1,0 +1,2 @@
+ID # : DSC-MATE-215
+Description: DSC-MATE-215 is a humanoid robot standing at approximately 1.8 meters in height. Its body is primarily made of metal, and its face features a single green Cyclops eye. DSC-MATE-215's eyes are protected by horned rim glasses, and its head is covered with a bucket hat. DSC-MATE-215's ears have been modified with a red cross earring, and it adorns a silver chain around its neck. DSC-MATE-215's use of a normal gas mask is not necessary but is considered its preferred accessory.

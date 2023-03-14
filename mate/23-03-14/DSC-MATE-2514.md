@@ -1,0 +1,2 @@
+ID # : DSC-MATE-2514
+Description: Item #2514 is a male rabbit of an unidentified species. Its appearance is relatively normal, except for its frightened mouth and ski goggle eyes. It also wears a goggle on its forehead and a gold earring on one of its ears, which it claims to be a lucky charm. Additionally, it carries around a candy stick as a comfort item.

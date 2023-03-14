@@ -1,0 +1,2 @@
+ID # : DSC-MATE-1414
+Description: Subject 1414 is a male humanoid of average size and weight, identified as a politician within mainstream society. It possesses a distinct physical appearance, including a purple cap with an attached headset worn over virtual reality jade LED eyes. Additionally, the subject displays a gold earring and wears a LED gas mask as an accessory.

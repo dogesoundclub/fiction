@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9816
+Description: Subject 9816 is a male human with ski goggle eyes and a medical mask covering his mouth, giving a slightly unnerving appearance. His frightened mouth often adds to his overall anxious disposition. However, what is truly unusual about this subject is his ability to connect with others on a deep level. His trademark charisma often leads to people opening up about their life stories, sharing funny anecdotes, or forming a deeper bond with the subject.

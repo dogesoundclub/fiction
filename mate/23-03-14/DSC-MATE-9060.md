@@ -1,0 +1,2 @@
+ID # : DSC-MATE-9060
+Description: Item #9060 is a female human of average height and build with distinctive features. Most notably, she possesses orange stripes on her face and wears purple lipstick. Her head is not arranged in a typical manner, instead appearing to grow in a random and disorganized manner, often featuring multi-colored bands across her forehead. She wears normal glasses and a red cross earring on each ear. Additionally, she has been observed wearing a gold chain and a standard gas mask as accessories.

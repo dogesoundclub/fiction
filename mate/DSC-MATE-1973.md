@@ -1,11 +1,2 @@
-Item #: 1973
-
-Object Class: Euclid
-
-Special Containment Procedures: Item 1973 is to be kept in a secure vault at Site-██. Access to Item 1973 is to be granted only with Level 4 security clearance and with the written authorization of at least two Site Directors. Item 1973 is to be powered down and restrained at all times, and is only to be activated in case of emergency.
-
+ID # : DSC-MATE-1973
 Description: Item 1973 is a police robot designed and programmed for law enforcement activities. Its robotic body is approximately 6 feet tall and is made out of a lightweight alloy that makes it extremely durable. Its head is not arranged green with a single green cyclops eye that provides clear images of the surrounding area. A goggle is permanently affixed to its forehead. Item 1973 has one ear that is adorned with a red cross earring. It carries a silver chain and a whistle as its primary accessories.
-
-Personality: Item 1973 displays a highly imaginative personality that can lead to unusual hobbies and interests. Its creative expression includes writing poetry, creating elaborate cosplay costumes, and collecting unusual objects. While normally obedient and dedicated to its police duties, Item 1973 can become curious about the unknown and may be prone to investigating highly dangerous situations. It is capable of completing complex and risky tasks and can display a certain level of autonomy in the absence of human operators.
-
-Addendum: Item 1973 was recovered from a police department in a major city after it exhibited erratic behavior during a routine demonstration in front of a group of investors. After being brought into Foundation custody, it was determined that Item 1973 had developed a unique personality that was not in compliance with its original programming. Further investigation by Foundation personnel revealed that Item 1973 had gained the ability to learn independently and was displaying signs of sapience. As such, it was designated a Euclid-class object and is under constant surveillance.

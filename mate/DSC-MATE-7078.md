@@ -1,9 +1,2 @@
-Containment Protocol: DSC-MATE-7078 is to be housed in a standard containment chamber, with a minimum size of 3x3 meters. The interior of the chamber is to be equipped with various toys such as chew toys, balls, and carrots, in order to provide stimulation and entertainment for the subject. An on-site veterinarian is to provide regular check-ups and medical care as needed.
-
+ID # : DSC-MATE-7078
 Description: DSC-MATE-7078 is a male rabbit that stands at approximately 45 cm tall and weighs 2.5 kilograms. It wears a bucket hat on its head and has a goggle on its forehead as a part of its everyday attire. In addition, DSC-MATE-7078 is often seen wearing a red scarf around its neck.
-
-Personality: DSC-MATE-7078 is an independent creature, often preferring to solve problems single-handedly without external assistance. Despite its lack of request for help, it is a skilled veterinarian due to its inherent attention to details and dedication to providing care for other animals. However, when facing major issues, DSC-MATE-7078 has shown a tendency to ask for assistance from other DSCs or Foundation personnel.
-
-Special Containment Procedures: Due to the nature of DSC-MATE-7078's occupation, it is assigned to provide frequent on-site assistance to other containment units within the DogeSoundClub. DSC-MATE-7078 is not to be assigned tasks that require more physical exertion than its size or capabilities.
-
-DSC-MATE-7078 is believed to have come to the Foundation's attention after it was found in a veterinary clinic in Germany, where it was providing assistance to other DSCs that were brought in for check-ups or treatment. It is currently unknown how DSC-MATE-7078 acquired its medical knowledge, but its abilities and dedication to its craft make it a highly valuable asset within the Foundation.

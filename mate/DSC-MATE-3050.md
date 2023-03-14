@@ -1,7 +1,2 @@
-Item #: 3050
-
-Special Containment Procedures: Currently, there are no containment procedures in place for subject 3050 as they pose no threat to the Foundation or to civilization that we know of.
-
+ID # : DSC-MATE-3050
 Description: Subject 3050 is a human male with a unique appearance. They have several spots on their face and a charming smile that can put anyone at ease. 3050 also wears nerd glasses that cover their curious green eyes. Their head is adorned with green hair peeking out from a purple cap, and their ears decorated with a cross-shaped green earring. Subject 3050 frequently wears a medical mask over their mouth to protect themselves and others from respiratory diseases. They can often be seen wearing a silver chain around their neck as an accessory.
-
-Personality: Subject 3050 has a passion for knowledge and an insatiable thirst for learningnew things. They spend a considerable amount of time reading books and researching obscure topics. In addition, they enjoy collecting documentaries and other educational material to satisfy their endless curiosity. Subject 3050 is highly enthusiastic about sharing what they have learned with others, especially on their live news broadcasts. This broadcasts allow them to reach a wider audience to share their findings, hoping to inspire and teach others, just as they themselves were once inspired.

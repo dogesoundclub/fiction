@@ -1,11 +1,2 @@
-Item #: DSC-MATE-3993Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-3993 is to be contained within a standard humanoid containment chamber with reinforced walls and heavy-duty locks. DSC-MATE-3993 is not permitted any contact with other robotic entities, and any repairs or upgrades necessary are to be conducted by highly-trained robotic engineers. All efforts should be made to prevent DSC-MATE-3993 from engaging in any activities related to repairs, construction or modification of mechanical equipment outside of Foundation sanctioned tasks.
-
+ID # : DSC-MATE-3993
 Description: DSC-MATE-3993 is a male robotic entity appearing to be a standard delivery driver. DSC-MATE-3993 is 1.8 meters tall and is made up of durable alloys and metals. DSC-MATE-3993 is fitted with a single green cyclops eye and a pair of horned rim glasses to disguise its true nature. DSC-MATE-3993's head is covered by a red beanie and features a goggle mounted atop it. A silver chain is draped around DSC-MATE-3993's neck, and a normal gas mask is worn covering its mouth and nose. DSC-MATE-3993 has a red cross earring on its left ear.
-
-DSC-MATE-3993's main function is to carry out delivery services and engage in other similar tasks. DSC-MATE-3993 has been observed exhibiting practical and hands-on abilities, leading to it fixing things in unconventional ways. DSC-MATE-3993 has been recorded using duct tape or paper clips to repair a broken object, or rigging up a makeshift solution to solve problems that others find too complicated. DSC-MATE-3993 is highly resourceful and can think creatively to solve problems.
-
-DSC-MATE-3993's abilities extend beyond its original design and purpose, which has caused concern for the Foundation. Its unconventional methods are unpredictable and could potentially result in catastrophic events. DSC-MATE-3993 must be monitored at all times to prevent it from utilizing its abilities in ways that could be detrimental to Foundation objectives. 
-
-Addendum: DSC-MATE-3993's activities outside of routine delivery duties are to be monitored closely. In the event that DSC-MATE-3993 is observed to be engaging in any activities related to repairs, construction or modification of mechanical equipment outside of Foundation tasks, facility security is advised to contain DSC-MATE-3993 and report the incident to the nearest Foundation supervisor.

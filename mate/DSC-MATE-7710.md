@@ -1,9 +1,2 @@
-DogeSoundClub Classification: Euclid
-
-Special Containment Procedures: DSC-MATE-7710 has been successfully integrated into human society and is currently employed as a lawyer in a reputable firm. Her identity and non-anomalous capabilities are to be kept strictly confidential. Any discovery of her anomalous properties is to be reported immediately to the Foundation.
-
+ID # : DSC-MATE-7710
 Description: DSC-MATE-7710 is a female human with unusual cybernetic enhancements. At all times, her eyes emit a constant rainbow LED glow, which can change color depending on her emotions. Her head is dyed green, with hair styled in edgy curls. An unusual feature on her forehead is a pair of functional goggles, which have displayed various computational abilities. DSC-MATE-7710 also wears a silver choker which she claims is sentimental.
-
-Personality: DSC-MATE-7710 displays an interesting personality that balances a methodical nature with a spontaneous streak. She has shown to have excellent organization skills and is enthusiastic about planning activities and events. Despite this, DSC-MATE-7710 exhibits an adventurous side, surprising her associates with impromptu escapades and successful last-minute party planning. While DSC-MATE-7710 seems entirely capable of functioning normally in society, it is unknown how her anomalous abilities are a component of her personality. 
-
-Addendum: DSC-MATE-7710 initially came to the Foundation's attention when she was accused of tampering with a trial using her anomalous goggles. Investigations revealed the equipment's capabilities of analysis and manipulation, making DSC-MATE-7710 a potential threat to the justice system. MTF units were successful in extracting DSC-MATE-7710 under the guise of protective custody, and she was offered a specialized position within the Foundation. DSC-MATE-7710 demonstrated enough value to Foundation operatives to secure her release under strict supervision.

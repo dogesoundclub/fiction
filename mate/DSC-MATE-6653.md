@@ -1,13 +1,2 @@
-Item #: DSC-MATE-6653
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-6653 is to be kept in a standard humanoid containment cell at all times, with all access points double locked and security personnel posted outside. All instances of DSC-MATE-6653-1 (see Addendum 6653-A) that are present on DSC-MATE-6653 must be removed before entering the containment cell. DSC-MATE-6653 is to be provided with standard issue clothing, as well as an extra-large red scarf, which it has expressed a strong desire to possess. The scarf must be replaced with a new one every six months due to wear and tear.
-
+ID # : DSC-MATE-6653
 Description: DSC-MATE-6653 is a male monkey of the species Macaca fascicularis, standing approximately 120 cm tall (including its tail). It has been modified with a cybernetic implant in its forehead, which allows it to display VR Rainbow LED patterns and images. Additionally, DSC-MATE-6653 has an electronic goggle strapped to its forehead, which has various functions such as magnifying its vision and detecting different wavelengths of light. DSC-MATE-6653 wears an earring made of gold in its left ear.
-
-DSC-MATE-6653 has been modified from its original form to serve as a traffic officer. It is capable of speaking English and is familiar with basic traffic laws and regulations. DSC-MATE-6653 is a diligent worker and takes its job seriously, directing traffic with efficiency and precision. It has been observed to be very analytical and logical, often engaging in debates and arguments with its handlers and others for fun. DSC-MATE-6653 enjoys intellectual challenges and relishes in proving others wrong.
-
-Addendum 6653-A: DSC-MATE-6653 displays a unique anomalous effect where any item it touches, including clothing, will become an instance of DSC-MATE-6653-1. DSC-MATE-6653-1 is any object that is imbued with various primate-like qualities such as a strong grip, heightened agility, and opposable thumbs. The effect is temporary, with objects returning to their original state after a few hours. DSC-MATE-6653 is currently the only known source of DSC-MATE-6653-1 instances, and their creation is random and uncontrollable.
-
-Note from Dr. [REDACTED]: Further study on the effects of DSC-MATE-6653-1 may prove beneficial in developing more advanced prosthetic limbs or robotics technology. This could have significant implications for the field of prosthetics and may even lead to the development of fully functional cybernetic limbs for humans. Continued research on DSC-MATE-6653 and the effects of its modifications and augmentations is recommended.

@@ -1,11 +1,2 @@
-Item #: 4373
-
-Object Class: Euclid
-
-Special Containment Procedures: Subject 4373 is to be contained in a standard humanoid containment chamber, with reinforced walls and a ventilation system designed to filter out chemicals produced by the subject's cigarette smoking. Access to any financial accounts under the control of 4373 must be monitored at all times to prevent unauthorized transactions. Interaction with 4373 must be conducted through a secure communication system, with prior approval from at least one Level 3 personnel.
-
+ID # : DSC-MATE-4373
 Description: Subject 4373 is a humanoid female of the Homo Sapiens species, standing at 170 centimeters tall and weighing approximately 65 kilograms. The subject's distinguishing features include orange stripes on the face and a broad smile, both of which are painted on the subject's face. The eyes of subject 4373 are replaced by blue clown lenses that appear to glow in low-light environments. Subject 4373 wears a purple cap with a headset attached to it, and a gold earring on the right ear. The subject is often seen with a cigarette in hand, which is believed to be used to regulate serotonin levels in the subject's brain.
-
-Subject 4373 displays highly energetic and enthusiastic behavior, and enjoys getting others excited about her interests. This can result in some humorous situations, such as becoming overly excited about topics that others find uninteresting. The subject's unique mannerisms in her profession as a banker have led to her being highly successful in the field, due to her ability to persuade others easily.
-
-Addendum 4373-A: On ██/██/20██, subject 4373 used her persuasive abilities to gain access to several high-value financial accounts and transferred the funds to an offshore account. The incident was discovered after a routine audit and 4373 was detained for questioning. During the interview, the subject revealed that she had been approached by a group of entities claiming to be from another dimension, promising her wealth and power in exchange for her services. The investigation is ongoing.

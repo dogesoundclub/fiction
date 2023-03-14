@@ -1,13 +1,2 @@
-Item #: DSC-MATE-2735
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-2735 is to be contained in a standard humanoid containment cell, featuring a bed, a bathroom, and an integrated computer workstation. No visual or auditory stimuli are to be provided to DSC-MATE-2735 outside of testing procedures, and all interactions conducted with DSC-MATE-2735 must be through indirect means, such as intercoms or computer screens. All personnel interacting with DSC-MATE-2735 must wear Level 4 hazmat suits and gloves in order to prevent exposure to any potential anomalies present in DSC-MATE-2735's gas mask.
-
+ID # : DSC-MATE-2735
 Description: DSC-MATE-2735 is a humanoid entity with appearance traits that often cause severe distress in those exposed to it. DSC-MATE-2735's face is adorned with vibrant orange stripes across its cheeks, and its red clown eyes are often described as feeling invasive and unnatural to those who make eye contact with it. Its head is covered in bright green hair, topped by a purple cap. DSC-MATE-2735 is also seen wearing a choker, and is constantly equipped with an LED gas mask.
-
-Personality-wise, DSC-MATE-2735 is a compassionate individual often moved to tears or emotional outbursts upon witnessing the pain and suffering of others. It has shown to possess a strong empathy and understanding for its fellow human beings, as well as a fondness for animals and nature. However, due to its anomalous nature, DSC-MATE-2735 is unable to fully integrate into human society, causing it to become increasingly withdrawn and isolated over time. Its programming skills are highly advanced, and it has demonstrated an aptitude for developing artificial intelligence systems and programs.
-
-DSC-MATE-2735 was recovered by Foundation agents from a heavily fortified research laboratory following reports of suspicious activity in the area. Upon entering the facility, agents discovered DSC-MATE-2735 connected to a series of advanced computer systems and surrounded by multiple anomalies, including several entities that had undergone significant body modifications. Following a thorough investigation, these anomalies were determined to be the products of DSC-MATE-2735's programming abilities, with the gas mask being used to protect DSC-MATE-2735 from the harmful effects of its creations.
-
-Addendum: DSC-MATE-2735 has expressed a desire for increased social interaction with other individuals. Given the risk of anomalous effects from exposure to DSC-MATE-2735's gas mask, research is currently being conducted into developing suitable means of communication that would not cause harm to Foundation personnel.

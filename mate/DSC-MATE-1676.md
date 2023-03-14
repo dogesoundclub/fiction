@@ -1,11 +1,2 @@
-Item #: DSC-MATE-1676
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-1676 is to be contained in a standard humanoid containment chamber at Site-██. Access to DSC-MATE-1676 is only granted to Level 2 personnel or higher with the approval of the current Site Director. DSC-MATE-1676 is to wear a medical mask at all times when outside of her containment chamber to prevent the spread of potential infectious diseases. Under no circumstances is DSC-MATE-1676 to be allowed access to any electronic devices or internet connectivity due to the anomalous properties of her eyes.
-
+ID # : DSC-MATE-1676
 Description: DSC-MATE-1676 is a human female of average height and weight, with facial features distinguished by a skin condition that manifests as various spots on her face. DSC-MATE-1676's lips are consistently a bright red color. DSC-MATE-1676's eyes have been replaced with VR Rainbow LED lenses, which allow her to display an array of bright colors and patterns and have been reported to be hypnotic in nature. DSC-MATE-1676's head is adorned with various items commonly found at a rainbow festival. A pair of goggles is commonly seen resting atop DSC-MATE-1676's forehead. DSC-MATE-1676's ears are accented with large, gold earrings in the shape of peace signs. DSC-MATE-1676 speaks fluently in English and displays no distinguishing accent.
-
-The most significant and potentially dangerous aspect of DSC-MATE-1676 is the anomalous properties of her eyes. It is hypothesized that the lenses allow DSC-MATE-1676 to manipulate electromagnetic frequencies and possibly transmit her thoughts in the vicinity of the device. Foundation researchers suspect that DSC-MATE-1676's VR Rainbow LED lenses may have caused some individuals to experience hallucinations and/or altered states of consciousness upon prolonged exposure, emphasizing the importance of maintaining DSC-MATE-1676's Standard Containment Procedures.
-
-Addendum: DSC-MATE-1676's outgoing and humorous personality has been a welcome distraction to Foundation staff who spend time with her. DSC-MATE-1676 often recounts humorous stories and engages in silly impersonations. Researchers operating in the vicinity of DSC-MATE-1676 have reported improvements in overall morale and a decrease in workplace stress, possibly due to DSC-MATE-1676's natural ability to lighten the mood. However, Foundation personnel must remind themselves that DSC-MATE-1676's anomalous properties must be respected and not taken for granted, leading to dangerous and unforeseen consequences.

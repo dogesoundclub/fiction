@@ -1,9 +1,2 @@
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-5057 is to be monitored at all times and located within a designated containment chamber. All interactions with DSC-MATE-5057 must be carried out by personnel wearing full protective gear, including gas masks, due to the risk of contamination from DSC-MATE-5057's unique facial features. Medical staff should be on standby in the event of any sudden changes in DSC-MATE-5057's physical or mental health.
-
+ID # : DSC-MATE-5057
 Description: DSC-MATE-5057 is a male human of unknown age with a distinct appearance. DSC-MATE-5057 has several spots on their face, which appear to be a natural feature. DSC-MATE-5057 is often seen wearing a retro cap and a jade earring, which further adds to their unique appearance. Their most distinctive feature, however, is their red clown eyes, which are unsettling to those who are not accustomed to them.
-
-DSC-MATE-5057's personality is described as absent-minded and forgetful, which can lead to some humorous situations. However, it is important to note that DSC-MATE-5057's forgetfulness can also be dangerous, particularly when it leads to the forgetting of important appointments or events. DSC-MATE-5057 works as a lawyer, which requires a high level of attention to detail and careful consideration of information, making their forgetfulness a cause for concern.
-
-Despite DSC-MATE-5057's unique appearance and forgetful nature, there is currently no evidence to suggest that they pose any supernatural or anomalous threat. However, given their unique appearance and profession, it is recommended that DSC-MATE-5057 be kept under close observation for any potential future anomalies.

@@ -1,13 +1,2 @@
-Item #: DSC-MATE-1996
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-1996 is to be housed in a standard residential suite within Site-██. The suite must have a separate bedroom and bathroom, as well as a small workspace. Due to DSC-MATE-1996's profession as a doctor, they are authorized to leave the site for medical emergencies or scheduled shifts at local hospitals with the approval of at least two Level 4 personnel. DSC-MATE-1996 is to be kept under constant observation for any unusual behavior or anomalies. Any interactions with DSC-MATE-1996 are to be recorded and reviewed by assigned personnel.
-
+ID # : DSC-MATE-1996
 Description: DSC-MATE-1996 appears as a human female with several anomalous features. Most striking of these is the presence of orange stripes on their face, which are similar to those found on tigers. They also have red lips and orange eyebrows. DSC-MATE-1996's head resembles a style popular in the early 2000s among young female students, with short, straight black hair framing their face. A two-color band is present on their forehead, giving the impression of a headband. DSC-MATE-1996 routinely wears a medical mask over their mouth, preventing exposure to any bacterial or viral agents present in the environment. DSC-MATE-1996 accessorizes with a choker around their neck.
-
-DSC-MATE-1996 displays a personality that is professional and reliable, with an emphasis on a strict routine. They can become stubborn and reluctant to change, but are known for their dry sense of humor. DSC-MATE-1996 is a certified doctor, specializing in infectious diseases, and has a reputation for being an excellent clinician. It is unknown if their abilities are related to their anomalous features. DSC-MATE-1996 has cooperated with Foundation personnel when asked, but is hesitant to involve themselves in anything not related to their medical duties.
-
-Due to their anomalous features and profession, DSC-MATE-1996 has been authorized to leave the facility for medical emergencies with the approval of at least two Level 4 personnel. During these instances, DSC-MATE-1996 must follow strict protocol for contamination and exposure to anomalous objects or substances. Any notes or observations made during these instances must be reported to the overseeing personnel.
-
-Addendum: DSC-MATE-1996 has expressed interest in researching DSC-008 and its effects on the human body. Request for experimentation denied.

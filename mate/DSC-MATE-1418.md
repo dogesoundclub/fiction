@@ -1,11 +1,2 @@
-Item #: DSC-MATE-1418
-
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-1418 is to be contained within a standard humanoid containment chamber at Site-██. All attempts to remove DSC-MATE-1418 from its position as manager of the █████ Theatre have thus far failed due to its strong sense of duty and responsibility towards its job. Consequently, continuing to allow DSC-MATE-1418 to carry out its work without interruption has been deemed the most effective method of containment. DSC-MATE-1418 is not to be allowed to take on any additional responsibilities beyond its current work.
-
+ID # : DSC-MATE-1418
 Description: DSC-MATE-1418 appears to be a human male in his mid-twenties. The subject's face displays orange stripes, while its eyes are red clown eyes. DSC-MATE-1418 is often seen wearing a hoodie, with a red victory band on its forehead and a silver chain as its accessory. DSC-MATE-1418's most notable characteristic is its strong sense of duty and responsibility, which manifests in everything it does.
-
-Personality: DSC-MATE-1418 takes its job as a theater manager very seriously, working tirelessly to ensure that everything runs smoothly. Its sense of duty and responsibility is so strong that it often takes on more tasks than it can realistically handle. This leads to several humorous situations, such as it being unable to fit all its tasks into a single day or trying to carry too many things at once. DSC-MATE-1418 is also known to be very meticulous in its work, ensuring that every detail is taken care of. Despite its occasional overburdening, DSC-MATE-1418's dedication to its job makes it a valuable asset to the theatre and a good candidate for containment.
-
-Addendum: During routine inspection of DSC-MATE-1418's containment chamber, Agent █████ reported that DSC-MATE-1418 had hung up a poster reading "The Show Must Go On" on its wall. While the significance of this poster remains unclear, it is noted that DSC-MATE-1418 regarded the poster with a sense of pride and accomplishment. Further investigation into DSC-MATE-1418's behavior is ongoing.

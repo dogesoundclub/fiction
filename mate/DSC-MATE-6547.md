@@ -1,9 +1,2 @@
-Item #: 6547
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-6547 is to be kept in a designated maintenance room at all times, with no less than two (2) Foundation personnel present at all times. Any personnel interacting with DSC-MATE-6547 must wear Level 2 protective equipment, including respiratory masks and gloves. No electrical equipment is to be brought into the containment area. Communication with DSC-MATE-6547 should be limited to necessary maintenance procedures only. Any deviation from the containment procedures must be approved by at least two Level-3 personnel.
-
+ID # : DSC-MATE-6547
 Description: DSC-MATE-6547 is a male robot, measuring approximately 1.8 meters in height. It is identified by a green cyclops eye and horns rimmed glasses. The robot's head is covered with a bucket hat, and it has a goggle on its forehead. DSC-MATE-6547 wears a red cross earring on its left ear and a medical mask over its mouth. DSC-MATE-6547 is an expert electrician, and it is capable of repairing and manipulating any electrical devices. DSC-MATE-6547 has a highly analytical and logical personality and enjoys engaging in debates about various topics, no matter how trivial or unimportant it may seem to others. DSC-MATE-6547 has been observed to engage in heated debates with other DSCs inside its containment chamber, often leading to humorous situations.
-
-Addendum: On ██/██/20██, DSC-MATE-6547 exhibited unusual behavior during a routine maintenance session. While being serviced, DSC-MATE-6547 suddenly powered itself on, despite being completely shut down. It then displayed a message on its screen that read: "You are all a hive-mind, I'm just a brainwashed slave." Following the incident, DSC-MATE-6547 has only communicated directly through the message display on its screen, and any attempts to have a conversation with DSC-MATE-6547 have proven unsuccessful. Investigation on this issue is ongoing.

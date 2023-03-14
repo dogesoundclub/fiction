@@ -1,9 +1,2 @@
-Item #: 3785
-
-Object Class: Human
-
-Special Containment Procedures: Subject 3785 is to be monitored during their work as a train driver to ensure compliance with train schedules and safety procedures. Any instances of unconventional or potentially hazardous repairs to train equipment are to be reported to supervisors and investigated immediately. Subject 3785 is not to be approached or engaged in conversation without proper clearance.
-
+ID # : DSC-MATE-3785
 Description: Subject 3785 is a female human with distinctive spots on their face, orange eyebrows, and head adorned with rainbow festival decorations. They have a preference for jade earrings and a gold chain accessory. Subject 3785 has shown a practical and hands-on personality, often solving problems with unconventional solutions using duct tape, paper clips, and other unconventional materials. This has been observed in both their personal life and profession as a train driver, where they have been known to rig up makeshift solutions to problems others may consider too complex.
-
-Personality: Subject 3785 is a highly pragmatic individual, preferring to take matters into their own hands rather than rely on established norms or systems. They have a natural talent for tinkering and repairing machines, evidenced by their inventive solutions to various problems. However, this tendency towards improvisation can sometimes lead to unconventional and even dangerous outcomes. Subject 3785 also tends to be highly independent and can be reticent in engaging in conversation, especially without proper clearance. Approaching them without authorization is not recommended.

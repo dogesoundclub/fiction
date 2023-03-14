@@ -1,11 +1,2 @@
-Item #: 9863
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-9863 is to be contained in a standard humanoid containment chamber located within Site-██. Any attempts by DSC-MATE-9863 to leave its designated area will be met with immediate apprehension by Mobile Task Force Gamma-6 ("DeepSpace"). DSC-MATE-9863 is allowed interaction with D-Class personnel for the purposes of testing and experimentation. All testing must be supervised by Foundation personnel with clearance Level 2 or higher.
-
+ID # : DSC-MATE-9863
 Description: DSC-MATE-9863 is a male member of the genus Macaca Fascicularis, otherwise known as the Long-Tailed Macaque. DSC-MATE-9863's physical appearance is mostly unremarkable from other members of its species, save for the presence of a pair of normal glasses over the eyes and a goggle placed on the forehead. DSC-MATE-9863 has also been observed wearing a gold earring on the left ear, a silver chain, and an LED gas mask as accessories.
-
-DSC-MATE-9863's mental faculties possess a high level of intelligence, with the ability to communicate with humans verbally and non-verbally. Despite its cognitive abilities, DSC-MATE-9863 has shown a tendency to be scatterbrained and easily sidetracked, which can cause humorous mishaps. Foundation personnel have noted that DSC-MATE-9863 has difficulty following instructions for an extended period and can become forgetful, missing critical appointments or becoming lost while transporting packages.
-
-Addendum: Recovery of DSC-MATE-9863 was conducted after a local mail delivery driver noted that the package delivery routes had been altered. Upon investigation, Foundation agents discovered that DSC-MATE-9863 had been impersonating a delivery driver for a local courier service. Upon contact, DSC-MATE-9863 voluntarily surrendered to Foundation custody, citing boredom as the reason for taking the job. As DSC-MATE-9863 had integrated itself into human society and had not shown any overt aggressive behavior, a decision was made to contain it on site in order to study its behavior.

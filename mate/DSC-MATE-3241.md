@@ -1,13 +1,2 @@
-Item #: DSC-MATE-3241
-
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-3241 is to be housed in a standard containment chamber, equipped with appropriate rabbit-friendly amenities such as bedding, food, and toys. A daily check by a Level 2 personnel must be performed every 24 hours to ensure DSC-MATE-3241's well-being. Any personnel entering DSC-MATE-3241's chamber must comply with all safety protocols and must not be carrying any food or drinks. Any visitors that enter DSC-MATE-3241's presence must be screened by security beforehand to avoid causing unintentional distress to the subject.
-
+ID # : DSC-MATE-3241
 Description: DSC-MATE-3241 is a male rabbit standing at 43 cm in height and weighing 1.6 kg. The subject wears a police cap and a pair of horned rim glasses, and sports a gold earring on his left ear. DSC-MATE-3241's most noticeable facial feature is its frightened mouth which is always open, revealing its two front teeth. DSC-MATE-3241 has a goggle on its forehead and is often seen wearing a silver chain around its neck. DSC-MATE-3241 is also known to carry a whistle at all times.
-
-DSC-MATE-3241's most significant anomalous property is its ability to act and communicate like a human being. DSC-MATE-3241 claims to be a journalist, specifically a reporter often seen delivering a daily news bulletin from its containment chamber. DSC-MATE-3241's delivery style is described as comical, using humor to keep its audience engaged. It enjoys telling stories and performing humorous impersonations to lighten the mood. DSC-MATE-3241's upbeat and friendly nature makes it a very likeable character.
-
-Addendum 3241-1: DSC-MATE-3241's origins are currently unknown, and the subject refuses to disclose any information regarding its previous life. DSC-MATE-3241's humor has made interviewing it a challenging task, as the subject is likely to derail any attempt at a serious conversation with a joke or a pun. The Foundation has yet to determine if DSC-MATE-3241's funny demeanor is part of its anomalous properties or if it is part of its personality.
-
-Addendum 3241-2: DSC-MATE-3241's containment chamber was recently decorated with posters of various cartoon characters, compliments of Dr. █████ who noticed DSC-MATE-3241's apparent interest in animated shows. DSC-MATE-3241's behavior post-decoration seemed to indicate an improvement in the subject's quality of life, resulting in consistent news updates with a visibly happier DSC-MATE-3241. Currently, DSC-MATE-3241's containment chamber is slated for regular cleaning by the janitorial staff who often express enjoyment in the conversations they have with the friendly DSC.

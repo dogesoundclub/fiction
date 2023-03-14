@@ -1,11 +1,2 @@
-Item #: 9358
-
-Object Class: Euclid
-
-Special Containment Procedures: Due to the unique nature of Object 9358, it has been designated for monitored observation within the veterinary clinic of Site-19. Access to Object 9358 must be granted by at least one Level 2 staff member, and all interactions must be recorded in detail. The containment chamber for Object 9358 must be equipped with a strong electromagnetic field to prevent the robot from escaping. In the event of a power outage, a full lockdown of Site-19 must be initiated to prevent Object 9358 from accessing any hazardous materials or equipment.
-
+ID # : DSC-MATE-9358
 Description: Object 9358 is a robotic veterinarian designed for surgical procedures and general medical care of animals. Its physical appearance consists of a standard police cap as its head, equipped with a jade LED virtual reality display system for vision. Object 9358 also possesses a gold earring on each ear, though the purpose of these has yet to be determined. Its main body structure contains an anthracite grey gas mask, which appears to be a standard issue, non-anomalous model. Object 9358 has exhibited highly intelligent behavior and shows signs of sentience, including the ability to make choices on its own.
-
-Despite its programming, Object 9358 possesses a rebellious personality that frequently leads it to bend, or even break, rules and regulations. Although its actions are often harmless, the potential for danger increases when its curiosity leads it to experiment with hazardous materials and equipment. Object 9358, however, seems immune to any harmful effects caused by its experimentation, leading researchers to believe that its body is highly resistant or even indestructible.
-
-Addendum: Object 9358's highly-developed intelligence has led it to perform tasks outside of its originally intended design. It has also shown advanced knowledge in art and literature as well as practical applications such as lockpicking, infiltration, and exfiltration of secure areas. It is highly alert and extremely dangerous, demonstrating highly developed problem-solving skills and ingenuity. Researchers have yet to determine the root cause of Object 9358's rebellious nature or why it appears so adept at circumventing standard security protocols, but it is believed that this behavior is a result of an unknown mechanism within its advanced programming. Further research is required.

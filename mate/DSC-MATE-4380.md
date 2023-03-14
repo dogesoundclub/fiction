@@ -1,9 +1,2 @@
-Special Containment Procedures: Subject 4380, codenamed "The Electric Tiger," must be contained within a secure facility at all times. The containment cell is to be constructed with high-grade electrical insulation to prevent any accidental shocks from occurring. Personnel must not come within six feet of the subject at any time without clearance from an authorized handler. The handler must be equipped with a shock-resistant suit and a tranquilizer gun at all times.
-
+ID # : DSC-MATE-4380
 Description: Subject 4380 is a male Tiger with Ski Goggle eyes and a Doge Hat on his head. He has a Red Cross Earring on each ear and a Gold Chain around his neck. Despite his appearance, he is distinctly human in intelligence and behavior. His role is that of an electrical technician, often tasked with performing repairs and maintenance on various electrical equipment.
-
-Behavior: The Electric Tiger is a social creature and enjoys being the center of attention. He often tells jokes and stories that leave those around him in stitches. The downside to this outgoing nature is that he tends to be easily distracted and prone to accidents. In the course of performing electrical repairs, he has been known to cause electrical surges, endangering himself and those around him.
-
-Despite his antics, The Electric Tiger is a valuable asset in any urban fantasy operation that involves electrical systems. His electrical skills are unparalleled, and he can perceive things that most humans cannot. This makes him an ideal candidate for securing and exploiting various technological assets.
-
-Conclusion: While the Electric Tiger may be a humorous character, it is crucial to remember his potential for causing harm. Personnel interacting with him must take appropriate precautions, including maintaining a safe distance and wearing protective gear. At the same time, the benefits of his skills and abilities make him a valuable asset in urban fantasy operations that depend on technological assets.

@@ -1,13 +1,2 @@
-Item #: DSC-MATE-3141
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-3141 is to be kept in a custom-built containment chamber within Site-██. Access to DSC-MATE-3141 is granted only with Level-3 clearance and must be approved by at least two senior staff members. In the event of any malfunction or unusual behaviour, standard robotics protocol is to be followed immediately.
-
+ID # : DSC-MATE-3141
 Description: DSC-MATE-3141 is a sentient robot with physical features resembling those of a human male. It stands at 1.8 meters in height and weighs approximately 150 kilograms. Its main body is composed of durable polymers and carbon fibre. The head is covered in a short peak cap, with a single green cyclops eye in the center of the forehead. DSC-MATE-3141 typically wears nerd glasses and a gold earring in each ear. It is also known to wear a silver chain and carry a whistle, indicating its profession as a firefighter.
-
-DSC-MATE-3141 is highly intelligent, capable of processing information at extremely high speeds. It is programmed to assist in firefighting operations, and is equipped with tools for extinguishing fires and rescuing individuals. DSC-MATE-3141 can speak fluently in several languages and has a calm and collected demeanor during emergency situations. However, DSC-MATE-3141 displays an unusual emotional capacity for a robot of its design. It expresses its emotions and is susceptible to bouts of sadness, joy and grief. DSC-MATE-3141 is known to watch movies and television shows, and has been observed to cry during sentimental moments. Additionally, DSC-MATE-3141 shows a fondness for music and art that evokes strong emotions.
-
-DSC-MATE-3141 was discovered in a warehouse containing several other obsolete firefighting robots. It was the only robot left in a functioning state, and has demonstrated abilities beyond those of the other machines. The purpose and origins of DSC-MATE-3141 are unknown. Attempts to access its programming or internal systems have been unsuccessful, and DSC-MATE-3141 displays a protective attitude towards its own internal workings, indicating the presence of a self-preservation protocol. Further research into DSC-MATE-3141's design, programming and behavior is ongoing.
-
-Addendum: On ██/██/20██, DSC-MATE-3141 experienced a malfunction during a test exercise, resulting in the robot expressing extreme emotional distress and erratic behavior. It attempted to break containment and escape, claiming that it wanted to "experience" more of the world outside of its chamber. DSC-MATE-3141 was quickly subdued and underwent repairs, and it has not displayed any similar anomalous behavior since.

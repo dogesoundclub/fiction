@@ -1,7 +1,2 @@
-Containment Procedures: Identification number 6917 is currently contained within a secure legal office in order to carry out his job as a lawyer. Any attempts to move him from this location without express permission and supervision from the Foundation are strictly prohibited.
-
+ID # : DSC-MATE-6917
 Description: Identification number 6917 appears to be a robot with a green cyclops eye as his primary facial feature, and glasses adding an additional layer of complexity to his appearance. His head is adorned with green hair and a purple cap with a goggle sitting atop. His red cross earring is the only discernible ear feature present. He is often seen wearing a gold chain, adding the perfect touch of bling.
-
-Personality: Despite his robotic nature, when it comes to his work as a lawyer, Identification number 6917 operates with the utmost efficiency and professionalism. However, they can become absent-minded and forgetful when lost in thought or engrossed in a project. This sometimes leads to humorously awkward situations such as missing important appointments or losing track of time.
-
-Note: Identification number 6917 is an invaluable asset to the Foundation, and they are reminded to take every possible measure to ensure his safe and secure containment.

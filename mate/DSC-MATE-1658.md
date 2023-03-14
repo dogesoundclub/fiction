@@ -1,11 +1,2 @@
-Item #: 1658
-
-Object Class: Safe
-
-Special Containment Procedures: Subject #1658, also known as "The Rabbit Lady", is to be monitored by undercover agents to make sure she doesn't expose herself to the public. Any interaction with civilians must be performed with extreme caution, as she has proven to have mild anomalous effects. In the case of any anomalies, field agents, and MTF units are authorized to intervene and relocate the target to a secure Foundation facility for further testing.
-
+ID # : DSC-MATE-1658
 Description: Subject #1658 is a female human of unknown age, standing at 175 cm tall and weighing 65 kg. Her face is distinguished by a remarkable purple lip, which seems to change shades of purple depending on her mood. Her eyes are abnormal red clown eyes, which convey a sense of unease and obsession. Subject #1658's head has the form of a pink rabbit, consisting of soft ears that move whenever there is a sudden noise. On her forehead, she wears a 2 colored rubber band, which is commonly used for hair-ties. Attached to her ears, she also wears a green cross earring. Her mouth is always hidden behind a medical mask that she never removes even when confronted with the most trivial tasks.
-
-Personality: The Rabbit Lady is known for being highly efficient and organized, though the precise nature of these abilities is untested. However, from first-hand experience, she can come across as controlling at times, perhaps owing to her obsessive nature. She tends to take charge of group projects or events, and she's not shy to delegate tasks in a specific matter-of-fact way that some find humorous. Her true nature and motives are still unknown.
-
-Addendum: During a recent incident, Foundation operatives noticed anomalous activity in the vicinity of a popular fast-food chain. Upon arrival, they discovered that the Rabbit Lady was the cause of the situation. Interview #1658-A revealed increased anxiety levels and strong compulsions that caused her to animalize her head and show her teeth while interacting with customers. The physical changes in appearance disappeared soon afterward. A decision was made to recruit her into the Foundation as a potential DSC object.

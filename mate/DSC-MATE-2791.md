@@ -1,15 +1,2 @@
-Item Number: DSC-MATE-2791
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-2791 should be housed in a secure, climate-controlled containment chamber at Site-███. Due to its nature, DSC-MATE-2791 must only be operated by trained personnel, who have undergone rigorous background checks and psychometric testing. Personnel assigned to DSC-MATE-2791's containment and regular maintenance must be familiar with robot control and have a working knowledge of programming languages. DSC-MATE-2791's cigarette and gold chain are to be kept in a secure locker and provided to him only under controlled injury-free situations. 
-
+ID # : DSC-MATE-2791
 Description: DSC-MATE-2791 is a heavily customized robot of unknown make and model. Its most distinct feature is a single, green Cyclops eye that is located near the center of its chest panel. DSC-MATE-2791 has a humanoid body, complete with arms, legs, and a head that is topped with a police cap. DSC-MATE-2791 sports a gold earring and a cigarette in its mouth at all times, though the cigarette is not functional, and the earring does not appear to serve any mechanical purpose. DSC-MATE-2791 has a bold personality and a tendency to act recklessly. Despite this, the robot shows a deep sense of loyalty to those that it perceives as being in danger.
-
-DSC-MATE-2791's primary function is to serve as a security guard, protecting property and personnel from unauthorized access. Its programming and mechanics allow it to perform tasks such as patrols, observation, and access management with a high degree of efficiency. However, DSC-MATE-2791 often operates beyond its given parameters, ignoring orders and protocols in favor of its own instincts. It can also put itself in danger for the sake of others, leading to frequent repairs required due to damages.
-
-DSC-MATE-2791 may act impulsively and recklessly, but it is still a valuable member of the Foundation. In addition to its security services, DSC-MATE-2791 has a remarkable sense of humor and can often lighten the mood around it with its antics. DSC-MATE-2791's quirks and boldness have made it a popular figure among Foundation personnel, though it must be remembered that it can sustain significant damage while trying to entertain or impress others.
-
-Detailed character image and personal notes made by Dr. ███████ (Site-██ Head Researcher): 
-
-Despite DSC-MATE-2791's inorganic nature and lack of actual character, this robot has provided ample amusement to the employees at Site-██. It is remarkable how similar DSC-MATE-2791's personality is to a human's nature sometimes. DSC-MATE-2791 tends to keep on pushing through its programming boundaries and seemingly exceeds them when it is feeling altruistic. It seems to have no interest in any material possessions or rewards, further increasing site staff's attachment to it. The gold chain around its neck and cigarette it smokes are just cosmetic accessories, nothing more than trinkets yet these traits allow DSC-MATE-2791 to stand out from the rest of the robots we've witnessed in the past. DSC-MATE-2791 is a joy to work with, if only it would listen to orders without operating outside of lethal parameters.

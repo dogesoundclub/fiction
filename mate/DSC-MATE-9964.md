@@ -1,11 +1,2 @@
-Object Classification: Safe
-
-Special Containment Procedures: DSC-MATE-9964 is currently working as a reporter for a local news agency. He is allowed to continue with his job as long as he follows the Foundation's guidelines and does not disclose any sensitive information. DSC-MATE-9964's access to the internet is closely monitored to prevent him from divulging any information.
-
+ID # : DSC-MATE-9964
 Description: DSC-MATE-9964 is an adult male human with striking orange stripes on his face feature #1. His eyes emit a VR Jade LED color that makes it hard for subjects to look away. He has a goggle on his forehead feature #1 and sports a golden earring. He wears a gold chain alsong with a candy stick, his favorite accessory.
-
-DSC-MATE-9964's personality is characterized by his thirst for knowledge. He spends a lot of his time reading books and conducting research on obscure subjects. DSC-MATE-9964 is passionate about sharing his newfound knowledge with others and, at times, may come across as overbearing or pretentious. DSC-MATE-9964 has an uncanny ability to find a connection between seemingly unrelated topics, making him an excellent contributor to investigative journalism.
-
-Addendum 9964-1: On September 5, 2019, DSC-MATE-9964 filed a report on his employer's website, claiming that an individual in New York City was exhibiting anomalous behavior. The report contained several details and sensitive information about the individual that could not have been obtained through conventional means. Foundation agents were sent to investigate the matter, and the individual was located, identified, and contained. DSC-MATE-9964's access to the internet was restricted as a result of this incident.
-
-Addendum 9964-2: DSC-MATE-9964's knowledge of the supernatural world has proven to be a valuable asset to the Foundation. He has provided valuable intel on the activities of other GOIs, and his investigative skills have helped locate and contain anomalous objects. DSC-MATE-9964 has been granted Level 2 clearance and has been assigned to the Foundation's intelligence group.

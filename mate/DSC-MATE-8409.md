@@ -1,9 +1,2 @@
-Item #: DSC-MATE-8409
-
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-8409 is to be housed in a standard humanoid containment cell, with access to a small outdoor enclosure furnished with vegetation and burrowing materials. DSC-MATE-8409 is to be provided with daily meals consisting of fresh vegetables, fruits, and grains, as well as limited access to electronic devices to satisfy their journalistic impulses. Any physical or emotional issues related to DSC-MATE-8409's tendency to absorb others' emotional burdens are to be monitored and managed by on-site medical staff.
-
+ID # : DSC-MATE-8409
 Description: DSC-MATE-8409 is a male rabbit standing at 0.75 meters tall and weighing 6.2 kg. They are distinguished by their normal glasses, bucket hat, and a silver chain adorned with a jade earring, as well as a 2-color band on their forehead and a goggle on their forehead. DSC-MATE-8409 displays an empathic personality, often feeling the pain and suffering of others, which can lead to depressive episodes or bouts of overexertion in attempting to help others. DSC-MATE-8409 has a sterling reputation as a highly skilled journalist, specializing in uncovering and exposing supernatural occurrences and entities.
-
-Addendum: DSC-MATE-8409 has been instrumental in several Foundation investigations involving the capture of rogue DSCs and breaches of containment. However, due to concerns over their emotional state, DSC-MATE-8409 is not to be employed in any high-risk missions that may require a detachment from emotions. DSC-MATE-8409 also possesses a whistle, which when blown, produces an ear-piercing sound capable of incapacitating individuals within a 10-meter radius, making it a valuable asset in situations requiring quick escapes.

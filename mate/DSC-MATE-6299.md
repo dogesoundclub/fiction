@@ -1,11 +1,2 @@
-Item #: 6299
-
-Object Class: Euclid
-
-Special Containment Procedures: As of now, containment of DSC-MATE-6299 is not deemed necessary but is being monitored on a regular basis. DSC-MATE-6299 is allowed complete freedom of movement but is expected to follow a strict set of guidelines while performing his duties as a news anchor. In case of any unexpected behavior or emergency, the personnel on duty are to immediately inform the containment team.
-
+ID # : DSC-MATE-6299
 Description: DSC-MATE-6299 appears to be an anthropomorphic tiger, standing approximately 6 feet tall, a horned-rimmed glasses adorns its eyes, and a police cap on its head. DSC-MATE-6299 has a scarlet scarf wrapped around its neck, and a two-color band on its forehead. DSC-MATE-6299 exhibits signs of an individual of high moral values, who dutifully carries out responsibilities and exhibits a sense of duty. This can, at times, lead DSC-MATE-6299 to undertake more than it can handle. Despite the deluge of workload that comes its way, DSC-MATE-6299 exhibits an unwavering dedication towards all its assignments.
-
-Personality: DSC-MATE-6299 is a very responsible and dedicated individual. The team at Site-██ have noted, DSC-MATE-6299 takes on additional tasks with remarkable ease, which can, at times, lead to comical situations. DSC-MATE-6299 exhibits a strong commitment towards social services and continues to provide aid in any way possible, regularly volunteering for charitable work. The team has detected no signs of malicious or violent behavior from DSC-MATE-6299, only an individual who is driven by their duties.
-
-Addendum: DSC-MATE-6299 has displayed an unusual ability for the beings of its kind. DSC-MATE-6299 is an excellent communicator, with a vast vocabulary and eloquent dialogue. DSC-MATE-6299 has, on several occasions, displayed the capabilities of an experienced news anchor, capable of capturing the audience's attention while reporting on important subjects. DSC-MATE-6299's intellect and ability to communicate are being investigated further.

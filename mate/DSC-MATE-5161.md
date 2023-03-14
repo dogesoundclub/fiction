@@ -1,7 +1,2 @@
-Item #: 5161 - Human Police Officer
-
-Special Containment Procedures: Officer 5161 is to be kept on active duty in a specialized task force for combating supernatural threats. Due to his unique and anomalous appearance, all interactions with civilians must be monitored to avoid panic or public hysteria. Officer 5161 must wear his standard issue normal gas mask at all times when engaging in field operations.
-
+ID # : DSC-MATE-5161
 Description: Officer 5161 is a male human with distinctive clown mouth and red clown eyes, a signature feature that has both amused and terrified civilians. He often covers his head with a hoodie to maintain anonymity during low-profile investigations. Officer 5161 is always seen wearing a silver chain, the origin of which is unknown. Despite his unsettling appearance, he is a highly skilled and experienced police officer with an impressive record.
-
-Personality: Officer 5161 has a surprisingly creative and artistic side, which manifests in various hobbies and interests. He is known to enjoy painting, drawing, and writing in his spare time, often emitting a poetic or elusive quality in his work. He is also a skilled actor, able to disguise his true intentions and character to better blend in with his surroundings. His unique blend of practical and artistic skill sets make him an invaluable asset in the task force.

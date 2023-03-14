@@ -1,11 +1,2 @@
-Object Class: Thaumiel
-
-Special Containment Procedures: Subject 3331, also known as "The Electrician," is to be kept under constant Watch Dog surveillance due to their exceptional skills in repairing and manipulating electrical systems. Any unauthorized use of their abilities may result in catastrophic damage. They are to be equipped with a Faraday cage suit to mitigate any possible interference with their abilities.
-
+ID # : DSC-MATE-3331
 Description: Subject 3331 appears as a female human with striking facial features. Their face is adorned by orange stripes that run across their cheeks and nose. Their eyes are deep red with clown-like characteristics, and they have a metallic blue head. Their ears feature a single golden earring, and they often wear a silver chain and smoke cigarettes. They stand at a height of 6'1" and carry themselves with purposeful movements.
-
-Personality: The Electrician exudes an aura of authority and assertiveness. They possess a strong and decisive personality driven by their desire to achieve maximum efficiency in all aspects. They are not afraid to take command and make sure things get done correctly. However, their straightforward attitude may also come across as bossy or intimidating, but it is solely due to their innate commitment to the task at hand.
-
-Abilities: The Electrician possesses exceptional skills in repairing and manipulating electrical systems. They have a complete understanding of electrical networks and can control electrical currents. Their abilities extend to the manipulation of electromagnetic fields to create a protective shield or to distort a particular area's electronic devices. Their ability to repair and manipulate electrical systems has made them a valuable asset in the Watch Dog's arsenal of DSCs.
-
-Addendum: Subject 3331 is pleased to assist in any way they can with the Watch Dog's efforts. Their loyalty lies with the task at hand, and they will do anything within their power to ensure its completion. Request Commander permission before using for any mission. Failure to comply may result in catastrophic events.

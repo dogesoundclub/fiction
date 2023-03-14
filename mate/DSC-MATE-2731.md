@@ -1,11 +1,2 @@
-Item #: DSC-MATE-2731
-
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-2731 is to be kept in a standard humanoid containment chamber, with the addition of reinforced steel walls due to DSC-MATE-2731's heightened strength and agility. Familiarization sessions with staff are recommended to help mitigate prior misconceptions and promote proper handling of the subject. DSC-MATE-2731 should be provided with a consistent schedule and plenty of tasks to occupy their scatterbrained nature.
-
+ID # : DSC-MATE-2731
 Description: DSC-MATE-2731 is a male Bengal Tiger standing at 2.4 meters in height and weighing approximately 220 kilograms. DSC-MATE-2731 wears a blue bandana and a gold chain around its neck, as well as a normal gas mask over its mouth and nose. DSC-MATE-2731's facial feature includes a perpetually frightened facial expression with its mouth slightly agape. DSC-MATE-2731 has been found to be very creative and talented in fashion design. DSC-MATE-2731's clothing designs have been observed to be unconventional (though not unfitting) in terms of traditional fashion standards.
-
-DSC-MATE-2731's personality is described as scatterbrained, with a tendency to forget things and get sidetracked easily. DSC-MATE-2731's lack of focus leads to humorous situations such as forgetting important appointments or getting lost while trying to find a new place. Despite DSC-MATE-2731's tendency to get distracted, it is inherently curious and enjoys exploring its environment. DSC-MATE-2731 is friendly to humans but can be aggressive towards other animals that it perceives as threats.
-
-Addendum: DSC-MATE-2731 was acquired in █████, India after reports of a tiger walking amongst the population in a human-like fashion while sporting a blue bandana and gold chain. MTF Gamma-13, "Pet Fashionistas," was dispatched to retrieve the anomaly. Following the retrieval, it was discovered that DSC-MATE-2731 had a keen interest in fashion design and had allegedly spent several weeks "studyin' dem fancy clothes," according to local witnesses. DSC-MATE-2731's creativity and skill in the craft of fashion design were noted, leading to the decision to employ it as a fashion designer within Site-██'s Wardrobe Department. DSC-MATE-2731 has since been cooperative and has shown no signs of attempting escape or violence towards Foundation personnel.

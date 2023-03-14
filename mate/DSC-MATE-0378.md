@@ -1,13 +1,2 @@
-Item #: DSC-MATE-378 
-
-Object Class: Euclid 
-
-Special Containment Procedures: DSC-MATE-378 is to be kept in a standard humanoid containment cell at Site-██. The cell must have a temperature between 20-25°C to ensure optimal health conditions for DSC-MATE-378. The subject must be fed a diet of fresh vegetables and fruits, and a daily checkup of the animal's health is required. Observation screens must be installed in the cell to document DSC-MATE-378 behavior for research purposes. 
-
+ID # : DSC-MATE-378
 Description: DSC-MATE-378 is a male anthropomorphic rabbit standing at 1.20  meters in height with a green hair in purple cap over the head. DSC-MATE-378 displays a frightened mouth and is known to be quite skittish when approached. The subject wears a red victory band across its forehead, a gold earring on its right ear, a silver chain around its neck, and carries a candy stick at all times. The rabbit is a graduate with a degree in veterinary science and has worked as a veterinarian before being located by the Foundation. 
-
-DSC-MATE-378 displays a thirst for knowledge and is often seen reading or researching obscure topics about the Fauna world. The rabbit has a special fondness for collecting books, documentaries, or other educational materials on animals and is passionate about sharing its newfound knowledge with others. DSC-MATE-378 can discuss anything from the anatomy of a domesticated cat to the behavior of mythical creatures like Chupacabras or the Loch Ness Monster. 
-
-DSC-MATE-378 exhibits docile behavior towards Foundation personnel and is cooperative during medical examinations or psychological evaluations. DSC-MATE-378 displayed an unusual ability to communicate with other animals, even those not from the rabbit species, using a variety of non-verbal cues like body language, scent, and sound. DSC-MATE-378 has also shown the ability to heal injuries in animals and humans using its knowledge in veterinary science. 
-
-Addendum: DSC-MATE-378's appearance and skill set have led the Foundation researchers to believe that the subject may not be a mere animal, but something much more extraordinary. The rabbit's past life before the Foundation is unknown, and obtaining more data is necessary to better understand DSC-MATE-378's true potential. Ongoing research to analyze the strange properties and abilities of DSC-MATE-378 is recommended, and further testing and experimentation will procure crucial data for furthering the Foundation's goals of understanding and containing anomalous beings.

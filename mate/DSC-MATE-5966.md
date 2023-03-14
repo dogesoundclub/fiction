@@ -1,11 +1,2 @@
-Item #: 5966
-
-Object Class: Euclid
-
-Special Containment Procedures: Item #5966 is to be kept within a secure facility at all times. Access to Item #5966 is strictly limited to Level 3 personnel and above. Before engaging with Item #5966, personnel must first be briefed and take necessary precautions. These include observing safety protocols and wearing appropriate protective gear.
-
+ID # : DSC-MATE-5966
 Description: Item #5966, also known as the "Farmer", is a robotic being of masculine gender. The Farmer stands at approximately 5 feet tall and weighs approximately 150 pounds. The Farmer's body is composed of various metals and alloys, and is able to withstand high levels of physical stress. Its appearance is characterized by a singular green Cyclops eye, a frightened mouth, and a police cap. The ears of the Farmer adorn a red cross earring while its mouth is always covered with a medical mask. The Farmer is further distinguished by a silver chain that hangs loosely around its neck.
-
-Personality: The Farmer has a distinct personality characterized by its high level of organization and efficiency. Its mannerisms can sometimes come off as controlling, particularly in group projects or during events that require delegation of tasks. Despite this, the Farmer's approach to task management is always matter-of-fact and often leads to humourous situations. It is also capable of reacting swiftly to unexpected contingencies, which makes it a valuable asset in emergency situations.
-
-Additional Notes: The origins of the Farmer are currently unknown. However, its metal composition and advanced technology suggest that it was created by a highly advanced civilization or organization. The Farmer's capabilities make it a valuable asset in various fields, including agriculture, construction and emergency services. Its ability to withstand physical stress and quick reaction to unexpected circumstances make it an ideal candidate for dangerous missions, and additional testing is being conducted to better understand its unique abilities.

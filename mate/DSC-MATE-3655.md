@@ -1,11 +1,2 @@
-Object Class: Euclid
-
-Special Containment Procedures: Subject 3655 is to be monitored at all times while onsite at their place of employment at the local mechanic shop. Any unusual behavior is to be reported immediately and investigated. It is important to note that while 3655 appears to be a harmless human, their loyalty and protective nature may pose a threat in certain situations.
-
+ID # : DSC-MATE-3655
 Description: Subject 3655 is a human male with a unique facial feature: a dark spot on their mouth. Despite their casual appearance, they possess a strong sense of loyalty towards their loved ones, which can lead to confrontations with those who they perceive to be a threat. This has been observed in the workplace, where 3655 has been known to defend customers and fellow employees alike from verbal abuse or physical threats.
-
-In addition to their protective nature, 3655 possesses a broad knowledge of mechanical engineering and is highly skilled in repairing and maintaining a variety of vehicles. However, it is advised that caution should be exercised when entrusting 3655 with sensitive or confidential information, as they may become defensive if they perceive a threat to their loved ones or themselves.
-
-Personality: 3655 is described as having a generally laid-back and easy-going personality. However, they are fiercely loyal and protective of their loved ones, a trait that has caused them to clash with authority figures in the past. Despite this, 3655 is highly valued by those who have earned their trust and loyalty, and they are often willing to go above and beyond to ensure the well-being of their loved ones.
-
-Conclusion: While subject 3655 may appear to be a harmless human, their protective nature and mechanical skills make them a valuable asset to any organization. Care must be taken when engaging with 3655, as they may react aggressively to perceived threats towards their loved ones. As such, it is recommended that personnel proceed with caution when interacting with 3655, and that they are kept under close observation at all times.

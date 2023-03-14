@@ -1,13 +1,2 @@
-Item #: 5205
-
-Object Class: Euclid
-
-Special Containment Procedures: Subject 5205 is to be contained within a high-security holding cell, constructed from reinforced steel and lined with dampening magic, at all times. The use of any electronic devices or technology within her containment cell is strictly prohibited, as she has shown the ability to manipulatively hack all surrounding devices. Standard non-lethal restraints, such as Class IV suppression cuffs, are to be worn by all personnel who are required to directly interact with Subject 5205. Any communication or interaction with the subject must be recorded for review.
-
+ID # : DSC-MATE-5205
 Description: Subject 5205, also known as 'The Rebel', is a human female standing at 5'11" and weighing approximately 150 lbs. Her face bears several dark spots, blending into a bold purple lip, surrounding her vibrant orange eyebrow eyes. She often wears a jade gemstone earring pair, along with a two-color band forehead marking and a distinctive tiara sitting atop her head. The subject also possesses a black leather choker and gas mask helmet fitted with LED lights and an intricate breathing apparatus.
-
-Subject 5205 presents as highly intelligent and cunning, often making calculated moves and decisions at a whim. They demonstrate high-level hacking abilities and an affinity for breaking the rules, much to the dismay of her captors. They thrive on pushing boundaries and overthrowing authority, finding humor in purposely bending the rules to see what consequences may occur.
-
-Further research suggests that they were once a brilliant computer hacker and used to work for a well-known cybersecurity firm before starting a life of crime.  Subject 5205 holds a unique power to manipulate coding and can gain access to any software or hardware device they desire. It is in the Foundation's best interest to ensure that this entity does not make contact with any computer systems, networks, or databases outside of its containment area. 
-
-Addendum: After several escape attempts, the Foundation has reinforced the cell's structure with a soundproof barrier and eliminated any possible weaknesses that the subject could potentially exploit. Cameras inside of the cell have revealed that Subject 5205 often talks to herself, and further psychiatric evaluations reveal signs of extreme narcissistic tendencies and psychosis. Communication between personnel and the subject shall only occur throughout a secure intercom system, and all instances of personal interaction must be approved by at least two Level 4 personnel before proceeding.

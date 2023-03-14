@@ -1,9 +1,2 @@
-Item #4109: "The Fashionable Rabbit"
-
-Special Containment Procedures: Item #4109 is to be kept in a standard humanoid containment chamber, with a minimum size of 5 meters long, 3 meters wide, and 3 meters tall. All personnel interacting with Item #4109 must wear protective gear, including full-body suits and gas masks, due to possible contamination by unknown substances. Item #4109 is to be provided with a large cage containing artificial grass, toys, and other suitable objects for a rabbit's enjoyment. The cage must be checked daily for maintenance and cleaning.
-
+ID # : DSC-MATE-4109
 Description: Item #4109 is a male rabbit, measuring approximately 50 centimeters long and weighing around 2 kilograms. It possesses a unique appearance, with green hair styled in a purple cap and a set of normal glasses covering its eyes. Its ears are adorned with a gold earring. On its forehead, there are two bands of different colors. Item #4109 is known to have a frightened mouth expression constantly.
-
-Personality: Despite its appearance, Item #4109 exhibits a love for adventure and taking risks. It has been known to try new things, such as bungee jumping and exploring the wilderness. Its adventurous nature can lead to humorous incidents such as surviving a near-death experience. Although unpredictable, Item #4109 has a friendly disposition towards humans, often approaching researchers and playful interaction.
-
-Note: Item #4109 has exhibited several unexplained properties, such as detectable traces of unknown substances in its excrements and an abnormal resistance to certain diseases. Further research is required to determine the extent of its anomalous abilities.

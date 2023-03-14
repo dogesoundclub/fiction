@@ -1,9 +1,2 @@
-Item #: 1912
-
-Object Class: Euclid
-
-Special Containment Procedures: Subject 1912 is to be contained in a standard humanoid containment chamber at all times. He is to be provided with a selection of tools and materials for his work as a mechanic, but any dangerous or potentially harmful objects must be cleared by a Level 2 personnel before being provided to him. Any attempts by 1912 to take control of a project or event must be carefully monitored by security personnel to ensure the safety of all involved.
-
+ID # : DSC-MATE-1912
 Description: Subject 1912 is a male human of average height and build, with distinctive red clown eyes and a mohawk hairstyle. He wears a gas mask and a red scarf, with a 2-color band on his forehead. Despite his unusual appearance, 1912 is highly skilled as a mechanic and possesses a great deal of knowledge in various technical fields. He has a tendency to be controlling, which can make him difficult to work with at times. However, his efficiency and organizational skills often make him an asset to any project.
-
-Personality: 1912 is a highly motivated individual who takes his work very seriously. He is extremely organized and efficient, and he expects the same from those around him. This can lead to conflict with others who do not share his work ethic or who do not appreciate his tendency to take charge. Nonetheless, his dedication to his craft and his attention to detail make him a valuable member of any team or project. His sense of humor is often dry and sarcastic, and he has been known to make jokes at the expense of his colleagues. He is also prone to bouts of irritation and frustration when things do not go according to plan, which can sometimes lead to outbursts. Despite these occasional lapses in temperament, however, 1912 is generally a reliable and efficient worker who is highly valued by his superiors.

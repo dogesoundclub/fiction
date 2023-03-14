@@ -1,9 +1,2 @@
-DSC-MATE-1997 - Ape Salesman
-
-Special Containment Procedures: DSC-MATE-1997 is to be contained in a standard primate containment cell at Site-██. Interaction with DSC-MATE-1997 must be carried out with the utmost caution, as DSC-MATE-1997 has exhibited self-awareness and a degree of intelligence that surpasses normal primate behavior. Personnel are to wear appropriate personal protective equipment and avoid prolonged eye contact with DSC-MATE-1997. Under no circumstances should DSC-MATE-1997 be allowed access to any form of communication equipment.
-
+ID # : DSC-MATE-1997
 Description: DSC-MATE-1997 is a 40-year-old male monkey of the species ██████. DSC-MATE-1997 exhibits a remarkable ability to speak in human language, and possesses strong marketing and sales abilities. DSC-MATE-1997 is typically attired in a retro cap, horn-rimmed glasses, and adorned with a jade earring. DSC-MATE-1997 has expressed a fondness for human culture and has adapted to the human workplace with surprising ease.
-
-DSC-MATE-1997 possesses a strong sense of duty and responsibility, which has led to situations where DSC-MATE-1997 has taken on more than it can handle. Such situations often result in humorous outcomes, as DSC-MATE-1997 attempts to juggle multiple tasks or carry too many items at once. However, caution must be exercised as DSC-MATE-1997 has exhibited a tendency towards manipulative behavior to achieve its goals. DSC-MATE-1997's motivations and ultimate objectives remain unknown.
-
-Addendum: On ██/██/████, DSC-MATE-1997 escaped from its containment cell during a routine feeding. Despite protocols being followed, DSC-MATE-1997 infiltrated an unsuspecting local car dealership and sold 12 vehicles during the course of the day. Local police were eventually able to locate and apprehend DSC-MATE-1997. DogeSoundClub cover-up teams were dispatched, and all vehicles sold by DSC-MATE-1997 were quietly repossessed. DSC-MATE-1997 was returned to containment with appropriate disciplinary measures taken.

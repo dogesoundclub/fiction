@@ -1,11 +1,2 @@
-Item #: 5680
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-5680 is to be contained within a standard humanoid containment chamber at all times. Access to DSC-MATE-5680 is restricted to personnel with clearance level 3 or higher. DSC-MATE-5680 has expressed a preference for collecting unusual objects, and as such, its containment chamber is to be inspected daily to ensure that DSC-MATE-5680 has not acquired any non-approved items. Under no circumstances is DSC-MATE-5680 to be allowed access to any electronic devices capable of sending or receiving messages.
-
+ID # : DSC-MATE-5680
 Description: DSC-MATE-5680 is a male monkey species, standing at approximately 1 meter tall. Its most notable feature is a headset with an LED display around its head, which is permanently fused to its skull. The headset is believed to be a form of cybernetic enhancement, as it appears to allow DSC-MATE-5680 to process information at a prodigious rate. DSC-MATE-5680 also has an unusual forehead feature in the form of a two-color band, which has yet to be explained.
-
-DSC-MATE-5680 is a real estate agent by profession, and it is unknown how it attained this position. DSC-MATE-5680 has demonstrated a highly analytical mind, allowing it to assess properties quickly and accurately. However, it also possesses a highly creative streak, which has led it to develop some unusual hobbies and interests. DSC-MATE-5680 has been observed creating elaborate cosplay costumes, writing poetry, and collecting odd and often inexplicable objects. In particular, DSC-MATE-5680 has shown a fascination for objects that emit electromagnetic radiation, and it is suspected that the monkey-like creature may have some form of cybernetic enhancement beyond its headset.
-
-DSC-MATE-5680 is highly intelligent, and its ability to imagine and synthesize information means that it is a formidable opponent when roused. Personnel are advised to treat DSC-MATE-5680 with caution and respect at all times. Despite its benign motivation, DSC-MATE-5680 has demonstrated a level of inventiveness and ingenuity, which cannot be overlooked.

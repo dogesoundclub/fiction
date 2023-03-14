@@ -1,9 +1,2 @@
-Item #: 2778
-
-Object Class: Euclid
-
-Special Containment Procedures: Object 2778 is currently held in a secure facility to prevent unauthorized access. All personnel are required to maintain at least five meters of distance from the object at all times without proper protective gear. It may not leave containment without prior approval of Level 4 personnel. Regular maintenance is required to ensure functionality.
-
+ID # : DSC-MATE-2778
 Description: Object 2778 is a humanoid robot with green hair, a single glowing green cyclops eye, and a pair of horn-rimmed glasses. It wears a purple cap and red scarf, and has a goggle on its forehead. The entity exhibits a personality that is both outgoing and social, often preferring to be the center of attention. Its emotional range is limited and occasionally inappropriate, as if it were programmed to be ironic or sarcastic. It is unclear to what extent 2778 is biologically sentient, as its main purpose is assumed to be a tool for financial analysis, but there are times where distinct signs of self-awareness are noticeable.
-
-Addendum-2778-A: On ██/██/20██, object 2778 caused minor embarrassment to several bank clients and personnel when it interrupted a public speech by the bank's CEO. The robot aimed to "lighten up" the event with a series of jokes, ultimately causing several listeners to erupt in uncontrollable laughter. Agent ███████ subdued the entity and returned it to its containment unit. Further analysis of its memory banks suggested that the robot longed for the approval of higher management and other social interactions. Since then, all employees are instructed to avoid long periods of interaction with the entity.

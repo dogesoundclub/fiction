@@ -1,11 +1,2 @@
-Item #: 8419
-
-Object Class: Euclid
-
-Special Containment Procedures: Subject 8419 is to be kept in a reinforced steel cage located in a designated containment area. The area must be equipped with high-quality ventilation and regularly disinfected. It is forbidden to approach the subject without authorized personnel and proper safety equipment. Any attempt to engage with the subject’s humor should be carefully considered and monitored due to its potential to distract and endanger individuals.
-
+ID # : DSC-MATE-8419
 Description: Subject 8419 is a male tiger of the species Pantera Tigris with a frightened mouth expression that appears when exposed to loud noises or sudden movements. The VR Rainbow LED eyes appear to provide enhanced visual capabilities with a frequency range outside of normal human vision. The head is not arranged in green, possibly indicating signs of stress caused by the subject’s captivity. The subject wears a Jade Earring, which is considered both arcane and fascinating by researchers. A medical mask always covers the 8419’s mouth, potentially due to a contagious condition and as a safety measure.
-
-Personality: The subject demonstrates a good sense of humor, frequently engaging in humorous antics, such as silly impersonations or telling jokes, which can ease the tension in a given situation, including dangerous ones. However, the subject’s practical jokes can become dangerous when they become unpredictable or irrational, requiring extra caution. Additional research is required to determine the origin and nature of the subject’s behavior.
-
-Addendum 8419-A: During a testing cycle, subject 8419 was observed to be displaying a sudden erratic behavior, including aggressive behavior and increased physical capabilities. Containment protocol was activated, and the subject was successfully captured after a brief confrontation. Further investigation revealed that the cause was linked to exposure to a strong electromagnetic field, causing a temporary alteration in the subject’s neural faculties. Future testing should consider this type of environmental factor as a risk in the containment of subject 8419.

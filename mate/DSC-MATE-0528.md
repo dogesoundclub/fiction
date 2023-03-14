@@ -1,9 +1,2 @@
-Object Classification: Euclid
-
-Special Containment Procedures: Identification number 528 is to be contained in a reinforced steel room, with a live wire placed in the door as an added measure of precaution. All personnel are to refrain from direct contact with Identification number 528 unless specifically authorized by a Level 4 supervisor. Any instances of eye contact with Identification number 528 must be immediately reported to the supervising officer for further assessment.
-
+ID # : DSC-MATE-528
 Description: Identification number 528, also known as the villain, is a human male of average height with distinctive orange stripes on his face feature #1. His eyes are Ski Goggle, his head is Mens Normal Blonde, and he has a gold earring on one ear and a gold chain around his neck. He is usually seen holding a candy stick as an accessory #2.
-
-Identification number 528 has exhibited highly unpredictable behavior and has endangered the lives of innocent individuals on several occasions. His vivid imagination and creativity manifest in unusual hobbies and interests such as writing poetry, creating elaborate cosplay costumes, and collecting peculiar objects. Due to his highly imaginative nature, it is recommended to monitor any potential creative outlets in his containment.
-
-Addendum: Identification number 528 has shown the ability to hypnotize individuals who make eye contact with him, leading them to do his bidding without question. This ability has been observed to be highly effective and appears to have no limit to the number of individuals affected at one time. Further research is required to fully understand the nature of this power and its limitations.

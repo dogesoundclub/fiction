@@ -1,13 +1,2 @@
-Item #: DSC-MATE-8139
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-8139 is to be contained in a standard humanoid containment cell at Site-██. The cell must be fitted with VR screens projecting a natural orange-scape, a venting system for cigarette smoke extraction, and limited internet access for communication with his family. Interactions with DSC-MATE-8139 are to be limited to medical checks and psychological assessments, and must be conducted by personnel trained in handling high-empathy humans. Any instances of DSC-MATE-8139 showing signs of emotional distress are to be immediately reported to assigned personnel.
-
+ID # : DSC-MATE-8139
 Description: DSC-MATE-8139 is a male human in his late forties standing at 1.78 meters in height. His facial features resemble that of a tiger with orange fur stripes on his forehead. His eyes appear as a series of LED lights that emit a rainbow spectrum. He is often seen wearing a gold chain around his neck and holding a lit cigarette between his lips. His hair is styled in a peak spike, occasionally tinted orange. DSC-MATE-8139 identifies himself as a farmer from a small town in the mid-western United States and has provided identification documents that support his claim.
-
-DSC-MATE-8139 demonstrates high levels of empathy and compassion. Although this trait is often admired, it sometimes exposes DSC-MATE-8139 to manipulation and emotional vulnerability. DSC-MATE-8139 is known to take on other people's problems as his own, and feels responsible for fixing everyone and everything around him. This has resulted in DSC-MATE-8139 experiencing bouts of mental breakdowns, depression, and anxiety attacks. His inability to cope with his emotions has led DSC-MATE-8139 to become a danger to himself and others. He has exhibited minor telekinetic abilities such as moving objects with his mind when in distress.
-
-Psychological Evaluation: DSC-MATE-8139 displays characteristics of post-traumatic stress disorder (PTSD) and bipolar disorder. The cause of his psychological trauma has yet to be identified, but is rumored to involve a family tragedy. DSC-MATE-8139 is undergoing medical treatment and therapy to manage his mental condition. Due to the potential risks of DSC-MATE-8139 developing further telepathic or telekinetic capabilities, DSC personnel have been advised to monitor his psychological state closely to prevent further threats to containment. 
-
-Additional Notes: DSC-MATE-8139 has requested that he be allowed to continue smoking cigarettes, as it supposedly helps him cope with stress. Approved.

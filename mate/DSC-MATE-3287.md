@@ -1,13 +1,2 @@
-Item #: 3287
-
-Object Class: Euclid
-
-Special Containment Procedures: Subject 3287, also known as "The Veterinarian", is to be kept under careful observation at all times. Due to their exceptional skills in handling animals and their tendency to connect with others readily, 3287 is to be allowed interactions with humans and other sentient beings only under strict supervision. Any records of interactions must be maintained and analyzed for any anomalies. Personnel are prohibited from disclosing personal information to 3287 without prior approval by the Site Director.
-
+ID # : DSC-MATE-3287
 Description: Subject 3287 is a human female, standing at 6 feet tall, with distinctive facial features that include orange stripes and a red lip. Their most peculiar characteristic is their eyes, which are a shade of bright red, reminiscent of the grotesque clown makeup. The subject wears a retro cap and a cross earring in green, adding to their unique appearance.
-
-Subject 3287 is known for their charismatic personality, which enables them to form deep connections with people quickly. This ability has led to some humorous situations, wherein strangers have shared amusing anecdotes, and others opening up about their life stories. However, 3287's skills come with the side-effect of attracting stray animals, who tend to follow them wherever they go. While this feature may seem harmless, it can prove challenging at times, especially when dealing with hostile or dangerous creatures.
-
-Since their earliest records, 3287 has shown a keen interest in veterinary science, hence the designation "The Veterinarian." Their skills in handling animals are unparalleled. 3287 has a natural way of calming animals, sometimes even those in distress. However, this talent is not without drawbacks; 3287 has been observed to exhibit empathic responses to animals' suffering, even those that are beyond help. This behavior, combined with the affection they display towards animals, has raised some concerns regarding their mental state, which is currently under review.
-
-Addendum: Subject 3287's abilities seem to extend beyond their apparent charisma and animal handling skills. Thorough examination of their medical and psychological profiles has revealed the presence of an anomalous trait that remains unexplained. Research is ongoing to uncover the extent of this ability and its possible impact on containment procedures. Until then, Site custody is advised, and experiments are strictly prohibited.

@@ -1,11 +1,2 @@
-Item #: DSC-MATE-4347
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-4347 is to be monitored at all times while on duty as a traffic officer in [REDACTED]. DSC-MATE-4347 is not to be approached by civilians or unauthorized personnel. In the event that DSC-MATE-4347 attempts to engage in conversation with civilians, agents are to intervene and redirect DSC-MATE-4347 to their duties. DSC-MATE-4347’s police cap and medical mask are to be inspected before and after each shift for any anomalies.
-
+ID # : DSC-MATE-4347
 Description: DSC-MATE-4347 is a male Bengal tiger of average size, standing at 1.8 meters tall and weighing approximately 260 kg. DSC-MATE-4347 displays sapient and bipedal characteristics. DSC-MATE-4347’s eyes are modified with VR Jade LED technology and emit a green glow. DSC-MATE-4347 displays a human-like appearance with the exception of its orange fur and black stripes. DSC-MATE-4347’s standard attire consists of a police cap and a medical mask. DSC-MATE-4347 also wears a gold chain as an accessory. DSC-MATE-4347 has the ability to communicate in English fluently and possesses above-average intelligence.
-
-DSC-MATE-4347’s personality is described as charming and charismatic. DSC-MATE-4347 has the ability to make others feel at ease with its humorous demeanor. DSC-MATE-4347 enjoys telling jokes and engaging in playful activities such as silly dances. DSC-MATE-4347 has displayed no signs of aggression towards personnel or civilians. DSC-MATE-4347 is cooperative with Foundation personnel, though it appears to be unaware of its anomalous abilities.
-
-Addendum: DSC-MATE-4347 was discovered after multiple reports of a police officer with a tiger-like appearance patrolling the streets of [REDACTED]. The Foundation was alerted and dispatched agents to investigate. Upon discovery of DSC-MATE-4347, it was immediately contained and transported to Site-███ for further study. DSC-MATE-4347 appears to have no recollection of any previous owner or origin of its anomalous abilities. Further research is needed to determine the source of DSC-MATE-4347’s abilities.

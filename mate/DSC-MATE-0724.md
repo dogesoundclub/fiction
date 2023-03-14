@@ -1,13 +1,2 @@
-Item #: DSC-MATE-724
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-724 is to be kept under constant observation at all times. Any attempts to leave the designated containment area must be immediately reported to the Site Director. Due to the unpredictable nature of DSC-MATE-724's abilities, it is strictly forbidden to engage in direct interaction with the subject without prior approval from at least two Level 4 personnel.
-
+ID # : DSC-MATE-724
 Description: DSC-MATE-724 is a human male of average height and weight, currently working as a car salesman. DSC-MATE-724's distinguishing features include a small, circular spot on the upper right corner of his mouth, which appears to be a discoloration of the skin resembling black oil paint, and a perpetually frightened expression on his mouth, that remains unchanged regardless of his current mood. Upon further examination, DSC-MATE-724's head and neck are surrounded by a series of green-colored layers, similar in texture and pattern to the scales of a snake. DSC-MATE-724 also appears to have an affinity for gold jewelry, often wearing a single gold earring in his left ear, a thick gold chain around his neck, and an LED Gas Mask, this particularly cause DSC-MATE-724 to interact with their clients with some hesitation.
-
-DSC-MATE-724 exhibits an innate ability to perceive and remember intricate details surrounding people, places, and events. This characteristic makes DSC-MATE-724 an excellent gift-giver, although they are overly concerned with giving the "perfect" gift and can spend an inordinate amount of time agonizing over what to get someone.
-
-DSC-MATE-724's abilities, combined with their external features, raise suspicions of their involvement in the supernatural, leading researchers to theorize that DSC-MATE-724 may have experienced a severe mental breakdown, resulting in a unique manifestation of paranormal abilities. However, without further testing, it is impossible to ascertain the origin of DSC-MATE-724's unusual characteristics.
-
-DSC-MATE-724 has exhibited numerous instances of unpredictable behavior, leading to several breaches in containment. On several occasions, DSC-MATE-724 has managed to breach containment disguised as a car salesman, using their abilities to manipulate potential buyers into purchasing faulty vehicles. At present, DSC-MATE-724 remains under close observation, and further testing is ongoing.

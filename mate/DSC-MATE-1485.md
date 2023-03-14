@@ -1,11 +1,2 @@
-Object classification: Safe
-
-Special Containment Procedures: Identification number 1485 is to be housed within an urban area, specifically a newspaper publishing office. The subject should have access to writing facilities, including paper and computer equipment. Access to news stories and potential investigations is to be granted to the subject as needed.
-
+ID # : DSC-MATE-1485
 Description: Identification number 1485 is a male tiger of the Panththera Tigris species. One notable physical feature is the subject's frightened mouth, which becomes more pronounced when in stressful situations. The eyes of the subject are a vibrant jade color and are fabricated with advanced virtual reality technology, giving the subject advanced visual capabilities. The subject typically wears a red beanie on his head, along with a red cross earring on each ear. In addition, the subject wears a medical mask to cover his mouth, as well as a red scarf for comfort.
-
-The subject is an accomplished reporter and can often be found in debates or engaging in playful humor. Identification number 1485 is known for their quick wit and love of investigation. The subject is incredibly passionate about their work, and this is reflected in their dedication to uncovering the truth behind stories. The subject is highly regarded for their ability to navigate complex situations with a level head, gathering information and analyzing situations effectively.
-
-Personality: Identification number 1485 is highly adaptive in their approach to news reporting. As a tiger, the subject has an innate ability to remain calm and focused in chaotic environments. This makes the subject highly effective in high-stress situations such as breaking news stories or crime scenes. Despite their fierce exterior, the subject is highly approachable and known for their playful and humorous side. This has won them many friends and acquaintances within their field, making them well-connected and highly valued.
-
-In conclusion, Identification number 1485 is a highly effective news reporter, known for his dedication to uncovering the truth behind even the most complex situations. Their quick wit and passion for their work make them an asset to any news organization or investigation team. Despite their animalistic nature, the subject is highly approachable and valued within their field.

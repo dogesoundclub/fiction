@@ -1,11 +1,2 @@
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-8513 is currently housed in a small, rural farm in the outskirts of [REDACTED], USA. Foundation monitoring teams that are designated to DSC-MATE-8513's area are advised to blend in with the locals so as to maintain a low profile. Interviews with local farmers must be conducted to ensure the suppressed information and knowledge of DSC-MATE-8513 remain hidden. In cases wherein knowledge of DSC-MATE-8513's anomalous properties have been revealed, suppressants must be immediately administered to those affected. DSC-MATE-8513 is to be secured by a set of steel bars at night to prevent it from executing spontaneous adventures.
-
+ID # : DSC-MATE-8513
 Description: DSC-MATE-8513 is a female human farmer, measuring around 5'5" and weighing approximately 120 lbs. DSC-MATE-8513 carries a medical mask covering her mouth and a silver chain around her neck, while sporting an orange side hairstyle. DSC-MATE-8513 is often seen wearing a pair of goggles on her forehead and a jade earring in each ear.
-
-DSC-MATE-8513's anomalous properties manifest as her spontaneous nature, enabling her to cause and attract unexpected situations. DSC-MATE-8513 is fond of planning ahead, always expecting the unexpected. This characteristic could lead to situations such as last-minute party planning or impromptu journeys with friends. These events have been observed to lead to a positive outcome.
-
-DSC-MATE-8513's motive or origin is currently unknown, as it does not exhibit any physical abnormalities or deviations from a regular human being. However, staff have found DSC-MATE-8513 to possess extraordinary leadership skills and the ability to connect with animals beyond what would be expected of humans.
-
-Addendum: DSC-MATE-8513 has shown up on local Twitter and Instagram accounts gaining significant attention from the locals in her area. Reports should be monitored and suppressed where necessary. Investigation into the source of DSC-MATE-8513's anomalous properties is currently ongoing.

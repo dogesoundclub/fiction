@@ -1,11 +1,2 @@
-Item #: 1771
-
-Object Class: Euclid
-
-Special Containment Procedures: Subject 1771 is to be housed in a standard humanoid containment chamber at Site-██. Due to their profession, subject is permitted access to a small sewing machine and materials for self-entertainment. Any requests for additional materials must be approved by at least two level-2 personnel. Subject is not to be allowed access to any dyeing agents or color-changing materials, as previous incidents show that they may employ such materials to alter their physical appearance.
-
+ID # : DSC-MATE-1771
 Description: Subject 1771 is a humanoid entity of the Homo sapiens species. Subject displays irregularities in skin pigmentation, with several spots and streaks presenting themselves across their face and arms. These spots and streaks are thought to be benign in nature, but should be monitored for any changes. Subject's hair is dyed a vibrant green, and has been left unarranged. They consistently wear a silver chain necklace with an unidentified pendant, a red cross earring in their left ear, and may be observed smoking a cigarette or vaping at times.
-
-Subject 1771 is a skilled fashion designer, and their works have been acclaimed in certain subcultures for their avant-garde, often otherworldly designs. Subject displays a deep empathy and understanding for others, and may become tearful or display emotional outbursts when they witness someone else's pain or suffering. Despite this, they remain mostly affable and approachable. Subject has been observed taking a particular liking to animals and nature, and their art often features these themes in some form.
-
-Addendum 1771-1: Due to their artistic inclinations and personal tastes, it is recommended that subject be allowed access to various art supplies, including canvas, paint, and drawing materials. Such materials may aid in boosting morale and potentially provide additional insight into subject's psyche. However, their creations must be screened for any potential anomalous properties before disposal or public distribution.

@@ -1,13 +1,2 @@
-Item #: DSC-MATE-5560
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-5560 is to be assigned to urban areas with high traffic density. Any instances of DSC-MATE-5560's behavior that deviate from expected norms must be reported immediately to the Site Director. DSC-MATE-5560 is to be provided with a standard-issue sidearm and a set of Class-B amnestics in case of exposure to non-Foundation personnel.
-
+ID # : DSC-MATE-5560
 Description: DSC-MATE-5560 is a human male of indeterminate age and ethnicity, standing at 183cm and weighing approximately 84kg. DSC-MATE-5560's most notable features are a set of bright orange stripes running down his cheeks and the bridge of his nose, as well as a red beanie on his head with a goggle attached. DSC-MATE-5560 is known to wear a gold earring in his left ear and a red scarf around his neck. DSC-MATE-5560 is almost always seen with a candy stick in his mouth.
-
-DSC-MATE-5560's personality is characterized by an obsessive attention to detail. While this trait is generally beneficial in its job as a traffic officer, it can manifest in unexpected ways. DSC-MATE-5560 has been observed alphabetizing items in its home to an extreme degree, such as spices or a collection of books. DSC-MATE-5560 has shown a fondness for color-coding its closet and sorting its laundry by fabric type. These behaviors do not appear to cause any distress to DSC-MATE-5560 and are generally harmless.
-
-DSC-MATE-5560's behavior is otherwise within expected patterns for a traffic officer. It is diligent in enforcing traffic laws and has been commended by its superiors for its efficiency and effectiveness. However, DSC-MATE-5560 has been known to display heightened levels of aggression towards individuals it perceives as violating traffic laws, especially jaywalkers or reckless drivers. These outbursts are generally brief and have not resulted in any serious injuries.
-
-Addendum: On ██/██/20██, DSC-MATE-5560 was involved in a vehicular collision while on duty. The driver of the other vehicle was killed instantaneously, but DSC-MATE-5560 survived with only minor injuries. A subsequent interview revealed that DSC-MATE-5560 had been experiencing heightened levels of stress in the weeks leading up to the incident, caused by a perceived increase in traffic violations in its jurisdiction. It is recommended that increased psychological support be provided to DSC-MATE-5560 in the future.

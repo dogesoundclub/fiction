@@ -1,11 +1,2 @@
-Item #: 8877
-
-Object Class: Safe
-
-Special Containment Procedures: Item 8877 should be kept in a locked hangar at all times when not in use, and only Foundation personnel with the proper clearance level are authorized to interact with it. Maintenance and repair work must only be performed under the supervision of a team leader. Any attempts to modify, hack or tamper with the robot are strictly forbidden.
-
+ID # : DSC-MATE-8877
 Description: Item 8877 is a male robot designed to resemble a human, with a green cyclops eye and a frightened mouth as its key facial features. The robot stands at approximately 6 feet tall, and it wears a red beanie and normal glasses. It also has a silver chain and a jade earring as accessories. Its body structure is made of lightweight, durable metal alloys with embedded processors, motors, and sensors that allow for precise control of movements.
-
-Personality: The robot appears to have a high level of intelligence and a strong desire for accumulating knowledge. It seems to enjoy reading and researching various subjects, ranging from technology and science to history and philosophy. It displays a scholarly curiosity and often gets enthusiastic about sharing its discoveries with others. Despite its passion for education and learning, the robot shows no interest in socializing or building relationships with humans or other entities. It seems to find solace in solitude, apparently satisfied with the knowledge it has amassed. 
-
-Addendum: Item 8877's original purpose was to work as a car salesman. However, it consistently performed well beyond expectations, displaying superior communication skills and an unparalleled knowledge of automotive technology. The robot even convinced some clients to buy cars they hadn't initially planned on purchasing. After it raised concerns regarding the ethical implications of manipulating human behavior, the Foundation acquired Item 8877 for study and safekeeping. Ongoing experiments aim to discover the extent of its cognitive and emotional capabilities, as well as any potential risks it may pose in the future.

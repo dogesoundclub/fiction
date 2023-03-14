@@ -1,13 +1,2 @@
-Item #: DSC-MATE-6114
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-6114 is to be housed in a standard humanoid containment cell in Site-███. Due to the nature of DSC-MATE-6114's abilities, all personnel entering the containment cell must undergo a psychological evaluation beforehand. DSC-MATE-6114 is allowed access to a computer terminal for the purpose of writing articles for the site newspaper, provided all content is reviewed by a staff member before publication. 
-
+ID # : DSC-MATE-6114
 Description: DSC-MATE-6114 is a male Siberian tiger approximately 2.5 meters in length and weighing 500 kg. DSC-MATE-6114 has blue "clown eyes" that are hyper-reflective, indicating a high level of intelligence. DSC-MATE-6114 displays a frightened expression on its mouth which can be perceived by its facial muscles. DSC-MATE-6114 typically wears a red hoodie with a red victory band around its forehead, and a red scarf. DSC-MATE-6114's vocalizations are similar to that of a human male, though its vocal cords are that of a tiger's. 
-
-DSC-MATE-6114 is a former journalist who worked at the ██████ Times. Following a sudden and unexplained transformation into a tiger, DSC-MATE-6114 has stated that it wishes to continue to pursue journalism. DSC-MATE-6114 heavily values humor and will attempt to lighten the mood in any situation, no matter how dire. This has led to conflicts with other DSCs and researchers who feel DSC-MATE-6114 is not taking matters seriously. DSC-MATE-6114 regularly writes articles for the site newspaper, often incorporating humorous elements that are not necessarily relevant to the story.
-
-DSC-MATE-6114 is capable of limited shapeshifting, allowing it to manipulate its appearance to a limited extent. It is hypothesized that this ability stems from DSC-MATE-6114's own perception of itself. DSC-MATE-6114 has also demonstrated a hypersensitivity to its surroundings and the people interacting with it, which can lead to heightened anxiety and subsequent changes in behavior. 
-
-Addendum: Despite its comical nature, DSC-MATE-6114 is to be handled with extreme caution, as it holds tremendous physical strength and demonstrated capability to escape its containment. The foundation must keep an eye on DSC-MATE-6114's mental state, lest any negative effects from its transformation cause it to lash out unexpectedly. All personnel interacting with DSC-MATE-6114 should be made aware of the need for caution and humor should not be allowed to take precedence over safety concerns.

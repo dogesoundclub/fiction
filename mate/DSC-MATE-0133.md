@@ -1,11 +1,2 @@
-Item #: DSC-MATE-133
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-133 is to be kept in a standard humanoid containment cell at Site-19. The cell must be equipped with a specialized air filtration system to prevent aerosolized contamination of personnel and other DSCs. DSC-MATE-133 is not to be allowed outside of its cell unless accompanied by at least two armed guards with Level 3 clearance. Any personnel entering DSC-MATE-133's cell must be equipped with appropriate personal protective equipment, including full-body suits, respirators, and eye protection. DSC-MATE-133 is to be provided with a varied diet of fruits, vegetables, and insects, with a preference for bananas.
-
+ID # : DSC-MATE-133
 Description: DSC-MATE-133 is a male Capuchin monkey (Cebinae) standing approximately 30 cm tall and weighing 3 kg. Its most notable feature is its red clown eyes, which glow brightly in low light. DSC-MATE-133 is typically docile when left alone, but can become agitated or aggressive if provoked. It has a frightened mouth and wears a blue bandana on its head, along with a pair of goggles and a jade earring in its left ear. DSC-MATE-133 also wears a silver chain around its neck and a gas mask over its nose and mouth. The gas mask appears to be a normal, non-anomalous model.
-
-DSC-MATE-133 has demonstrated a love for adventure and a willingness to take risks, which has led to several amusing anecdotes among Foundation personnel. In one incident, DSC-MATE-133 was found hanging from a bungee cord tied to the ceiling of its containment cell. It survived the fall and appeared to enjoy the experience. In another incident, DSC-MATE-133 was accidentally released into the wilderness during transport between facilities. It was eventually found several days later, having survived by eating insects and berries.
-
-DSC-MATE-133 has not exhibited any anomalous abilities or properties, but its potential for contamination and unpredictable behavior warrant its classification as a Euclid-class DSC. It is currently designated for study by the DogeSoundClub's Containment and Research Department.

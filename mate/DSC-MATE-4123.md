@@ -1,9 +1,2 @@
-Object Classification: Euclid
-
-Special Containment Procedures: Due to the nature of their job, 4123's whereabouts are difficult to track. However, all possible precautions must be taken to ensure no records of their pastime activities reach the public domain. In the event a breach does occur, Foundation agents are to utilize amnestics to ensure complete erasure of any evidence.
-
+ID # : DSC-MATE-4123
 Description: 4123 appears to be a human male, donning a Short Peak Cap on their head. Their face features are covered in Spots, and their eyes resemble those of a clown, with red irises that seem to piercingly stare into the souls of their beholders. Their forehead bears two distinct Color Bands, and a Green Cross Earring adorns each earlobe. The subject can often be seen sporting a Gold Chain as an accessory.
-
-Personality: Despite their mundane job as a Real Estate Agent, 4123 is an individual with an extraordinary imagination. They display a range of unusual hobbies, including writing poetry, creating elaborate cosplay costumes, and collecting obscure objects. Despite their creative side, they can also exhibit a highly malicious and cunning personality when their interests are threatened. Any attempts to hinder their collection or disclose their disturbing preferences should be avoided at all costs.
-
-Additional Notes: 4123's hobbies provide us with deeper insight into their motivations and mental state. Agents are to report any new findings in 4123's activities immediately. The subject's delusions could prove valuable in the Foundation's battle against otherworldly entities, under careful observation, of course.

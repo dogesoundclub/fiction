@@ -1,15 +1,2 @@
-Item #: 9315
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-9315 is to be kept in a standard containment chamber designated for humanoid animal testing. The chamber must be equipped with padded flooring, a medical table, a water dispenser, and a litter box. All interaction with DSC-MATE-9315 should be conducted remotely via audio and video feeds, without direct physical contact. Access to DSC-MATE-9315 for research or testing requires written approval from at least two Level 3 personnel.
-
+ID # : DSC-MATE-9315
 Description: DSC-MATE-9315 is a male tiger of the Panthera tigris species. It stands at 7 feet tall and weighs approximately 800 lbs, with a muscular build that allows it extraordinary agility and strength. Although DSC-MATE-9315 is capable of speaking and understanding human languages, it still primarily communicates through growls, purrs, and body language.
-
-DSC-MATE-9315 frequently wears a Blue Bandana over its forehead, while sporting a Jade earring on one ear, and Horned Rim Glasses on its sharp and piercing eyes. When not in use, DSC-MATE-9315 typically covers its muzzle with a medical mask. A red scarf is often found around its neck.
-
-Personality: DSC-MATE-9315 possesses a remarkable perception and keen observation skills, holding an insatiable curiosity towards everything. DSC-MATE-9315's tendency to focus on details make it an excellent observer and a skilled gift-giver, although this comes with a particular obsession with perfection. DSC-MATE-9315 always aims to give the perfect gift, and it may spend an excessive amount of time over-analyzing a situation, trying to make up for anything that it feels is lacking.
-
-Addendum 9315-1: DSC-MATE-9315 was first acquired by the Foundation after an incident in ███ where it attacked a group of hikers. DSC-MATE-9315 was transported to Site-███, where it disclosed its ability to communicate in the English language to the attending Medical Officer. Employee was then temporarily classified as DSC-MATE-9315 while his condition undergoes thorough examination. DSC-MATE-9315 has since adapted well to life in captivity, provided with spacious quarters and regular medical screening to ensure its well-being.
-
-Addendum 9315-2: DSC-MATE-9315 was transferred to the veterinary department of Site-██ for staff employment. DSC-MATE-9315's knowledge and expertise in both human and animal anatomy have proven invaluable in the medical field, earning it numerous commendations and positive feedback from its superiors. However, due to its anomalous nature, DSC-MATE-9315 has had to undergo modifications to its employment contract, including regulations on certain activities, such as interacting with Site personnel for non-work purposes. Such modifications have been beneficial in preventing DSC-MATE-9315 from viewing itself as more significant than it is, instead behaving as a regular employee at Site-██.

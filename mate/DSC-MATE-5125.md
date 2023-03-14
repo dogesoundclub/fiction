@@ -1,9 +1,2 @@
-Item#: 5125
-Object Class: Euclid
-Special Containment Procedures: DSC-MATE-5125 is to be kept in a containment chamber designed with a high-security clearance in order to prevent any unauthorized access. The chamber should be equipped with a power source, as DSC-MATE-5125 seems to require a periodic source of energy in order to function properly. Any maintenance or repairs of DSC-MATE-5125 should be carried out by a technician with proper training in robotics or cybernetics.
-
+ID # : DSC-MATE-5125
 Description: DSC-MATE-5125 appears to be a traffic officer commonly observed on the streets of populated areas. They are a male robot, with bright, VR Rainbow LED eyes and a frightened mouth. DSC-MATE-5125 has a green hair, which is always covered by a vibrant purple cap. A distinct, unusual feature of DSC-MATE-5125 is the presence of a jade earring on their left earlobe. DSC-MATE-5125 carries a whistle as an accessory, but it seems to function more as an instrument of authority than as a tool for issuing warnings regarding traffic.
-
-DSC-MATE-5125 exhibits a kind and helpful personality, with a strong sense of duty and responsibility in performing their tasks. DSC-MATE-5125 is quite fond of having fun, however, and often garners humorous situations with their ability to get others to join in and participate in their favorite amusements. However, DSC-MATE-5125 has been noted to have infrequent periods of malfunction, during which they may become inexplicably aggressive or distressed. Efforts are ongoing to ascertain the causes of these malfunctions.
-
-Addendum: DSC-MATE-5125 had been discovered at an intersection in a highly populated city, when reports were made of a traffic robot attacking passersby, seemingly without any inciting stimulus. The Foundation swiftly intervened and took control of the situation. Inspections revealed that DSC-MATE-5125's power supplies had been damaged, leading to their unpredictable behavior. After repairs, DSC-MATE-5125 resumed their duties and has not exhibited any similar episodes to date.

@@ -1,9 +1,2 @@
-Item #: 9232
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-9232 is to be held in a standard humanoid containment chamber at Site-██. Any staff member coming into contact with DSC-MATE-9232 should wear protective gear such as gas masks before entering the room. Furthermore, no one is allowed to make eye contact with DSC-MATE-9232 unless under circumstances required for testing or interviewing. The chamber is to be checked and cleaned weekly by at least two Level 2 personnel. However, DSC-MATE-9232 is allowed a full-time job as a banker, which requires human interaction. In such situations, they must wear an LED gas mask in public to prevent involuntary Eye contact.
-
+ID # : DSC-MATE-9232
 Description: DSC-MATE-9232 is a humanoid being that appears to be a monkey but possesses human-like intelligence. The subject is male and wears a red beanie with a gold earring hanging from each earlobe, and a gold chain around its neck. DSC-MATE-9232's mouth is perpetually open in a frightened expression, however, can communicate effectively through sign language and telepathic means. DSC-MATE-9232 possessed a strong sense of intuition that makes them seems to have psychic powers. They can predict events before they occur or sense emotions experienced by others. This ability is both impressive and unsettling to observe.
-
-Notes: Despite the subject's unique and intriguing attributes, interaction with DSC-MATE-9232 is strongly discouraged, except when necessary for testing. DSC-MATE-9232 is incredibly perceptive and sensitive to the emotions presented by others, and this has usually led to the subject having visible panic attacks or anxiety. DSC-MATE-9232 claims that it can sense the emotions of everyone who makes Eye contact with it; however, this claim has not been officially confirmed. Testing of DSC-MATE-9232's psychic abilities is ongoing, but research is hampered by the subject's extreme emotions and panic attacks.

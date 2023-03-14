@@ -1,11 +1,2 @@
-Item #: 4913
-
-Object Class: Safe
-
-Special Containment Procedures: Subject 4913 has been assigned to work as an electrician in a secure Foundation facility. All electrical equipment and installations that the subject interacts with must undergo rigorous testing and maintenance procedures to ensure their continued functionality. Personnel must not interfere with the subject's maintenance procedures, and any equipment that malfunctions must be immediately reported to Site management.
-
+ID # : DSC-MATE-4913
 Description: Subject 4913 is a human male in his mid-twenties, standing at a height of 6'1" and weighing approximately 190lbs. His most distinctive feature is the orange stripes adorning the sides of his face, which he claims are a part of his natural appearance. The subject's eyes are unusual- resembling ski goggles, complete with tinted lenses- and he sports a mohawk on his head. For added protection, he often obscures his mouth and nose with a medical mask, and wears a silver chain on his neck.
-
-Personality: Overall, Subject 4913 is a gentle and caring individual, with a strong sense of empathy. He treats inanimate objects with the same kindness and attention that he gives to living beings. For instance, he'll talk to his car, calling her "Jessie," and even gives her a "hug" while checking her spark plugs. He tends to anthropomorphize household appliances as well, attributing them with human-like characteristics and treating them like friends. Despite some of his quirks, the subject is well-liked among his colleagues; he has a talent for repairing any electrical equipment, and takes pride in his work.
-
-Addendum 4913-A: Subject 4913 has claimed that he can sense electrical energy, and that he can "hear" what the equipment is trying to tell him. While these claims have not been verified, his skill with electrical repairs is exceptional. The subject seems to work best when left to his own devices; attempts to monitor or interfere with his work have been unsuccessful, sometimes leading to equipment failure. Further observation is ongoing to determine correlations between the subject's abilities and his behavior.

@@ -1,9 +1,2 @@
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-3914 is to be contained in a standard humanoid containment chamber, modified to accommodate their rabbit physiology. The chamber must be kept at a constant temperature of 20°C and filled with natural foliage to replicate their natural habitat as closely as possible. Access to DSC-MATE-3914 is restricted to Level 3 personnel and above, and any interactions with the subject must be carried out with extreme caution.
-
+ID # : DSC-MATE-3914
 Description: DSC-MATE-3914 is a male rabbit standing at 1.2 meters in height. Their fur is a pale brown colour, and their eyes are obscured by normal glasses. DSC-MATE-3914's head is not arranged in a traditional rabbit shape, as it is green in colour and is adorned with a two colour band that circles the top of the head. The subject also wears a gold earring in each ear, and is often seen sporting a red scarf and whistle.
-
-DSC-MATE-3914 is a natural leader with a talent for taking charge of situations. They often take on leadership roles in their personal life and workplace, which has led to their successful career as a police officer. DSC-MATE-3914 is a meticulous planner, and is able to think quickly on their feet in high-stress situations. However, their desire for control can sometimes lead to conflicts with others, which manifests as a tendency to become aggressive or territorial.
-
-Addendum: DSC-MATE-3914 was brought into Foundation custody after being involved in a high-speed car chase that ended in a collision with a building. Upon apprehension, DSC-MATE-3914 cooperated with Foundation personnel and expressed a desire to assist with containment procedures for anomalous individuals. Due to their skillset and ability to think on their feet, DSC-MATE-3914 has been approved for use in certain containment and retrieval missions.

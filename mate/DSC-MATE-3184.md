@@ -1,11 +1,2 @@
-Item #: DSC-MATE-3184
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-3184 is to be monitored at all times and is to remain within containment Cell-3184. Any personnel who come in contact with DSC-MATE-3184 must wear protective gear due to the abnormal structure of its face. DSC-MATE-3184 is to be provided with books and magazines on popular debates, board games, and other intellectual stimuli to satisfy its need for debate and discussion. Any attempts made by DSC-MATE-3184 to leave its containment cell are to be immediately immobilized by means of tranquilizers or other non-harmful methods.
-
+ID # : DSC-MATE-3184
 Description: DSC-MATE-3184 is a human male with unique and anomalous physical characteristics. DSC-MATE-3184's face features orange stripes, ski goggle-like eyes, a pink parted head, and a medical mask covering its mouth. Additionally, DSC-MATE-3184 has a goggle attached to its forehead and a green cross earring on both ears. DSC-MATE-3184 is often seen wearing a red scarf around its neck. Despite its abnormal appearance, DSC-MATE-3184 is capable of functioning as a standard human being in all aspects.
-
-DSC-MATE-3184 tends to exhibit personality traits that are analytical, logical, and quick-witted. It enjoys engaging in debates and discussions about various topics, even if they are considered trivial or unimportant. DSC-MATE-3184 can become very competitive and argumentative during debates, often leading to witty and humorous situations. Although DSC-MATE-3184's personality is not inherently dangerous, its abnormal physical features and debate-focused behavior warrant containment.
-
-Addendum: DSC-MATE-3184 was discovered in a car dealership where it successfully worked as a car salesman for two months without any sign of its paranormal characteristics. The dealership's owner reported DSC-MATE-3184 when customers started complaining about its unique appearance and propensity for argumentation. DogeSoundClub agents were able to retrieve DSC-MATE-3184 without causing any further disturbance in the dealership.

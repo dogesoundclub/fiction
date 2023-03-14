@@ -1,11 +1,2 @@
-Item #: 4960
-
-Object Class: Euclid
-
-Special Containment Procedure: Subject 4960 is to be monitored at all times, with all communications and interactions recorded and analyzed. Personnel are advised to proceed with caution around 4960, as his behavior can be unpredictable at times. In the event of a potential containment breach by 4960, all personnel are to remain calm and follow protocol in order to avoid any potential harm to themselves or others.
-
+ID # : DSC-MATE-4960
 Description: 4960 is a Human male who manages a local theater establishment. Despite his seemingly mundane profession, 4960 is anything but ordinary. His face is marked by unique spots and a permanent smile, which can be disarming to many who encounter him. However, his most distinguishing features are his ski goggle eyes, which give off an eerie and unsettling feeling to those who dare look directly into them. Additionally, he is known to frequently wear a police cap, jade earring, and gold chain as part of his typical attire.
-
-Personality: 4960 has an obsessive and detail-oriented personality. He takes pride in his work and can often be seen rearranging and organizing items within his theater to meet his strict standards. This trait can manifest in unexpected ways, such as alphabetizing his spice rack or color-coding his closet. While 4960's quirks may seem harmless, they can quickly escalate to dangerous behavior if left unchecked. It is recommended that all personnel avoid any activity or discussion that may cause 4960 to become fixated on a specific subject or task.
-
-Addendum: Personnel are reminded that containment of 4960 is of the utmost importance, as he has demonstrated an ability to manipulate those around him through his charming demeanor and unorthodox appearance. His ski goggle eyes may also indicate an ability to perceive or manipulate dimensional anomalies, which could have catastrophic consequences if left unchecked. All personnel are advised to exercise caution and avoid contact with 4960 wherever possible.

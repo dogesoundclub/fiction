@@ -1,11 +1,2 @@
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-867 is to be kept in a standard humanoid containment cell. The cell must be equipped with climbing equipment and a variety of toys and puzzles for entertainment. DSC-MATE-867 is to be fed a diet consistent with its species and provided with appropriate enrichment activities. Personal protective equipment must be worn when interacting with DSC-MATE-867 to prevent potential pathogen transmission.
-
+ID # : DSC-MATE-867
 Description: DSC-MATE-867 is a male non-anomalous primate of the species Macaca fascicularis (also known as the crab-eating macaque). DSC-MATE-867 has demonstrated above-average intelligence for its species and is capable of complex problem-solving and communication. DSC-MATE-867 typically wears a blue bandana over its head and has a gold earring in its left ear. It also wears large nerd glasses and a silver chain around its neck.
-
-DSC-MATE-867 is a police officer who has been trained in the use of a pistol and baton. It is capable of understanding and following basic commands, but its empathy and compassion often lead it to take on the problems of others. This can result in DSC-MATE-867 becoming exhausted and unable to perform its duties effectively. DSC-MATE-867 is aware of this flaw in its personality and is actively working to develop better coping mechanisms.
-
-DSC-MATE-867 has demonstrated no anomalous abilities or traits, aside from its above-average intelligence. Its classification as an DSC is due solely to its position as a police officer, which places it in a position of authority and influence in human society.
-
-Addendum: During a routine physical examination, DSC-MATE-867 was found to be carrying a strain of the Herpes B virus in its saliva. While typically harmless to macaques, Herpes B can be fatal to humans if transmitted through a bite or scratch. All personnel interacting with DSC-MATE-867 are advised to wear appropriate personal protective equipment to prevent potential transmission of the virus. DSC-MATE-867 has shown no signs of infection with any other pathogens.

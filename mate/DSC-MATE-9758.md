@@ -1,13 +1,2 @@
-Item #: DSC-MATE-9758
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-9758 is to be monitored via GPS tracking at all times. Personnel should keep a minimum of 10 meters distance from DSC-MATE-9758 for safety reasons. Should DSC-MATE-9758 display any signs of agitation or hostility, immediate containment procedures must be initiated.
-
+ID # : DSC-MATE-9758
 Description: DSC-MATE-9758 is a human female identified as a delivery driver for a local courier services company. DSC-MATE-9758 features a jade LED display for eyes, a bucket hat for headwear, and golden earrings. DSC-MATE-9758 is often seen wearing a choker accessory around her neck. DSC-MATE-9758's most prominent feature is her signature smile which often leads her to use her natural charisma and charm to entertain or make others laugh. DSC personnel should exercise caution when interacting with DSC-MATE-9758, as she is known to use her humor as a defense mechanism to deflect attention and maintain her secrets.
-
-Personality: DSC-MATE-9758 has a natural charm and charisma that can make her the life of the party. DSC-MATE-9758 appears to be very comfortable in social settings and can quickly win over even the most skeptical individuals. DSC-MATE-9758 is known to tell jokes, engage in silly dances, and perform other humorous acts to make others laugh. Despite her charming exterior, DSC-MATE-9758 has a guarded personality and may not readily divulge personal information. DSC personnel should exercise caution when interacting with DSC-MATE-9758, as she may use humor to deflect attention from her agenda or conceal her true intentions.
-
-DSC-MATE-9758's delivery van is designated as DSC-MATE-9758-A, and is monitored separately. Personnel are reminded that DSC-MATE-9758-A is not to be entered or disturbed without appropriate authorization. Any tampering or attempts to access DSC-MATE-9758-A without authorization may lead to the activation of containment protocols.
-
-Addendum 9758-1: DSC-MATE-9758 has displayed high levels of adaptability and resourcefulness during containment procedures. DSC-MATE-9758 has been known to use her delivery truck as a mobile base of operations, allowing her to operate freely across a large geographic area. DSC-MATE-9758 has shown a proficient understanding of technology and is believed to possess advanced hacking skills. DSC-MATE-9758 may pose a threat to information security and is to be monitored at all times.

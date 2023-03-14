@@ -1,9 +1,2 @@
-Containment Procedures: Character 8630, a human female with unusual features, is to be monitored at all times to ensure that their adventurous nature and tendency towards taking risks does not interfere with their primary responsibilities as a firefighter. In the event of a risky situation, as has been known to occur in the past, backup personnel must be on standby to provide assistance if necessary.
-
+ID # : DSC-MATE-8630
 Description: Character 8630 is a human female with striking orange stripes on her face, accompanied by a pair of normal glasses over her bright, curious eyes. Her hair is blonde and kept warm by a furry ushanka, complete with a golden chain draped around her neck.
-
-In order to protect herself from the inherent dangers of her job, 8630 is always equipped with a normal gas mask, which she wears with a certain level of comfort that only comes from using it frequently. Despite the potential hazards of her line of work, she harbors a love for adventure that often leads to some hilarious stories of near misses, such as surviving a bungee jumping mishap or getting lost in the wilderness.
-
-Personality: Character 8630 is a bold adventurer at heart, always eager to take risks and try new things. This can sometimes put her in precarious situations, but she is adept at handling herself and getting out of danger when necessary. Her humor and positive attitude are contagious, and she is beloved by her peers and coworkers for her upbeat spirit and adventurous nature.
-
-It is important to keep a watchful eye on 8630, as her love of adventure sometimes leads her to take unnecessary risks. However, her bravery and quick thinking have saved countless lives over the years, and she remains an invaluable member of the team.

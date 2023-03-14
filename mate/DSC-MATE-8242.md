@@ -1,9 +1,2 @@
-Item #: DSC-MATE-8242
-
-Object Class: Euclid
-
-Special Containment Procedures: DSC-MATE-8242 is to be contained in a standard humanoid containment chamber, with access to appropriate clothing and fashion design materials. Due to the potential danger of some of DSC-MATE-8242's accessories, including the gas mask and choker, all items on DSC-MATE-8242 are to be thoroughly inspected before being granted. DSC-MATE-8242 is not to be allowed outside of the containment area unless accompanied by at least two armed guards.
-
+ID # : DSC-MATE-8242
 Description: DSC-MATE-8242 is a female human of average height and weight, with unusual orange stripes on their face. DSC-MATE-8242 typically wears normal glasses and a blonde ushanka, along with a choker and gold earrings, and a gas mask. Their forehead features a distinguishing two color band. DSC-MATE-8242 is a fashion designer by trade, and displays exceptional skill in this area, with many industry accolades to their name. However, they also have a strong sense of duty that can at times put them in perilous situations.
-
-Personality: DSC-MATE-8242 is generally compliant with Foundation staff and displays a professional, if reserved, demeanor. However, they have a strong sense of responsibility and duty, which can lead them to take on more than they can handle. This tendency sometimes leads to humorous situations, as DSC-MATE-8242 struggles to complete all their tasks in a single day or tries to carry too many things at once. DSC-MATE-8242 also displays a fascination with dangerous or hazardous materials, including their gas mask and other protective gear. Despite this questionable interest, they have not displayed any overtly malicious tendencies. DSC-MATE-8242 has expressed a keen interest in fashion for anomalous entities and has worked with the Foundation to design appropriate attire for various DSCs.

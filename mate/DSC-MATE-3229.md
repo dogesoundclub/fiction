@@ -1,11 +1,2 @@
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-3229 is to be allowed to continue her work as a veterinarian at [REDACTED] animal hospital, with appropriate monitoring for any deviations from her normal behavior. She is to report any anomalous injuries or illnesses that arise among her patients to Foundation personnel. DSC-MATE-3229 is not to be allowed access to heavy sedatives or tranquilizers.
-
+ID # : DSC-MATE-3229
 Description: DSC-MATE-3229 is a female human veterinarian whose notable feature is her bright smile and pigtail hairstyle. DSC-MATE-3229 is never seen without her LED gas mask, which she claims protects her from allergic reactions to various chemicals and odors in the facility. DSC-MATE-3229 is a bubbly and sociable individual, whose playful demeanor often endears her to her patients and colleagues.
-
-DSC-MATE-3229 possesses an anomalous ability to heal all injuries and ailments she treats, regardless of their severity or origin. Her ability to heal extends to both humans and animals, and she has been observed to mend broken limbs, cure infections, expel malignancies, and even resuscitate the deceased. DSC-MATE-3229's healing effect appears to be independent of her knowledge or expertise and manifests spontaneously upon successful treatment.
-
-DSC-MATE-3229's healing ability does not appear to have a negative effect on her own health, nor does it display any noticeable effect on non-living matter or technology. DSC-MATE-3229's gas mask has been observed to emit a low-level electromagnetic field to maintain the integrity of her anomalous ability, although its exact mechanics and origin have yet to be determined.
-
-DSC-MATE-3229's cheerful and extroverted personality does not appear to be related to her anomalous abilities and is considered benign. However, it has been noted that DSC-MATE-3229 has a tendency to overestimate her own capabilities and take unnecessary risks, such as performing surgical procedures without adequate supervision or using untested chemical cocktails. These behaviors may pose a potential risk to DSC-MATE-3229's health and the safety of those around her.

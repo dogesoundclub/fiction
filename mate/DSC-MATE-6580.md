@@ -1,13 +1,2 @@
-Item #: 6580
-
-Object Class: Euclid
-
-Special Containment Procedures: Item 6580 is to be contained in a standard humanoid containment chamber at Site-██. The chamber must be equipped with a desk and a functioning computer containing spreadsheets and budget software. Any Rabbit that enters within a 5-meter radius of Item 6580 must be removed immediately. No other special containment procedures are required at this time.
-
+ID # : DSC-MATE-6580
 Description: Item 6580 is a male Rabbit, identified to have previously worked as a banker before being accidentally exposed to anomalous radiation during a routine trip to the lower levels of the bank. Item 6580 displays several quirks that are unusual and out of place for a Rabbit. Item 6580's eyes resemble ski goggles , with a distinct color shade of green. It is noted the goggles give the Rabbit heightened vision with improved night vision capabilities. The rabbit appears to be wearing a Doge hat in addition to a Golden Earring. The rabbit has been seen smoking a cigarette and seems to have issues with nicotine addiction. Despite its diminutive stature, Item 6580 is well built and can handle itself in hand-to-hand combat.
-
-Item 6580 possesses a split personality characteristic; the rabbit tends to be very organized and like to plan ahead, adopting a meticulous trait effective in financial calculations. However, there is a spontaneous side of the Rabbit which can lead to humorous situations. The Rabbit usually surprises its friends with impromptu adventures or last-minute party planning, which usually turns out to be a hit.
-
-Addendum 6580-A: Incident report
-
-On ██/██/████, Item 6580 breached its containment chamber and escaped through the ventilation shafts to the outside world. This situation was caused by Item 6580's spontaneous personality kicking in, leading to the Rabbit feeling bored and needing excitement. The Rabbit had caused several incidents, including the destruction of an entire pet store and stealing of candy from a local store. The rabbit had returned after a few hours, seemingly tired from its exploits, and entered into its containment without any objections. The Rabbit had tested negative for any external memetic influences, and the cause of its outburst can be attributed to the Rabbit's cognitive behavior. Researchers are still studying the possibility of utilizing the Rabbit's spontaneous nature to further enhance the bank's financial gains.

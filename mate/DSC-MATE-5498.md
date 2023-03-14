@@ -1,11 +1,2 @@
-Item #: DSC-MATE-5498
-
-Object Class: Safe
-
-Special Containment Procedures: DSC-MATE-5498 is to be allowed to continue working as a firefighter in his community as it is important that he maintains social ties with his human peers. Any attempts by DSC-MATE-5498 to use his anomalous abilities for personal gain or nefarious purposes must be immediately reported to Foundation personnel for intervention. DSC-MATE-5498 is to be monitored for any signs of mental stress related to his personality traits and provided with appropriate therapy as needed. 
-
+ID # : DSC-MATE-5498
 Description: DSC-MATE-5498 is a human male with spots on his face and red clown eyes. His blonde hair is of normal length and style for a human male. DSC-MATE-5498 has a two-color band on his forehead, and a jade earring on each ear. He wears a gold chain and carries a candy stick as accessories at all times. DSC-MATE-5498 is a talented gift-giver, often observing and paying close attention to the details in his daily life. However, his desire to give the "perfect" gift can lead to extensive periods of agonizing and deliberation. 
-
-DSC-MATE-5498 has anomalous properties, specifically the ability to generate fire from his hands at will. Analysis of DSC-MATE-5498's anomalous abilities has revealed that his ability to control fire is connected to his mental and emotional state. DSC-MATE-5498's powers are most effective when he is calm and in control of his emotions. When DSC-MATE-5498 is under stress or experiencing heightened emotions, his powers are less stable and may manifest in uncontrollable ways. 
-
-Addendum: DSC-MATE-5498 was discovered by Foundation personnel while responding to a small house fire in his community. The Foundation was alerted to DSC-MATE-5498's anomalous nature due to the unusual nature of the fire and rapid containment by DSC-MATE-5498. Foundation personnel immediately initiated contact with DSC-MATE-5498 and contained him for testing and evaluation. DSC-MATE-5498 has since been deemed Safe and allowed to continue his firefighting duties while monitored by Foundation personnel.

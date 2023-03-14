@@ -1,11 +1,2 @@
-Item #: 9857
-
-Object Class: Safe
-
-Special Containment Procedures: 9857 is to be allowed to continue in her current profession as a delivery driver without interference or intervention from any Foundation personnel. She is to be monitored through her online social media activity and any instances of supernatural encounters or disturbances are to be immediately reported to the nearest Foundation site.
-
+ID # : DSC-MATE-9857
 Description: 9857 is a human female with a jovial demeanor and an infectious smile that puts those around her at ease. She is identified by her VR Jade LED eyes, Retro Cap, and goggle on her forehead, along with her red cross earring, silver chain, and typical gas mask. While her appearance may warrant attention, her personality demands it. She is incredibly observant and attentive to details, making her a reliable and gifted delivery driver. Furthermore, 9857 is highly empathetic, which allows her to anticipate the needs and wants of those around her.
-
-Although 9857 may seem like an ordinary person, there is something special about her that draws attention from the Foundation. She possesses an uncanny ability to sense supernatural energies and disturbances, something that sets her apart from the regular population. Her attention to detail and her playful nature often lead her to use her intuition to choose the perfect gifts for her friends and loved ones, but this ability can also cause her to become anxious or distressed when she cannot find the right gift for someone.
-
-Addendum: 9857 has proved herself reliable on multiple occasions when faced with supernatural encounters. Her resources as a delivery driver make her an invaluable asset to the Foundation, and there have been discussions about her possible recruitment. It is unknown whether or not 9857 is capable of physical enhancement, but it is clear that her empathetic and observational abilities make her an unparalleled asset to any type of investigation. As this may cause undue stress on 9857 or violate policy with the Veil, recruitment has not occurred.

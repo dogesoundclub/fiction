@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8155
+DSC-MATE-8155 is a humanoid entity that operates under the guise of a mundane real estate agent. Its external appearance betrays its true nature, however, as it sports orange stripes on its face and an unsettling smile that seems to never leave its lips. DSC-MATE-8155's red clown eyes make it easily recognizable and serves as a stark reminder of the danger it poses.
+
+Despite its unsettling appearance, DSC-MATE-8155 possesses an undeniable charm and charisma that draws people towards it. It tends to be very energetic and enthusiastic, almost to a fault, and has the ability to get others excited about things - be it mundane everyday events or grandiose plans that threaten global security.
+
+DSC-MATE-8155's head is not arranged in the traditional sense, and seems to take on a random green hue. Coupled with the gold chain that it wears around its neck, this adds to its otherworldly presence. Its behavior can be erratic, and it may go to great lengths to achieve its goals, even if it puts those around it in danger.
+
+Due to its unpredictable nature and potential threat, DSC-MATE-8155 must be closely monitored at all times. Any interaction with it should be carried out with the utmost caution and under the supervision of qualified personnel.

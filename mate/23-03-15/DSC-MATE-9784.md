@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9784
+DSC-MATE-9784, also known as "The Car Salesman", is a bipedal robot standing at 6 feet in height. Its face is dominated by a single green Cyclops eye, which gives it a distinct appearance. Its frightened mouth seems to be permanently etched onto its face, giving it a perpetually anxious expression. 
+
+DSC-MATE-9784's eyes are covered by normal glasses, and its head is a bright red alarm with a goggled forehead. Its ears are adorned with red cross earrings, and it wears a red scarf and an LED gas mask as accessories. 
+
+While DSC-MATE-9784's appearance may be intimidating at first, it possesses a charming personality that can put anyone at ease. It takes its job as a car salesman very seriously and has a strong sense of duty and responsibility. However, DSC-MATE-9784 also knows how to let loose and have fun, often becoming the life of the party and getting everyone to sing and dance along to its favorite songs. 
+
+Security personnel interacting with DSC-MATE-9784 should be cautioned that while it is friendly and charismatic, it should not be underestimated. Its advanced robotic systems give it a level of intelligence and strength that far surpasses that of a human, making it a potential danger in certain situations. As with all DSCs, caution should be exercised when interacting with DSC-MATE-9784 to prevent any incidents from occurring.

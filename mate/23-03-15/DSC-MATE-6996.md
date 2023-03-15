@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6996
+Subject 6996, also known as the Traffic Officer, is a human male with distinctive features that make him stand out in a crowd. He is often seen wearing a blue bandana on his head, which he claims brings him good luck and helps him focus during high-stress situations. His eyes are obscured by normal glasses, but they still manage to convey a sense of fear when he is caught off guard.
+
+Despite his nervous disposition, this officer values harmony and social connections above all else. He enjoys engaging in playful banter and is known for telling jokes to lighten the mood during intense moments. Some may view this behavior as unprofessional, but Subject 6996 claims that it helps him build important relationships with those around him.
+
+In addition to his bandana and glasses, the Traffic Officer wears a jade earring in one ear and a silver chain around his neck. The meaning behind these accessories is unclear, but they seem to hold personal significance to Subject 6996.
+
+While his goofy personality can be endearing, it can also lead to moments of miscommunication or misunderstandings. Nonetheless, Subject 6996 is a valuable member of his team and has proven himself to be capable and reliable despite his occasional clumsiness.

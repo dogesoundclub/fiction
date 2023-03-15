@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9455
+DSC-MATE-9455, also known as "the Monkey Agent", is a male simian entity currently employed as a real estate agent. DSC-MATE-9455's human-like appearance is accentuated by a bucket hat and a red scarf, which it wears at all times. Its frightened mouth serves as a sharp contrast to its confident demeanor.
+
+DSC-MATE-9455 possesses an innate ability to take charge of any situation, a trait commonly observed in its species. Its leadership skills are not limited to professional settings; DSC-MATE-9455 often assumes control of social groups and personal relationships. While it excels in leadership roles, DSC-MATE-9455 is prone to moments of anxiety and fear, as indicated by its constantly moving mouth.
+
+In addition to its hat and scarf, DSC-MATE-9455 carries a whistle as a standard accessory. The significance of this whistle is unknown, as DSC-MATE-9455 has not demonstrated any notable skill or use with it. As with all entities classified under the DogeSoundClub, extreme caution is advised when dealing with DSC-MATE-9455.

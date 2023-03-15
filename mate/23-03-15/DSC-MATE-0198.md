@@ -1,0 +1,8 @@
+ID # : DSC-MATE-198
+DSC-MATE-198, also known as "The Green Anchor," is a human male and a well-known news anchor in the Urban Fantasy community. His most distinctive feature is his perpetual smile, which never seems to fade even in the most dire of circumstances. However, his head is covered with a lush, unmanageable mane of green hair, which gives him an otherworldly appearance.
+
+DSC-MATE-198 claims to be a human, but his body is covered with green scales, and he has a green cross earring on each ear. On his neck, he wears a silver chain, which seems to be a talisman of some sort. He is often seen wearing a normal gas mask, though it's unclear whether this is part of his regular attire, or if he uses it to protect himself from harmful supernatural entities.
+
+The Green Anchor has a scatterbrained personality and a tendency to get sidetracked easily. His forgetfulness often leads to humorous situations, like forgetting important appointments, or getting lost while trying to find a new place. Despite this, he is a charismatic news anchor, and his enthusiasm for reporting on paranormal events is infectious.
+
+There is some speculation as to whether or not DSC-MATE-198 is truly human, given his physical attributes and otherworldly appearance. However, all attempts to classify him as anything other than human have been fruitless. Regardless, DSC-MATE-198 remains a respected figure in the Urban Fantasy community, known for his professionalism, charm, and bizarre quirks.

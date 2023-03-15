@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4747
+DSC-MATE-4747, also known as "The Programmer," is a human male with distinctive facial features that set him apart from others. His mouth is adorned with a unique spot, while his eyes are concealed behind ski goggle lenses that seem to magnify his already intense gaze. On top of his head rests a monk-like hairstyle and the distinguished ears adorned with a jade earring. The Programmer always wears a gold chain around his neck, and he can often be seen carrying a candy stick, which he enjoys as a treat while working.
+
+Personality-wise, The Programmer is a force to be reckoned with. He possesses a strong sense of duty and responsibility, which can sometimes lead him to take on more than he can handle. He is always looking for ways to streamline his work and accomplish more in less time. This dedication to productivity can lead to some humorous situations; he often finds himself struggling to fit all of his tasks into a single day, and his attempts to carry too many items at once result in a comical scene.
+
+Despite this, The Programmer is a valued member of any team he joins. He possesses an unwavering work ethic that serves him well in his role as a programmer. His skills are second to none, and he is known for his ability to take on complex projects with ease. However, he can also be a bit on the serious side, and his dedication to his work can make it difficult for him to let loose and enjoy life outside of the office.
+
+All in all, The Programmer is a fascinating character with plenty of quirks to keep readers engaged. His unique appearance, combined with his strict work ethic, make him an unforgettable addition to any urban fantasy novel.

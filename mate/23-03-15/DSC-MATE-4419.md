@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4419
+DSC-MATE-4419, also known as "The Fast Food Tiger," is a highly unusual humanoid creature of the tiger species. This male entity is typically found adorned in a purple cap fitted with a high-tech headset, adorned with golden earrings and a golden chain necklace. DSC-MATE-4419's distinctive feature includes a medical mask that it wears at all times, as a mark of its cleanliness and disciplined nature.
+
+DSC-MATE-4419 is known to be very detail-oriented, exhibiting an obsessive tendency toward order and perfect alignment. This display of odd behavior has been known to manifest in unexpected ways, from alphabetizing its spice rack to obsessively maintaining a perfectly organized closet. Despite its peculiar quirks, DSC-MATE-4419 is a highly efficient fast food worker who takes great pride in keeping a clean and orderly workspace.
+
+DSC-MATE-4419's physical prowess, combined with its meticulous attention to detail, makes it a formidable force in urban settings. Its abilities, in combination with its unassuming appearance, make it a valuable asset in the field of clandestine operations. DSC-MATE-4419 is currently in containment at Site-66, where it is monitored 24/7 for anomalies in behavior or abilities.

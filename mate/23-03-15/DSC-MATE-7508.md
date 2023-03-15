@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7508
+DSC-MATE-7508, also known as "The Striped Cop," is a male human villain with distinctive orange stripes located on his face. He is often seen donning a police cap atop his head, accompanied by a gold earring and a gold chain accessory. However, the most noticeable addition to his attire is the LED gas mask he wears, which obscures his facial features and adds to his intimidating presence.
+
+Personality-wise, DSC-MATE-7508 is a unique individual with a vivid imagination and an affinity for creative hobbies. The Striped Cop is known to indulge in various creative ventures such as writing poetry, creating elaborate cosplay costumes, or collecting obscure items. His artistic mind often translates into his villainy, with his criminal endeavors being flamboyant and theatrical in nature.
+
+DSC-MATE-7508's abilities and methods of operation are still under investigation, but he should be considered dangerous and not to be underestimated. Please refer to incident reports for further information on DSC-MATE-7508's activities and capabilities.

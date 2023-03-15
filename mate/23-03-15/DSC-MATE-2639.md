@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2639
+Subject 2639 is a humanoid entity classified as a "programmer" in the human society. The subject is a female with distinct facial features of orange stripes and purple lips. The entity's eyes are equipped with a semi-augmented reality display that emanates a jade LED glow. The subject's head is adorned with brown hair typical of the 90s style, and their ears bear a red cross earring. 
+
+On their neck, they carry a silver chain that holds a pendant, the purpose of which remains unknown. The subject displays peculiar personality traits in their interactions with others, often valuing social connections and harmony among individuals. However, 2639 harbors a childlike and goofy side, often indulging in playful banter and cracking jokes with their peers. 
+
+Caution is advised while interacting with 2639, as they have shown a tendency to employ humorous situations as mechanisms to achieve their desired goals. Further study is required to determine the extent of the subject's abilities and motives. Any information regarding the origins or nature of 2639 is welcome and must be reported immediately to the nearest authority.

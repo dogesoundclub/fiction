@@ -1,0 +1,8 @@
+ID # : DSC-MATE-319
+DSC-MATE-319 is a Traffic Officer extraordinaire, tasked with maintaining order in the hustle and bustle of the city streets. His appearance is unique, with fiery orange stripes adorning his face and a pair of ski goggle eyes that grant him an almost inhuman perception of his surroundings. Sporting a jade earring in his left ear, DSC-MATE-319 also wears a bright red scarf that serves as a beacon for him in even the busiest of intersections.
+
+But it is DSC-MATE-319's personality that truly sets him apart. Bursting with seemingly uncontainable energy and excitement, he often finds himself getting carried away by his enthusiasm for his work, much to the amusement of his colleagues. The mere mention of traffic regulations is enough to set him off on a passionate tirade, and he can often be found preaching the virtues of good driving habits to anyone who will listen.
+
+Despite this seemingly over-zealous approach to his work, DSC-MATE-319 is a highly efficient and effective Traffic Officer, with an uncanny ability to predict and prevent accidents before they occur. His constant vigilance and contagious enthusiasm make him a vital asset to the city's transportation infrastructure, and an almost beloved figure among the communities he serves.
+
+However, it should be noted that DSC-MATE-319's unique appearance and personality has attracted the attention of various factions within the urban fantasy community, with rumors circulating that he may not be entirely human. As always, caution and discretion should be exercised when dealing with DSC-MATE-319, for the safety of all involved.

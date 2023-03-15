@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1419
+DSC-MATE-1419 is a police officer of the human species, with distinct orange stripes gracing their face. Their VR jade LED eyes and gold earring enhance their striking appearance, completed by a flashy gold chain dangling around their neck. DSC-MATE-1419's smile is infectious, and they often carry a candy stick, which they use to spread joy throughout their precinct.
+
+Far more than just a cop, DSC-MATE-1419 possesses a remarkable sense of empathy, attuned to the emotions of others. They have an uncanny ability to say just the right thing to make someone feel better, bringing hope and levity even in the darkest of cases. With a sharp wit and a quick tongue, DSC-MATE-1419 lightens the mood and helps others see the humor in difficult situations.
+
+Despite their sunny disposition, DSC-MATE-1419 is a fierce defender of justice, always ready to take on crime and grapple with the darkness that threatens their city. They stand as a bright beacon in the often-shadowy world of law enforcement, a shining example of what it means to serve and protect with both heart and skill.

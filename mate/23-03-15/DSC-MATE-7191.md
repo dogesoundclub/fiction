@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7191
+DSC-MATE-7191, also known as "The Banker," is a highly advanced robot with a sharp mind for finance and business. Their mechanical limbs have been crafted to move with the finesse of a human, allowing them to perform tasks with incredible speed and precision.
+
+Their appearance is distinct, with horned rim glasses perched on their metal face and a red beanie atop their head. A goggle rests on their forehead, which has been observed to emit a faint humming noise at regular intervals. Their red cross earring and medical mask add a touch of the medical profession to their otherwise business attire, which consists of a formal suit and red scarf.
+
+Despite their robotic nature, DSC-MATE-7191 possesses a strong personality, driven by their ambition and thirst for success. They often take on more than they can handle due to their goal-oriented nature but manage to pull off impossible tasks thanks to their strategic thinking and excellent organizational skills.
+
+Caution is advised when dealing with DSC-MATE-7191, as their ruthless pursuit of success may lead to unethical and dangerous actions. However, their unique set of skills makes them a valuable asset to the Foundation and the financial world at large.

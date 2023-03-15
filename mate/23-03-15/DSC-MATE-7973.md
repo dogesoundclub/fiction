@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7973
+DSC-MATE-7973, also known as the "Real Estate Raver," is a female human with distinctive purple lips and a penchant for wearing a bucket hat upon her head. She is known to adorn her ears with a pair of jade earrings, and often sports a silver chain as an accessory.
+
+While DSC-MATE-7973's job title would suggest a more conservative disposition, they are far from it. This is due to their unique sense of balance -- a strong sense of duty and responsibility paired with an ability to let loose and have fun. Their outgoing personality and party spirit often result in humorous situations where they surprise others with their dance moves or quirky antics on the dance floor.
+
+DSC-MATE-7973 is a prime example of how one can balance work and pleasure. While on the job, they remain professional and efficient, but off the clock, they are the life of the party. However, agents are reminded to always approach with caution, as it is uncertain how DSC-MATE-7973's abilities could affect containment procedures.

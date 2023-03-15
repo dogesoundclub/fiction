@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7199
+DSC-MATE-7199, codenamed "The Electrician", is a male human with unique features. His face is covered in spots, but he carries a constant smile giving him an almost clown-like appearance. However, his red-colored eyes and medical mask bring a sense of unease to those around him. His head is covered in green hair, underneath a purple cap. A two-color band prominently sits on his forehead while a green cross earring adorns each ear. He wears a silver chain around his neck, adding to his mysterious demeanor.
+
+Despite his unusual appearance, DSC-MATE-7199 is a skilled electrician with a goal-oriented personality. He is known for his ambition, which sometimes leads him to take on more work than he can handle. However, with his strategic thinking and excellent organizational skills, he manages to pull it off every time.
+
+DSC-MATE-7199's presence seems to cause electrical appliances to malfunction or short out. He has admitted to channeling his abilities towards this end, but no anomalous activity has been detected during the experiments. His medical mask ensures that he doesn't inhale any dangerous fumes or particles while working in hazardous areas.
+
+DSC-MATE-7199 is currently housed in a monitored containment chamber as his abilities may pose a risk to those around him. Further testing and observation need to be conducted on this subject to determine the extent of his anomalous abilities.

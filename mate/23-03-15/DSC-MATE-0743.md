@@ -1,0 +1,6 @@
+ID # : DSC-MATE-743
+DSC-MATE-743 is a humanoid entity residing in the mundane world, specifically working as a car salesman. This individual appears to be a human female with a distinct purple lip coloration and normal glasses adorning their eyes. However, they possess a peculiar head resembling that of a pink rabbit and a pair of green cross earrings for ears. DSC-MATE-743 also wears a choker and an LED gas mask as accessories.
+
+Personality-wise, DSC-MATE-743 is highly inquisitive and displays an insatiable thirst for knowledge. They take an avid interest in the obscure and the unusual elements surrounding them. This has led to situations where DSC-MATE-743 spontaneously narrates factoids on a whim, engaging others in spontaneous discussions. As such, they tend to exhibit humor and frivolity in their interactions with others. 
+
+Extreme caution must be taken when interacting with DSC-MATE-743 in the field, especially when such interaction pertains to anomalous elements outside Foundation control. While they remain cooperative with personnel of higher authority, DSC-MATE-743 may demonstrate an over-eagerness to investigate and employ unknown artifacts, potentially exposing themselves and others to risk. Therefore, standard protocol requires constant vigilant observation of DSC-MATE-743's activities and permissions regarding anomalous objects.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1861
+DSC-MATE-1861, also known as "Reckless Ruby" is a dangerous individual of human origin who bears several notable physical features. Their visage is unique, possessing a series of black spots that dance across their skin, accompanied by a charming and often unsettling smile. The forehead features a curious double-color band, which is of an unknown origin. The individual wears a medical mask that covers their mouth and nose, making it difficult for anyone to gauge their mood or intentions. 
+
+It is important to note that DSC-MATE-1861 is rarely seen without a golden chain which adorns their neck. Although the origin of the chain is unknown, it is believed to be a treasured heirloom, possibly with significant sentimental value to the individual.
+
+Personality-wise, "Reckless Ruby" lives up to their moniker. They possess an impulsive and reckless nature that has caused many to gravely underestimate their capabilities. The DSC can often act before thinking things through, leading to amusing and sometimes perilous situations for both the individual and those around them. DSC-MATE-1861 tends towards risk-taking, possibly seeking to impress or show off to peers. This personality trait has caused the DSC to engage in acts of villainy, which include the theft and destruction of valuable or expensive objects. 
+
+Often playing the role of antagonist in several urban supernatural events, DSC-MATE-1861 is a volatile individual whose true motivations are shrouded in mystery. It cannot be emphasized enough that the DSC possesses an unpredictable nature, one that has caused great harm to many who have crossed its path. Extreme caution is advised when approaching or containing "Reckless Ruby".

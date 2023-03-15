@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3373
+Subject #3373 is a peculiar farmer who exhibits unusual characteristics that are difficult to classify. His smile appears to be permanently plastered on his face, adding an eerie aura to his presence. However, what really sets him apart from your average mortal is his cybernetic enhancements. His eyes are lined with VR Rainbow LED technology, showcasing a pattern of bright, colorful flashes that make it hard to focus on them for too long. As if that wasn't enough, he also sports a Police Cap on his head, with a goggle perched on his forehead.
+
+But that's not all - if you look closely, you'll see that he wears a golden chain around his neck, that seems to glow ever so slightly, almost like it holds some kind of mystical charm or arcane property. And as if that wasn't enough, he also sports an LED Gas Mask. It's unclear why he would need such flashy gear on his farm, but perhaps it's part of his unconventional personality.
+
+Speaking of which, Subject #3373's personality is as eccentric as his appearance. They tend to be very spontaneous and revel in taking risks or doing things on a whim. It's not uncommon for him to decide on a moment's notice to jump off a cliff into a lake or river. Such unpredictable behavior makes him difficult to read, but also opens up a world of possibilities when it comes to dealing with the supernatural.
+
+It's hard to say what role Subject #3373 plays in this world of magic and monsters, but by the looks of it, he seems to be a wildcard that could either work for or against us. As such, it's best to keep an eye on him, especially if he starts to exhibit any unusual behavior.

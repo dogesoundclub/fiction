@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5997
+DSC-MATE-5997, also known as the "Fast Food Fixer," is a human male with distinct orange stripes on his face and a permanent smile. He wears ski goggles for eyes and a Doge hat on his head, along with a gold earring in each ear and a thick gold chain around his neck. Despite his odd appearance, DSC-MATE-5997 blends in well with the general public, working a mundane job as a fast food worker.
+
+However, his personality is what sets him apart from others. DSC-MATE-5997 is a practical, hands-on individual who excels at unconventional problem-solving. He often uses simple tools like duct tape and paper clips to fix broken objects, or sometimes comes up with makeshift solutions for complex issues that others struggle to solve.
+
+DSC-MATE-5997's anomalous abilities are not yet fully understood, but he has demonstrated a remarkable talent for "hacking" reality through practical means. He can twist and bend the rules of physics, seemingly at will, allowing him to accomplish feats that would be impossible for an ordinary person.
+
+Despite his quirks and strange appearance, DSC-MATE-5997 is a valuable asset to the Foundation, providing them with unique problem-solving skills that are essential in an ever-changing, unpredictable world.

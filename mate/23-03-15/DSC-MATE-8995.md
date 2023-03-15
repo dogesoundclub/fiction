@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8995
+DSC-MATE-8995, codenamed "The Rabbit," is a male specimen belonging to an unknown rabbit species. His appearance is noteworthy due to his unique fashion sense, which includes a purple cap adorned with green hair, jade earring, and horned rim glasses. DSC-MATE-8995 also sports a gold chain and a cigarette, which is a peculiar addition given his species' small lung capacity.
+
+DSC-MATE-8995 is employed as a security guard, which is a testament to his fierce determination, keen attention to detail, and sharp reflexes, all typical rabbit traits. However, he also displays a tendency to daydream and get lost in thought, which may lead to comical situations where he stumbles or falls unexpectedly.
+
+DSC-MATE-8995 is exceptionally introspective and approaches life with a contemplative outlook. However, he can be temperamental when provoked and has been observed to exhibit a fierce fighting spirit when necessary. The Foundation is yet to determine the underlying cause of this behavior, but preliminary tests suggest that it is linked to his protective instincts as a guard and a rabbit.
+
+DSC-MATE-8995's unique appearance and personality make him an enigmatic and intriguing presence, but his duties and responsibilities as a security guard must not be underestimated. Any attempts to harm or detain DSC-MATE-8995 must be met with caution as he has proven his mettle in both physical and mental confrontations.

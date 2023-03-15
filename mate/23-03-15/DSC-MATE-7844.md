@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7844
+DSC-MATE-7844, also known as "The Don," is a highly influential figure in the criminal underworld. Despite his human appearance, The Don possesses a set of orange stripes that run along the sides of his face, giving him an unmistakable and intimidating presence. His blue clown eyes are unsettling to those who cross his path, and his perpetually smiling expression only adds to the aura of danger he exudes.
+
+The Don wears a purple cap with a headset, symbolizing his ability to multitask and coordinate his criminal empire with ease. He also sports a gold earring and gold chain, signifying his wealth and power within the criminal underworld. Of particular note is his gas mask, which he wears to protect himself when performing unsavory tasks such as disposing of bodies or handling hazardous materials.
+
+Despite his ruthless reputation, The Don is known for his practical and hands-on approach to problem-solving. He is capable of fixing anything, from a broken car engine to a leaky faucet, using unconventional and resourceful methods that others would not consider. The Don's ingenuity and practicality are traits that have made him a formidable adversary in the eyes of his enemies.
+
+The Foundation has classified DSC-MATE-7844 as a potential threat due to his criminal activities and the potential effects of his influence in the greater world. Extreme caution is advised when dealing with The Don, as any misstep could result in dire consequences.

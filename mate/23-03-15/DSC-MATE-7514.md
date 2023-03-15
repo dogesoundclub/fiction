@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7514
+DSC-MATE-7514, also known as "The Crier," is a human male who works as a delivery driver for a local company. He stands at a height of 5'8" and sports orange stripes on his face, adding to his unique appearance. His mouth is often seen in a frightened expression, and his blue clown eyes stand out from his slightly tanned skin.
+
+What makes DSC-MATE-7514 stand out the most is the retro cap he always wears, complete with a goggle on his forehead. He also wears a jade earring on his right ear and a gold chain around his neck. While the jewelry is not anomalous, it adds to his overall appearance.
+
+DSC-MATE-7514's personality is what truly sets him apart from others. He has a deep connection to his emotions, and anything sentimental can move him to tears. His fondness for music and art that evokes strong feelings has led to his extensive collection of vinyl records, which he listens to during his deliveries.
+
+While DSC-MATE-7514 may not possess any anomalous abilities, his ability to empathize and understand emotions could prove valuable in certain situations. However, due to his emotional sensitivity, extra care must be taken to ensure his mental and emotional well-being during any containment procedures.

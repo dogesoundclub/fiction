@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1930
+DSC-MATE-1930 is a male monkey, identified as an electrician by trade. They stand at approximately 3 feet tall and have a noticeably frightened mouth, giving the impression of being in a constant state of anxiety. Their eyes are covered by a pair of nerd glasses, which seem out of place on their animalistic features. DSC-MATE-1930's head is not arranged green in color and features a unique, 2 color band on their forehead. 
+
+This creature is rarely seen without their trusty cigarette, which they insist helps them focus and complete their tasks efficiently. Despite their nervous disposition, DSC-MATE-1930 possesses a strong sense of duty and responsibility towards their work, often taking on more than they can handle. This sometimes results in comical situations where they attempt to carry too much or fit too many tasks into a single day. 
+
+Despite their quirks, DSC-MATE-1930 displays a high degree of technical skill and resourcefulness in their role as an electrician. They are known to possess an innate talent for diagnosing and repairing electrical problems, often coming up with creative solutions to complex issues. It is recommended to approach this creature with caution, as their anxiety may cause them to react unpredictably to unfamiliar situations.

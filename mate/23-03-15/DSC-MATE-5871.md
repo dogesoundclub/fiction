@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5871
+Subject 5871, also known as the "Rabbit Manager", is a human female with a peculiar appearance. Her face is adorned with a warm, inviting smile that seems to brighten up any room she enters. However, it's her eyes that catch the attention of most observers. Instead of the typical human ocular organs, subject 5871 possesses VR Jade LED eyes that emit an otherworldly glow.
+
+The most striking feature of subject 5871's head is the pink rabbit-shaped headgear that she wears at all times. Despite its cutesy appearance, there's something eerie about the way it seems to be almost alive and reactive to the woman's emotions. Her ears are adorned with a green cross earring, which seems to indicate some sort of religious affiliation.
+
+Subject 5871 is rarely seen without a silver chain that she fidgets with when nervous or excited. As the manager of a bustling urban theater, she tends to be hot-headed and impulsive. Her emotions dictate much of her decision-making process, which can lead to some comical situations. Her penchant for spontaneity often catches others off guard, leaving them pleasantly surprised or bewildered.
+
+While subject 5871's appearance may be unconventional, she is a capable and devoted theater manager. Her passion for the arts is infectious, and her infectious smile and quirky personality have endeared her to many. Despite her occasional impulsiveness, she is wise beyond her years and deeply empathic. Her strange appearance is simply a reflection of her unique outlook on the world.

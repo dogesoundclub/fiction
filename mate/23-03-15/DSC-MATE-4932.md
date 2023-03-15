@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4932
+DSC-MATE-4932 is a villainous human, designated as a Class-D anomaly by the Foundation. She stands at an average height, with shoulder-length black hair and striking orange stripes decorating her face. Despite her villainous tendencies, DSC-MATE-4932 appears cheerful and friendly at all times, with a perpetual smile adorning her features.
+
+DSC-MATE-4932's eyes are obscured by normal-looking glasses, though it is unknown whether or not they possess any anomalous properties. On her head rests a tiara, the origins and properties of which are currently unknown. DSC-MATE-4932's ears are pierced with a red cross earring, potentially hinting at a religious affiliation.
+
+Her personality is characterized by her boundless energy and enthusiasm, often getting excited about even the most mundane of things. This tendency can lead to some awkward or humorous situations, as she may become overly animated about something others deem uninteresting. Despite her cheerful demeanor, DSC-MATE-4932 should be regarded as highly dangerous and is to be approached with caution at all times.

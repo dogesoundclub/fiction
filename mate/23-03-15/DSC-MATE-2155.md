@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2155
+DSC-MATE-2155 is a highly unusual delivery driver, exhibiting the physical characteristics of a Bengal tiger. Their bright orange fur and black stripes can draw a great deal of attention in public, though DSC-MATE-2155 seems to thoroughly enjoy the attention. The top of their head is adorned with a bright yellow doge hat, and they often wear a pair of ski goggles over their jade green eyes.
+
+Despite their intimidating appearance, DSC-MATE-2155 is a friendly and sociable creature. They are often the life of the party, drawing in people with their engaging personality and vivacious sense of humor. However, this charisma can cause distractions and may lead to a somewhat disorganized approach to their work.
+
+DSC-MATE-2155 is passionate about their work, and they take great pride in delivering packages on-time and with a smile. They carry a silver whistle on a lanyard around their neck, which they use to alert recipients of their presence. Overall, DSC-MATE-2155's outgoing nature and unique style have made them a beloved member of the delivery team, despite the occasional inconvenience caused by their exuberance.

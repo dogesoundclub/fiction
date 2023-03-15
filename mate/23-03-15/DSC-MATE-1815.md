@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1815
+DSC-MATE-1815, codenamed "Rainbow Vet," is a human veterinarian with unique and striking features. Her face is adorned with vivid orange stripes and a bold purple lip, complementing her unmistakable red clown eyes. Her head is a neon rainbow spectacle, drawing the eye and capturing attention wherever she goes. As if that wasn't enough, she sports a pair of green cross earrings that add a touch of punk to her appearance.
+
+Her mouth is always covered by a medical mask, as befits her profession, and it only enhances her already mysterious persona. Despite her bold appearance, she is a consummate professional and a true asset to any animal care facility. When it comes to her work, she has a strong and decisive personality, which can sometimes be intimidating, but it is all because she has a desire to see things done efficiently and effectively. 
+
+DSC-MATE-1815 is known for her love of animals, an affinity that is demonstrated in her work ethic and her commitment to animal welfare. Her combination of impressive skills, dedication, and unique style have earned her high praise from colleagues and patients alike.

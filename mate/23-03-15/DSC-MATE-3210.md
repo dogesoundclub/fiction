@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3210
+Subject 3210 is a sentient rabbit and a member of our security team. Despite their profession, they are easily frightened, indicated by the permanent expression of terror etched across their small, rabbit face. Their eyes are obscured behind a pair of horned-rimmed glasses, giving them an erudite appearance that belies their timidity. 
+
+Subject 3210 is often seen sporting a bright red scarf, which may serve to offset their natural prey instincts by presenting a bold flash of color. Though they exhibit fear, they also have a deep curiosity about the world around them, constantly in search of obscure or unusual topics to learn about. This insatiable thirst for knowledge can sometimes result in their randomly spouting off irrelevant trivia or facts in casual conversation, much to the bemusement of others.
+
+Subject 3210 is an intriguing specimen, both charming and endearing in their quirkiness. However, it is important to remember that despite their timid nature, they are formidable members of our security team, and their loyalty to this organization is unwavering. Proceed with caution when approaching this curious, yet skittish, rabbit.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2111
+DSC-MATE-2111, also known as "The Fast Food Caretaker," is a humanoid entity that appears to be a young female of human descent. Its most notable features include orange stripes on its face, red lips, and eyebrows that glow a vibrant shade of orange. Additionally, DSC-MATE-2111 sports a pair of metallic gold earrings and often carries a cigarette as an accessory.
+
+DSC-MATE-2111's personality is consistently nurturing and caring, which can sometimes lead to humorous scenarios as the entity often treats those close to it with a motherly affection. Despite its outwardly gentle and jovial disposition, DSC-MATE-2111 harbors a history of unexplained events, and its actions are often accompanied by a sense of secrecy.
+
+DSC-MATE-2111's occupation as a fast food worker seems to be its main source of income, and the entity has been observed to take particular care in serving customers. On occasion, its unusual appearance and habits can elicit curiosity or even mild fear in some clients, to which DSC-MATE-2111 reacts with an undeterred friendliness.
+
+As with many of the anomalous entities under the care of the DSC foundation, DSC-MATE-2111's true nature remains a mystery that requires continued observation and research.

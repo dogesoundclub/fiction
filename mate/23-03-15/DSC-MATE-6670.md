@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6670
+Subject 6670, also known by the moniker "the Striped Firefighter," is a human female who works as a firefighter in multiple precincts across the city. Despite her mundane profession, there is nothing ordinary about her appearance. Her short witch-like hair is dyed a vibrant orange, which matches the pattern of tiger stripes that curve and weave across her cheeks and forehead. Her smile is wide and infectious, and her glasses magnify a pair of alert and curious eyes. She often wears a medical mask, except for when she is in her full firefighting gear.
+
+One of her signature accessories is a choker made of black leather and adorned with various arcane symbols. She pairs this with a single jade earring that dangles from her left earlobe. 
+
+But it is her personality that truly sets her apart from her peers. This firefighter has a dry sense of humor that catches people off guard. Even if they don't consider themselves to be the life of the party, she has a way of delivering deadpan jokes that can be surprisingly funny. Her wit is matched by her professionalism, and many of her co-workers find themselves both reluctantly amused and reassured by her presence at the station.
+
+It is rumored that the Striped Firefighter has been privy to a large number of the city's stranger incidents. Whether this is true or not, she remains tight-lipped about her experiences, preferring to focus on the job at hand rather than draw attention to herself. Some of her colleagues have whispered that there is something otherworldly about her, but the Striped Firefighter remains an enigma to all who know her.

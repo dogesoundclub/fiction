@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9920
+Subject 9920, also known as "The Candy Lawyer", is a human male with striking orange stripes adorning his face. His eyes are protected by what appear to be ski goggles, and he never goes anywhere without his short peak cap perched on top of his head. A goggle rests on his forehead, and he sports a vibrant green cross earring on one ear. His most notable accessory, however, is the candy stick he always carries, which seems to give him an extra pep in his step.
+
+Despite his unusual appearance, 9920 is a highly skilled lawyer and is often sought out by those in need of legal assistance. His boundless energy and enthusiasm can often be infectious, and he has been known to get overly excited about a case, even when others don't share his level of enthusiasm.
+
+However, beneath his cheerful exterior lies a steely determination and a fierce loyalty to his clients. The Candy Lawyer will stop at nothing to ensure that justice is served and that the innocent are protected. He may be unconventional, but he is as tenacious as they come.

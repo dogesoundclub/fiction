@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5518
+DSC-MATE-5518 is a Tiger humanoid, identified as a prominent Lawyer in the urban area. His frightened mouth and ski goggle eyes are a unique feature that sets him apart from other Tiger species. DSC-MATE-5518's head is often seen wearing a Doge hat, while his jade earring and silver chain add an edge of style to his overall appearance. 
+
+DSC-MATE-5518 has a lively personality, often seen getting over-enthusiastic about things that others may not find interesting. DSC-MATE-5518's energy is contagious, often uplifting the surrounding individuals. However, care must be taken as his high energy may lead to dangerous or unwanted situations. 
+
+DSC-MATE-5518 is permitted to have a cigarette within their living quarters. However, it is advised to monitor his cigarette consumption closely, as it may lead to unpredictable behavior. DSC-MATE-5518 is to be handled with caution and is not to be engaged in unnecessary situations by foundation agents.

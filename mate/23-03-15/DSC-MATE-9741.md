@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9741
+Subject 9741, known colloquially as "Patch," is a human of unremarkable appearance save for her facial spots and constant, mischievous smile. Those who look closer, however, will notice her piercing red clown eyes and the green cross earring that adorns her left ear.
+
+Patch can usually be found tinkering and fixing things in the mechanical workshop she calls home. She has a talent for understanding how things work, and has created some truly ingenious creations. One of her most distinctive accessories is her LED gas mask, which she insists on wearing at all times during her work.
+
+Despite her laid-back attitude, Patch is quick to defend her loved ones - even if it means getting into a physical brawl. Her sense of loyalty is a defining part of her personality, and she has more than once put herself in danger to protect those she cares for.
+
+While her humorous and playful demeanor can often throw off those who underestimate her, those who cross Patch will quickly discover the full extent of her wrath. Her resourceful mind and quick reflexes have helped her narrowly evade dangerous situations, and she has proven herself time and time again as a formidable asset to those lucky enough to earn her loyalty.

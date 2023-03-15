@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2833
+DSC-MATE-2833 is a humanoid entity of the Homo sapiens species, classified as a programmer. Their physical features are peculiar, notably their face patterned with orange stripes and their striking blue clown eyes that evoke a sense of quirkiness and lightheartedness. DSC-MATE-2833 is also commonly seen sporting a retro cap, which further adds to their eccentric presence. One of their quirks is that they frequently carry a cigarette, despite not being a chronic smoker.
+
+DSC-MATE-2833 is known for their magnetic personality that draws people towards them. They possess a natural charm and the rare talent to form deep connections with strangers. When interacting with others, DSC-MATE-2833 tends to use humor to break the ice, often resulting in hilarious and lighthearted banter. They have a profound knack for making people feel at ease and comfortable in their presence.
+
+As an asset, DSC-MATE-2833's persuasive skills can prove useful in various operations. Despite their easygoing demeanor, they possess a sharp intellect, and their programming skills are exceptional. However, Special Containment Procedures must remain stringent in case of emotional manipulation by DSC-MATE-2833, as they have shown a proclivity to form emotional attachments quickly.
+
+DSC-MATE-2833 has no known anomalous abilities, and their presence within the Foundation is to further the research and development of technology. However, their unique features and quirky character are a constant reminder that not all anomalies are dangerous, and sometimes the biggest find the Foundation encounters is in the form of harmless oddities.

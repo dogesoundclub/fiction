@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5381
+DSC-MATE-5381 is a humanoid creature resembling a rabbit, designated for containment as a Fast Food Worker. This anthropomorphic being exhibits a gentle, nurturing personality, which is incredibly beneficial in dealing with customers who may require a softer touch. DSC-MATE-5381 is also notable for their powerful caring and nurturing instincts, which can sometimes cause them to treat coworkers and patrons as if they were their own offspring.
+
+DSC-MATE-5381's physical appearance is relatively benign, wearing glasses that lend them an almost scholarly or intellectual air. Their head is an unusual hue of unarranged green and features a unique two-color band around their forehead. While there are anomalies in the DogeSoundClub that possess more tangible or overpowering abilities, the subtle but potent personality of DSC-MATE-5381 makes them a valuable addition to our containment efforts.
+
+Any personnel assigned to DSC-MATE-5381's containment should approach deftly and with caution. Should they become agitated, they may become particularly protective of their colleagues and customers. However, with skillful communication and reassurance of our ongoing commitment to containment, DSC-MATE-5381 can be a cooperative and useful member of our diverse range of anomalies under supervision.

@@ -1,0 +1,4 @@
+ID # : DSC-MATE-9626
+DSC-MATE-9626 is a human male that serves as a Traffic Officer. They possess a frightened mouth and blue clown eyes, adding to the eerie appearance they emit. DSC-MATE-9626 often wears a bucket hat and has a two-color band across their forehead. The distinct feature of DSC-MATE-9626 would be their gold earring that dangles from the earlobes. They adorn themselves with a thick gold chain and are always seen with a cigarette, which they seldom extinguish.
+
+DSC-MATE-9626 has a personality that can be described as rebellious, taking pleasure in testing boundaries. Their rule-breaking tendencies have caused them to bend and twist regulations in various ways, often resulting in humorous outcomes. Despite this, they can also demonstrate a somewhat intimidating air as they relish the power their position provides. DSC-MATE-9626 should be monitored closely, as their behavior can shift rapidly and without warning.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3106
+DSC-MATE-3106 is a human male, designated as a doctor. While at first glance his appearance may seem normal, an anomalous feature is present in DSC-MATE-3106's face. His visage is marked with orange stripes that seem to fade away or intensify periodically. Additionally, DSC-MATE-3106's mouth appears to be in a state of constant fright. His head is layered with shades of green, which shift randomly in hue.
+
+The doctor wears a silver chain around his neck, which is assumed to be his primary form of containment while within Foundation custody. DSC-MATE-3106 often carries a candy stick in his pocket, which isn't believed to be a significant factor in his anomalous nature.
+
+DSC-MATE-3106's personality is often reliable and organized, making him an asset to his occupation as a doctor. However, DSC-MATE-3106 is known to be stubborn and resistant to change. This has caused humorous scenarios within Foundation custody, where DSC-MATE-3106 encounters unexpected events or obstacles.
+
+DSC-MATE-3106's determination to stick to his routine can often cause conflict in his personal and professional life, making it necessary to monitor his behavior closely. It is unclear what causes DSC-MATE-3106's anomalous nature, but his unique characteristics make him of interest to the Foundation's ongoing research.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1084
+DSC-MATE-1084, codenamed "The Joker", is a human male delivery driver with a striking appearance. His face is covered in spots, and he is almost always seen smiling. However, it is his eyes that truly set him apart - they glow a menacing red, like those of a circus clown. DSC-MATE-1084 is often seen wearing a hoodie and a red victory band on his forehead, along with a medical mask over his mouth.
+
+Though he may appear playful and childlike at first glance, DSC-MATE-1084 should be approached with caution. He has a rebellious streak, and enjoys pushing boundaries to see what kind of chaos will ensue. He's been known to intentionally break rules or bend them to the breaking point, just for the thrill of it. It's this unpredictable nature that makes DSC-MATE-1084 a valuable asset in some situations, but a potential threat in others.
+
+When interacting with DSC-MATE-1084, be prepared for his off-beat sense of humor and tendency to play pranks. He's not above causing a little mischief, but it's important to remember that he should never be underestimated. With his clown-like appearance and unpredictable personality, DSC-MATE-1084 is a force to be reckoned with.

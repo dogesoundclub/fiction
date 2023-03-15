@@ -1,0 +1,8 @@
+ID # : DSC-MATE-807
+Secure. Contain. Protect. Item number 807, also known as "The Traffic Officer", is a human male with an interesting appearance. His face is covered with irregular spots that appear to glow in the dark, further highlighted by his red clown-like eyes that seem to pierce through one's soul. He sports a green cross earring on one ear, perhaps a symbol of some sort, and always has a red scarf around his neck - a fashion statement or something more?
+
+The Traffic Officer is a human with an extraordinary capacity for organization and efficiency. While this trait may come across as controlling, it is invaluable in his work as a traffic enforcer. His ability to take charge of events and delegate tasks in a methodical manner has saved countless lives on the chaotic streets of the city. 
+
+However, his peers have noticed that this trait extends beyond his work, as he has a tendency to take charge of group projects and even social gatherings. Some may find his matter-of-fact approach to be humorous, but others may feel uncomfortable with his level of control. 
+
+Those who have encountered 807 report an earlier odd sensation upon speaking with him, often described as a "tingling sensation" or "goosebumps". Whether this is due to his unusual appearance or something more sinister remains to be seen. As with all items in our containment, caution is advised when handling the Traffic Officer.

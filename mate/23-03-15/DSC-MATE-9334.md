@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9334
+DSC-MATE-9334, known as the "Fashion Clown," is a male human with distinctive spots on his face. He is a fashion designer by profession, and can often be seen wearing normal glasses and a red scarf around his neck. DSC-MATE-9334's head is adorned with blonde hair, and he is always seen wearing a jade earring in one of his ears. 
+
+DSC-MATE-9334 often wears a medical mask, which makes communication difficult. However, they have a great sense of humor and enjoy making others laugh. DSC-MATE-9334 is known to tell funny stories and do silly impersonations to lighten the mood. Despite his humorous nature, DSC-MATE-9334 takes his fashion work seriously, and is highly skilled in his profession.
+
+DSC-MATE-9334's ability to make others laugh has led to some humorous situations, which has caused some concern among foundation personnel. DSC-MATE-9334's motives are currently unknown, but it is suspected that he uses his humor and fashion work to mask more sinister intentions. Extra care should be taken when interacting with DSC-MATE-9334 to avoid any potential risks. Proper security protocols must be in place at all times when dealing with DSC-MATE-9334.

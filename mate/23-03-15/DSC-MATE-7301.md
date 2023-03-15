@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7301
+DSC-MATE-7301, also known as the "Firefighter Monkey," is a male primate that has the unique ability to control and manipulate flames, which makes them an invaluable member of any firefighting team. However, what sets DSC-MATE-7301 apart from other primates is their striking appearance, marked by their distinctive red clown eyes and a disheveled green head that is not arranged in any particular way. 
+
+Despite their somewhat unusual appearance, DSC-MATE-7301 exudes a natural charm and charisma that draws others to them. They have a mischievous, outgoing personality that makes them the life of the party, often telling jokes or performing silly dances to make others laugh. 
+
+In addition to their unique appearance and personality, DSC-MATE-7301 also wears a pair of goggles on their forehead at all times, along with a red scarf and a normal gas mask. These accessories not only serve as a way to protect themselves from the hazards of their job but also add to their already distinctive appearance. 
+
+While DSC-MATE-7301 may seem like a playful and fun-loving creature, it is important to remember that they are a valuable member of the Foundation's team and should be treated with the utmost respect and caution.

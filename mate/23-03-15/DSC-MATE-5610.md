@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5610
+DSC-MATE-5610, also known as "The Mechanic Rabbit", is a sentient creature of the lagomorph species. Its appearance is consistent with that of a typical rabbit, with notable features including a purple cap adorned with a headset and a jade earring on its left ear. In addition, DSC-MATE-5610 is typically seen sporting a red scarf around its neck and carrying a whistle, which it uses to communicate with its coworkers and superiors.
+
+Despite its unassuming appearance, DSC-MATE-5610 possesses a remarkably caring and nurturing personality. It displays an eagerness to help others, often going above and beyond its assigned duties as a mechanic to lend a hand to its colleagues or take care of friends and family members in need. This can sometimes result in comical situations, as DSC-MATE-5610 has been known to act towards others as if they were its own children, regardless of their age or species.
+
+While DSC-MATE-5610's empathy and compassion are beneficial to its work at the facility, it is important to keep in mind that it is still a sentient species with its own needs and desires. Personnel are reminded to treat DSC-MATE-5610 with the same respect and consideration as any other sapient creature in the facility.

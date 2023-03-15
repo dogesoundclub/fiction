@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7516
+DSC-MATE-7516, also known as "The Forgetful Reporter," is a male human of average height and build. His attire typically consists of a retro cap and medical mask, which he wears at all times, even when conducting interviews. He is rarely seen without his silver chain, which he fidgets with when deep in thought.
+
+The Forgetful Reporter is known for his absent-mindedness and forgetfulness, which often results in comical situations. Despite his tendency to lose track of time and appointments, he is a skilled reporter who has broken several high-profile stories in the urban fantasy community.
+
+DSC-MATE-7516's forgetfulness, however, extends beyond simply missing appointments. He has been known to forget the names of key sources, the details of his own stories, and even important facts about the supernatural world he covers. His forgetfulness is not intentional, but rather a result of his intense focus on his work and his tendency to become lost in thought.
+
+The Forgetful Reporter is a valuable asset to the Foundation's urban fantasy division, but strict supervision is required to ensure that he does not compromise the secrecy of the supernatural world. Special care is taken to ensure that he remembers important details and remains on task. Despite his flaws, DSC-MATE-7516 is a valuable member of the team, and his contributions to the Foundation's work should not be underestimated.

@@ -1,0 +1,10 @@
+ID # : DSC-MATE-9188
+Subject designation number 9188, commonly known as "The Charismatic Lawyer," is a human female with a distinct appearance. Her face is adorned with bright orange stripes that contrast with her red clown eyes, giving her a playful yet mischievous appearance. Her head is topped with wild green hair that is always covered with a purple cap, and she proudly wears gold earrings and a chain around her neck. She can often be seen with a cigarette in her hand, exuding confidence and nonchalance.
+
+Despite her unusual appearance, the Charismatic Lawyer is renowned for her impressive legal skills and her ability to connect with people. Her hypnotic charisma draws people to her, making it difficult to resist her charm. She has an uncanny ability to read people and immediately establish a connection with them on a deep level. Conversation with her feels natural and effortless, and many are surprised at how much they confide in her.
+
+She is a mastermind of using her skills to charm her way to obtain the desired results in her cases, whether that means winning over a jury or negotiating with opposing parties. However, her tactics can sometimes land her in trouble, as she is known to ignore rules and bend the law to suit her end goals.
+
+The Charismatic Lawyer's personality is best described as bold, spontaneous, and witty. She is a natural entertainer and storyteller, always having a funny anecdote up her sleeve. Her ability to see humor even in challenging situations and her contagious laughter is why many people are drawn to her. However, do not let her playful demeanor fool you, as she can turn cold and calculating in the blink of an eye.
+
+In summary, subject designation number 9188, the Charismatic Lawyer, though seemingly benign, is a force to be reckoned with. Her charms and cunning mind make her a formidable ally and a dangerous enemy. Approach her with caution, for she is not to be underestimated.

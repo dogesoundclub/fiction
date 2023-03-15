@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5572
+DSC-MATE-5572, designated as "The Reliable Doctor," is a human male of unknown origin, possessing unique features that are anomalous in nature. His eyes are comprised of VR Jade LED, capable of displaying various images and visual data within his field of vision. Upon his head, he wears a Doge Hat, resembling the portrait of the Shiba Inu dog breed, and his ears are adorned with a Gold Earring. 
+
+The most notable aspect of DSC-MATE-5572's appearance is his Silver Chain accessory, which appears to be fused to his body and grants him the ability to instantly access an ample medical supply, as well as diagnostic equipment and other technological devices. According to the available data, DSC-MATE-5572 has a vast knowledge of medicine and is an expert in various fields of medical science. 
+
+DSC-MATE-5572 is incredibly reliable and organized, often putting his work above personal needs or desires. In the Foundation's custody, he has proven invaluable in treating various ailments and injuries of both humans and anomalous entities. However, DSC-MATE-5572's reluctance to accept new ideas and a strict adherence to his routines can result in some interesting situations, particularly when he encounters unexpected challenges or changes. 
+
+It is unknown how DSC-MATE-5572 gained his anomalous abilities, but his cooperation with the Foundation and passion for aiding others have earned him a place in our care. DSC-MATE-5572 is to be kept under strict surveillance and housed in a secure facility for the study of anomalous humans.

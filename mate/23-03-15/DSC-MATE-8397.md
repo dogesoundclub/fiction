@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8397
+DSC-MATE-8397 is a male humanoid entity that is classified as a highly dangerous villain. Upon initial inspection, DSC-MATE-8397 appears to possess humanoid features with a distinct green layered structure encasing the head and blue clown eyes. He is adorned with a silver chain and a cigarette, which adds to a menacing aura. DSC-MATE-8397 has shown to possess heightened strength and agility during combative encounters, and should be approached with extreme caution. 
+
+Interestingly, despite DSC-MATE-8397's harmful nature, they harbor traits that can be interpreted as nurturing and caring. DSC-MATE-8397 seems to possess a fondness for inanimate objects such as household appliances, plants, and vehicles. It has been observed that DSC-MATE-8397 could give these objects names and speak to them as though they were sentient beings. 
+
+DSC-MATE-8397's attachment to objects could lead to unpredictable and potentially dangerous situations. DSC-MATE-8397 may engage in acts of violence to protect the objects they hold dear or may become emotionally unstable and prone to irrational behavior when an object is lost or destroyed. 
+
+In conclusion, DSC-MATE-8397 should be treated as a highly dangerous entity that possesses unique and concerning characteristics. Exercise extreme caution when conducting interactions with DSC-MATE-8397, regardless of their seemingly nurturing disposition.

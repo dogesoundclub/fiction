@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3101
+DSC-MATE-3101, designated as the "Banker," is a human male with distinct facial features that have puzzled our agents. The subject's face displays alternating orange stripes and a mouth frozen in an expression of fear, which is particularly unsettling when paired with the subject's bright blue clown eyes. The Banker's head is adorned with a purple cap bearing a headset, and their ears are pierced with a green cross earring. 
+
+DSC-MATE-3101 is often seen wearing a gold chain and clutching a candy stick, which seems to be a coping mechanism for their introspective tendencies. This individual appears to spend a considerable amount of time lost in thought or daydreaming, leading to several incidents involving accidental injuries. 
+
+While the Banker's personality may seem harmless on the surface, their mental state remains a cause for concern. Their introspection may indicate a disregard for reality, making them a potential danger to themselves and others. As such, DSC-MATE-3101 must remain under close surveillance at all times.

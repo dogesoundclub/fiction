@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2682
+Item #2682, also known as "The Tiger Mechanic," is a male Tiger and expert mechanic. His frightened mouth and nerdy glasses give off a timid appearance, but do not be fooled: this tiger is a mastermind with a creative streak that sets him apart from others in his field. With his signature green hair hidden under a purple cap, a red victory band prominently displayed on his forehead, and a set of goggles at the ready, there is no project beyond his realm of expertise.
+
+Item #2682 is always accessorized with a gold earring and a silver chain, always at the ready to whistle commands to colleagues and supervising technicians. However, his talents do not end with his impressive mechanical abilities. With a vivid imagination, he enjoys hobbies that others in his species might consider unusual, such as writing poetry, crafting intricate and detailed cosplay costumes, and collecting rare and unusual objects from all over the world.
+
+Due to his exceptional skills as a mechanic combined with his somewhat eccentric personality, Item #2682 is highly respected and sought-after in many circles. However, those who underestimate him and his creative side tend to find themselves regretting it later. Proceed with caution, but be quick to put your trust in "The Tiger Mechanic."

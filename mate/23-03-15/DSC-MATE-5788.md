@@ -1,0 +1,9 @@
+ID # : DSC-MATE-5788
+DogeSoundClub Description for Security Guard Rabbit (ID: 5788):
+DSC-MATE-5788 is a sentient rabbit, standing at 3'4" and wearing a purple cap with a headset. This anomalous creature possesses red clown-like eyes that appear to be both hypnotic and intimidating to human observers.  DSC-MATE-5788 serves as a guard for the Foundation and has shown keen intelligence and skill in its duties. However, it should be noted that DSC-MATE-5788 possesses a strong sense of idealism and may protest or boycott any organization deemed as a threat to their perceived beliefs.
+
+When not on guard duty, DSC-MATE-5788 can be observed smoking a cigarette which may be a result of stress from the burdens of its responsibilities. DSC-MATE-5788's personality is known to be both endearing and humorous, with its tendencies towards moral righteousness often leading to amusing situations. However, any attempts to disrupt DSC-MATE-5788's ideals may result in behavior deemed as aggressive or even dangerous.
+
+As a sentient being, DSC-MATE-5788 exhibits remarkable cognitive abilities and has shown the ability to understand and communicate through human languages. Its unique abilities to hypnotize and influence others through its eyes have led to strict containment protocol with limited access to human personnel. DSC-MATE-5788's capabilities have been deemed both impressive and anomalous, thus justifying its classification as a Euclid class DSC.
+
+Overall, DSC-MATE-5788 serves as a valuable asset to the Foundation's security detail, and its unique personality and abilities add to the Foundation's growing knowledge of anomalous beings in the world.

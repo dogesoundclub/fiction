@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3322
+DSC-MATE-3322 is a human male, designated as a reporter for reasons unknown. His distinguishing features include a spot on his mouth, giving the appearance of a clown's makeup, and his blue clown eyes that seem to bore into your soul. His forehead is marked with a two-color band, and he sports a green cross earring, which appears to be of a foreign origin. DSC-MATE-3322 can often be seen wearing a silver chain around his neck and a normal gas mask over his face, making it difficult to read his expressions.
+
+Despite his alarming appearance, DSC-MATE-3322 possesses a deep empathy and understanding for others, especially for those who are suffering. Witnesses report he has been moved to tears or emotional outbursts when witnessing another's pain. Perhaps due to his affinity for empathy, DSC-MATE-3322 has a fondness for animals and nature. It is unclear if DSC-MATE-3322's empathic abilities are anomalous in nature, as no anomalous activity has been reported near him by field agents.
+
+Caution should be exercised around DSC-MATE-3322 as his personality suggests a level of unpredictability. Observers should also note that DSC-MATE-3322 appears to have certain interests or perhaps instincts related to the circus or carnival, as some of his features and mannerisms mimic those of a clown.

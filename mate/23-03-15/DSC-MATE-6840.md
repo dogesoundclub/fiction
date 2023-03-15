@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6840
+DSC-MATE-6840, also known as "The Mechanic", is a human male with an unusual appearance that sets him apart from typical members of his species. His most noticeable feature is a dark spot that covers the entirety of his mouth, which makes it difficult to decipher his emotions or expression. DSC-MATE-6840 is often seen wearing nerd glasses that obscure his eyes, along with a purple cap that houses his wild green hair. A red victory band is prominently displayed on his forehead, further emphasizing his oddness.
+
+Despite his unusual appearance, DSC-MATE-6840 is an excellent mechanic who takes his job seriously. He possesses a strong sense of duty and responsibility and will often go above and beyond to ensure that his employers' needs are met. However, he also knows how to have fun, and this often leads to comedic situations where he becomes the life of the party.
+
+DSC-MATE-6840's love for music is evident, as he always accessorizes with a gold chain and a jade earring, which he claims to have been passed down in his family for generations. He wears a medical mask when working to ensure he doesn't ingest any harmful dust or chemicals.
+
+Approaching DSC-MATE-6840 must be done with caution, as he is known to be unpredictable due to his love for unpredictability. Nevertheless, his lighthearted and easy-going nature is infectious and will undoubtedly make even the gloomiest of people feel better.

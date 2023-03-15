@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4072
+DSC-MATE-4072 is a humanoid of the Homo sapiens species, with distinguishing facial features of bold orange stripes and an infectious smile. Their eyes are commonly shielded by a sturdy pair of prescription glasses, and their head embellished with a retro cap, often displayed as a token of their vintage style. Notably, the subject is known to adorn a jade earring, adding a subtle yet alluring shimmer to their overall aesthetic.
+
+The subject's preferred accessory of choice is a cigarette, frequently held between their fingers whilst working on complex coding projects as a programmer. Despite a reputation as a solitary profession, DSC-MATE-4072 has demonstrated natural charm and charisma, drawing others towards them effortlessly. They are often the life of the party, always ready to tell a joke or perform a silly dance to lighten the mood.
+
+Caution is advised when interacting with DSC-MATE-4072, as their persuasive nature may lead to them manipulating those around them for their own benefit. Despite this, their positive impact on morale and camaraderie among work colleagues is undeniable.

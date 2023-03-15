@@ -1,0 +1,4 @@
+ID # : DSC-MATE-140
+DSC-MATE-140 is a female human police officer, identified by her distinctive orange stripes and red lips. Her blonde hair is accented by a mysterious wing on her head, and her ears are adorned with a green cross earring. DSC-MATE-140 is often seen wearing a gold chain. 
+
+DSC-MATE-140's personality is characterized by her analytical and logical nature. She enjoys debating and arguing with others, often over trivial topics that others may find unimportant. However, her ability to think critically and her sharp wit have proven to be useful in her line of work as a law enforcement officer. DSC-MATE-140 is a valuable asset to her team, able to maintain her focus even in the most hectic situations.

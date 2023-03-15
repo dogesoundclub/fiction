@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7730
+Subject #7730 is a curious specimen, appearing as a Human with distinguishing Orange Stripes delicately painting their face. Their Peak Spike head stands out from a distance, and the curious onlooker might notice the unsettled look on their face, with a Frightened Mouth being quite apparent. However, they adorn Gold Earrings and a Red Scarf, raising more questions about their exotic tastes.
+
+While interacting with Subject #7730, their quick wit and love for debate become apparent. They seem to enjoy engaging in humorous arguments with their loved ones and friends, just for the fun of it. However, one should remain cautious when conversing with them, as they have been known to be incredibly persuasive or downright stubborn.
+
+Further analysis of this specimen reveals an unusual habit of wearing an LED Gas Mask when showing properties, perhaps motivated by their unique aesthetic sense. Nonetheless, it is best to keep a careful eye on Subject #7730, for there might be more than meets the eye.

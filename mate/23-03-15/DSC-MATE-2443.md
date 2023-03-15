@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2443
+DSC-MATE-2443, also known as "The Charismatic Theater Manager," is a human male with distinct features that set him apart from normal individuals. His face is marked with peculiar spots that seem to shift and change in pattern depending on his mood. However, the most striking feature is his pair of Jade LED eyes that glow magnificently, giving him a sort of ethereal presence.
+
+DSC-MATE-2443's head is adorned with a peak spike that only adds to his distinctive appearance. It is advised that personnel do not engage in physical contact with DSC-MATE-2443 as the Spike is known to emit a powerful shock to those who get too close.
+
+DSC-MATE-2443 is always seen wearing a Normal Gas Mask, and although the reason for this is unknown, it is suspected that the Gas Mask is a necessary precaution for his unique abilities. DSC-MATE-2443 is known for his innate charm and ability to connect with others deeply. His charismatic nature often leads to humorous situations as he has a distinct talent for getting strangers to open up about their stories and share amusing anecdotes that bring people closer together.
+
+It is essential to exercise caution around DSC-MATE-2443 as his charm could be used to manipulate personnel, but it is also important to note the comfort and ease he brings to any given situation. DSC-MATE-2443 has been appointed as the Theater Manager due to these natural abilities, and his presence in the establishment has brought about an increase in attendance as well as positive reviews from patrons.

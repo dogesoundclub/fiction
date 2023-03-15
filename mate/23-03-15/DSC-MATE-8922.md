@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8922
+DSC-MATE-8922 is a humanoid entity identified as a female of the human species, with distinctive facial features including spots and a vibrant purple lip. The subject's eyes are a striking VR jade LED color, which appear to glow when in low light. DSC-MATE-8922's head is covered in a mass of green hair that curls at the edges, giving an almost electric appearance. Additionally, the subject frequently wears a pair of goggles on their forehead, although their purpose remains unknown.
+
+DSC-MATE-8922 is a practicing lawyer in the field of supernatural law and is thought to have connections to several powerful entities within the community. The subject's expertise in this field provides invaluable assistance to the Foundation in negotiating with anomalous beings.
+
+Personality-wise, DSC-MATE-8922 is a natural brainstormer and relishes crafting innovative and creative ideas. This propensity has led to many amusing situations, such as suggesting outlandish solutions to problems that others may find absurd or impossible. The subject is often seen smoking a cigarette while mulling over these ideas, completing the image of a brilliant legal mind at work. 
+
+Further investigation into DSC-MATE-8922's aberrant appearance is ongoing, as is research into their potential usefulness to the Foundation. For now, the subject remains a valuable asset to our efforts to navigate the complicated world of supernatural law.

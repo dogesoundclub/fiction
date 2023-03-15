@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4834
+Subject 4834 is a human of male sex and a successful fashion designer. His appearance is notable due to the presence of spots on his skin, which he complements with a bright pink hairstyle parted in the center. His ears are adorned with a jade earring, and he wears normal glasses to aid in his creative pursuits. However, what sets him apart from his peers is his constant smile that seems to brighten the room whenever he enters.
+
+While 4834's exterior is a lighthearted and colorful façade, his personality is what truly makes him intriguing. He possesses a deep and unwavering compassion for all living beings and inanimate objects alike. He is known to give his car a name, talk to his plants, and even assign personalities to his household appliances. Some may view this behavior as eccentric, but to 4834, it is a sign of his deeply empathetic nature.
+
+Research has revealed that 4834's nurturing tendencies stem from a childhood in which he faced significant isolation and neglect. As a result, he developed a strong attachment to the things around him, as they provided him with a sense of comfort and companionship he had been lacking. Now, as an adult, he channels this love into his creations, imbuing his designs with a touch of warmth and care that sets them apart from the rest.
+
+While DogeSoundClub agents must maintain a professional distance from their subjects, it is difficult not to be charmed by 4834's infectious smile and genuine kindness. He is a reminder that even in the darkest of worlds, there is always room for compassion and love.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4883
+Item #4883 is a human male, classified as a programmer by profession. One of the most striking features of this individual is the presence of spots scattered across their face, which only serves to accentuate the ever-present smile that seems to just barely reach their bright ski goggle eyes. The head, a vibrant purple hue, is made entirely out of metal, while a green cross earring adorns each ear. This is fitting, as this individual seems to live by a code of their own creation.
+
+On the forehead lies a simple but effective pair of goggles, ready to be used at a moment's notice. Item #4883 also sports a bright red scarf, which is often seen fluttering in the wind as cigarette smoke curls around their figure. It's clear that this individual values tradition, perhaps more than most. They may have a no-nonsense attitude at times, but there's an unmistakable playfulness lingering beneath the surface. 
+
+This playful side often manifests itself in humorous situations, such as telling jokes or stories that have been passed down through their family or community. Despite the metal exterior and perhaps rigid beliefs, there's a bit of whimsy present that can't be denied. It's hard not to be captivated by the energy that surrounds #4883, for better or for worse.

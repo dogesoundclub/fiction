@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4869
+DSC-MATE-4869 is a delivery driver of the human species, assigned to transporting various anomalous items and entities for the Foundation. They exhibit a distinct appearance, characterized by blue clown eyes that add an unsettling element to their overall look. Their head is adorned with dual pig tails, each adorned with a two-color band.
+
+In addition to their already jarring appearance, they wear a choker that appears to have a construct attached to it, emitting a low hum. The most striking aspect of their attire, however, is their LED gas mask, which they wear while on the job. The mask contains specialized optics designed to pierce through the most insidious of anomalies and provide them with a degree of protection against otherwise fatal hazards.
+
+DSC-MATE-4869's personality can be somewhat absent-minded and forgetful, particularly when engrossed in their work or lost in their thoughts. While their work ethic is unparalleled, their forgetfulness can lead to humorous situations where they forget important appointments or lose track of time, resulting in a perilous breach. Despite these quirks, DSC-MATE-4869 is a valuable asset to the Foundation and remains steadfast in their mission to keep anomalous entities secure.

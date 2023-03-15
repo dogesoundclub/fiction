@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9324
+DSC-MATE-9324, also known as "Hopper," is a male rabbit of unknown origin and age, currently employed as a security guard under the DogeSoundClub. His retro cap and jade earring are notable physical features, accompanied by a pair of goggles worn on his forehead. 
+
+DSC-MATE-9324 is a creative individual who enjoys expressing himself through various forms of art and elaborately detailed costumes. However, he is also a strict enforcer of rules, as demonstrated by the presence of his gold chain and whistle, which he uses to maintain order within the Foundation's facilities.
+
+While DSC-MATE-9324's personality may seem quirky and harmless, it is important to remember that he is a member of a highly regulated and dangerous environment. His whimsical nature often belies his keen mind, and his creative agility makes him a valuable asset in a variety of situations. 
+
+Foundation personnel are advised to treat DSC-MATE-9324 with the utmost respect, while remaining vigilant for any signs of suspicious behavior or potential security breaches. This is a reminder that in the world of DSC, even the cutest and most harmless of creatures can pose a significant threat to the delicate balance of the Foundation's workings.

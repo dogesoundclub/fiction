@@ -1,0 +1,4 @@
+ID # : DSC-MATE-9797
+DSC-MATE-9797 is a human female, identified as a lawyer. Her most striking feature is her red lips, which draw attention to her face, topped with two pigtails. Mounted onto her ears are green cross earrings, which resemble talismans used in ancient magic. Completing her ensemble is a black choker around her neck, adding to her mysterious persona.
+
+Despite her serious profession and stoic demeanor, DSC-MATE-9797 is renowned for her sense of humor, making use of her dry wit and deadpan delivery to catch her audience off guard. Disrupting her quiet demeanor, her jokes can be surprisingly hilarious and are often the highlight of any gathering. Approach her with caution, as you may become the subject of her next sarcastic remark.

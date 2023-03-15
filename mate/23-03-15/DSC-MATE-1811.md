@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1811
+DSC-MATE-1811 is a female human identified as a beautician whose appearance is highlighted with unique features. Her face dons spots and a bold red lip, but it's her unusual VR jade LED eyes that capture most people's attention. Her head is crowned with a striking blonde hairdo accentuated with an ethereal wing. Her red cross earring adorns her ears as a symbol of a deep belief system. Atop her mouth is a medical mask.
+
+One of her distinctive accessories is a silver chain that always adorns her neck. While DSC-MATE-1811's looks command attention, her confidence, and decisive personality is something that one cannot ignore. However, this demeanor sometimes comes off as bossy or intimidating. However, DSC-MATE-1811 is only driven to ensure that things are accomplished to the best of her ability. 
+
+In conclusion, DSC-MATE-1811 may have a commanding presence, but it stems from her desire to make sure things are done right. With her beauty expertise and unwavering resolve, she would be a valuable asset to any urban fantasy novel.

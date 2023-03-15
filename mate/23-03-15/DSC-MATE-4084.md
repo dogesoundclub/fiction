@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4084
+DSC-MATE-4084, known by his nickname "Graffio", is a human male with striking orange stripes running down his face. Sporting a mohawk, his most distinguishing feature is a unique two-color band on his forehead. He wears a pair of normal glasses that cover his eyes, but sometimes pairs it with an LED gas mask for a unique fashion statement. A silver chain adorns his neck, adding to his overall aesthetic appeal. 
+
+Don't let his artistic passions and funky fashion choices fool you, for Graffio is a skilled programmer with a sharp mind fit for the Foundation's finest projects. However, he's not one to shy away from his creative side, and would often immerse himself in hobbies such as painting, drawing, and writing. Whatever medium he chooses, he never fails to leave a mark with his bold and unique style. 
+
+Despite being outstanding in his field, Graffio doesn't let his talents go to his head. He's sociable and down-to-earth, making him easy to approach for colleagues and friends alike. When not working on a project, he's often seen happily chatting or joking around with others, always with a smile on his face. 
+
+But don't let his friendly demeanor fool you - this programmer is not one to mess with. With a sharp wit and a no-nonsense attitude when it comes to his work, Graffio is a valuable asset in the Foundation's arsenal. And with his colorful personality and artistic flair, he's a unique addition to the Foundation's ranks.

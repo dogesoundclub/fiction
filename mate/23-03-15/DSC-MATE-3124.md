@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3124
+DSC-MATE-3124, also known by her human name Sarah, is a fast food worker with a notable appearance that catches the eye. Her spotted face and purple lip, alongside orange eyebrows and green hair in a purple cap, make her stand out in any crowd. However, what truly makes her unique is the two-color band on her forehead and the goggle-like accessory resting firmly above her eyes.
+
+One can't overlook her red cross earring, which dangles from her ears, or the shimmering silver chain adorning her neck. Despite her eccentric appearance, DSC-MATE-3124 remains approachable and friendly, with a love for adventure and an appetite for trying new things. 
+
+She has a mischievous streak and enjoys taking risks, making her the source of many humorous stories, like the time she survived a near-death experience while bungee jumping or got accidentally lost in the wilderness. Despite the potential dangers she may have faced, DSC-MATE-3124 always soldiers on with an admirable zeal and an infectious joie de vivre that commands the respect and admiration of those around her.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1832
+DSC-MATE-1832 is a human fast food worker with several distinct physical features. Their face is marked with a series of distinctive spots, with a singular purple lip standing out prominently against their fair complexion. Their blue clown-like eyes shine with an almost unnaturally bright sheen, giving DSC-MATE-1832 a distinct and unmistakable appearance. Their head is adorned with two long, curly pig tails, and their ears are pierced with a single red cross earring. 
+
+In addition, DSC-MATE-1832 wears a silver chain as an accessory, adding an extra layer of uniqueness to their appearance. However, DSC-MATE-1832's personality is where they truly stand out. They exude an almost boundless energy and enthusiasm, often trying to get others excited about even the most mundane of things. 
+
+While this can lead to some humorous or lighthearted interactions, it should be noted that DSC-MATE-1832's enthusiasm can also become overwhelming or irritating to those around them. Despite this, DSC-MATE-1832 remains a consistently optimistic and upbeat individual, bringing a certain lightness to any situation they find themselves in. Overall, DSC-MATE-1832 is a unique and colorful individual that is sure to draw attention wherever they go.

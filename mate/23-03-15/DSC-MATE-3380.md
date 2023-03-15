@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3380
+Subject 3380 is a fast food worker of the human species, with distinct features that set them apart from others. The subject's face features bright orange stripes, which are in stark contrast to the smile present on their face. The eyes of the subject are obscured by normal glasses, which only add to the mysterious persona the subject portrays. However, atop their head sits none other than a pink rabbit, which only emphasizes the eccentricity of the subject. Adding to this are the red cross earrings that pierce the subject's ears, which could mean they possess some sort of medical knowledge or training.
+
+Despite their unusual appearance, subject 3380 is a highly analytical and logical individual. They enjoy engaging in debates or arguments for fun, even if the topic is trivial or unimportant to others. However, this could lead to humorous situations in which the subject engages in heated debates with others over seemingly irrelevant topics.
+
+Further observation is necessary to determine any other anomalous properties that subject 3380 may possess.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8
+DSC-008 is a rabbit of undetermined age, standing approximately 1.5 meters tall on hind legs. Identified as a beautician by trade, DSC-008 is often seen sporting a gold chain around their neck, and a normal gas mask over their face. Their eyes are that of a clown's, with vibrant crimson coloring, and they sport a jade earring on their right ear. 
+
+DSC-008's personality is unique amongst other rabbits, as they have shown to possess a high degree of practical problem-solving skills. Their resourcefulness has led them to become quite adept at repairing broken objects using unconventional methods such as duct tape or paper clips. In situations where others may be stymied by a complex problem, DSC-008 has shown an uncanny ability to think outside the box, devising makeshift solutions on the fly. 
+
+With their practicality and unconventional style, DSC-008 brings a unique perspective to any situation. However, it is advised to exercise caution around them, as their behavior can be unpredictable and unorthodox. DSC-008 is to be kept in a secure containment chamber at all times and is not to be released without explicit permission from the Site Director. Any contact with DSC-008 requires the use of appropriate protective gear due to the unknown properties of their gas mask.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9722
+DSC-MATE-9722, also known as "The Rabbit Train Driver", is a humanoid anomaly of the human species. She has a distinctive purple lip and wears normal glasses to enhance her vision. However, her most striking feature is her head, which takes the shape of a pink rabbit, and her red cross earring-shaped ears. 
+
+DSC-MATE-9722's behavior is unpredictable as she tends to be very organized and likes to plan ahead, yet has a spontaneous side. It is this unpredictability that makes her presence unique and even humorous at times. Her ability to surprise her friends and colleagues with impromptu adventures and last-minute party planning can lead to unexpected excitement and joy.
+
+It is for this reason that DSC-MATE-9722's containment is of utmost importance. Her chain of gold is used to control and monitor her movements as well as prevent her escape. Despite her human appearance, the rabbit head and cross earring ears are unnatural, leading the Foundation to believe that there might be something more to her origin than what meets the eye.
+
+DSC-MATE-9722 has been assigned to work as a train driver, which she handles with professionalism and seriousness. However, the Foundation remains cautious in ensuring her containment, and her ever-changing personality makes containment even more challenging. Only with continued monitoring and caution can the Foundation maintain control over DSC-MATE-9722.

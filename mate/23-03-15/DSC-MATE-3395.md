@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3395
+DSC-MATE-3395 is a tiger of the male sex, standing at approximately 2.5 meters tall and weighing roughly 300 kilograms. Its eyes are reminiscent of ski goggles, with two circular lenses that constantly shift focus to maintain keen vision. DSC-MATE-3395 is also draped in a pale-blue bandana that is adorned with patches of flame imagery. 
+
+Apart from its visual attributes, DSC-MATE-3395 also has a distinctive feature on its forehead. A small set of goggles are lodged between its fur, yet serve no practical purpose. Attached to its mouth is a candy stick that DSC-MATE-3395 frequently gnaws on while working. It is notable that DSC-MATE-3395 is a professional firefighter who is commonly deployed to suppress urban blazes, and seems to have undergone extensive training to fit this role.
+
+DSC-MATE-3395 is known for their strong sense of duty and responsibility, putting forth maximal effort to ensure the safety of others. However, their zealous behavior can occasionally lead them to take on impossible tasks that exceed their physical boundaries. As a result, DSC-MATE-3395 can be prone to making amusing mistakes during missions, such as attempting to carry too many items at once or working with an over-reliance on allotted time.

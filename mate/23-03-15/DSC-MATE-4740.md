@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4740
+Subject 4740 is a male tiger with a distinct penchant for human artifacts. His face bears a perpetual expression of trepidation, as if expecting the next moment to bring about disaster. Peering through a pair of nerd glasses, subject 4740 often carries himself with the demeanor of a weary scholar. His head is adorned with a police cap, fitting the image of a seasoned enforcer. 
+
+Carrying two accessories with him at all times, subject 4740 dons a glimmering gold chain that cascades along his chest, complementing his striped fur. A lit cigarette is a near-permanent fixture dangling from his jaws, serving as a constant source of relief from his otherwise perpetually clamorous thoughts. 
+
+Despite his introspective gaze and mild demeanor, subject 4740 is most susceptible to displays of raw emotionalism. Often found listening to cathartic music or keenly soaking up the nuances of artful works, this tiger can be moved to tears by striking emotional moments in movies or TV shows. 
+
+It is advised to approach subject 4740 with a measured and cautious demeanor, as his proclivity towards emotive expression can drastically alter his moods with little warning. Any attempts to disarm, pacify or apprehend this individual should be done so while taking the appropriate precautions, as his emotional fluctuations can obscure his otherwise keen senses. Handle with care.

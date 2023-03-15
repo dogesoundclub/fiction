@@ -1,0 +1,4 @@
+ID # : DSC-MATE-8282
+DSC-MATE-8282 is a police officer of the rabbit species. Identified by its frightened mouth and blue clown eyes, DSC-MATE-8282 wears a jade earring on each ear and a red scarf as its official uniform. Moreover, it always carries a candy stick on its hand, which has been observed to calm the DSC-MATE-8282 when dealing with stressful or precarious situations. 
+
+DSC-MATE-8282's behavior is unpredictable, and it appears to be commonly forgetful and easily sidetracked. As such, it is not uncommon for DSC-MATE-8282 to forget about important assignments or get lost trying to reach new locations. Nevertheless, DSC-MATE-8282's endearing personality has earned the trust and admiration of its peers, who regard it as a valuable member of the group. DSC-MATE-8282's current behavior and traits do not pose any risks to regular human interaction, and its existence can coexist in harmony with the general human population.

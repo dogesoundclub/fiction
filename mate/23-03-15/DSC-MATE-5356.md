@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5356
+DSC-MATE-5356 is a human female, a fast food worker from an undisclosed location. Subject's face is adorned with irregular spots, but is a striking contrast to the bright red lipstick worn on the lips. The subject's eyes are normally concealed behind conventional eyeglasses, but nothing is unusual with these.
+
+The head of DSC-MATE-5356 appears to be cut into a short wavy style that harkens back to the appearance of classic witches, spelling an element of mystery in the appearance of the subject. A green colored earring, in the shape of a cross, adorns the ears of DSC-MATE-5356.
+
+The mouth of subject DSC-MATE-5356 is covered with a medical face mask, which seems to be a staple in the current pandemic scenario. Subject's personality is what sets DSC-MATE-5356 apart. The subject possesses a dry sense of humor that often goes unnoticed, catching people off guard. Even though the subject is not inclined towards eccentricity or flamboyance, her ability to deliver deadpan jokes is remarkable and often can be sarcastically humorous.
+
+It remains unclear whether DSC-MATE-5356's peculiar appearance and enigmatic sense of humor are part of any anomalous activity, as no anomalous effects have been witnessed so far. However, further investigations by the DogeSoundClub are underway to determine if there are any possible dangers related to DSC-MATE-5356's presence in society.

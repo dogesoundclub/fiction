@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2750
+DSC-MATE-2750, codenamed "The Firefighter," is a human male with a distinctive appearance. His mouth is eternally fixed in a state of terror, as if he is staring death in the face. His eyes are a haunting array of VR Rainbow LEDs, that glow eerily in low light. He often wears a black hoodie, concealing his identity from view. 
+
+Despite his unnerving appearance, DSC-MATE-2750 is an esteemed firefighter, renowned for his quick thinking and bravery in the face of danger. His analytical skills enable him to determine the best course of action in any given situation, often saving innocent lives from the ravages of fire. 
+
+When not battling flames, DSC-MATE-2750 can be found sporting a silver chain, adorning his hooded attire with an air of mystery. His quirky sense of humor may manifest itself in the form of witty observations or dry, deadpan humor that often catches his comrades off guard. 
+
+DSC-MATE-2750 is an enigma, a formidable presence in the firefighting community. They remain a valuable member of the Foundation and are to be monitored at all times. Caution is advised when interacting with DSC-MATE-2750, as their intense personality can be unsettling to those not accustomed to their peculiar mannerisms.

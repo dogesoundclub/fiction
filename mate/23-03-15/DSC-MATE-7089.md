@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7089
+DSC-MATE-7089 is a human doctor of unknown origin with highly unusual physical characteristics. This subject can be identified by a distinctive mouth spot that appears to be a small patch of discolored skin located just above the upper lip. DSC-MATE-7089 also possesses blue clown eyes, which are highly reflective and appear to glow in low light conditions. The head of DSC-MATE-7089 is frequently seen adorned with a bucket hat, while a red victory band is often observed on their forehead.
+
+DSC-MATE-7089 has been deemed to have a dry sense of humor that can catch people off guard. Despite not being the life of the party, he has a knack for delivering deadpan jokes that are surprisingly funny. This subject's humor could be seen as an effective coping mechanism, as DSC-MATE-7089 is known to work in high-stress environments.
+
+This subject is also frequently seen wearing a Jade Earring in their right ear, which is believed to be an artifact of unknown origin. Researchers have yet to determine the properties of this earring, though it appears to exhibit anomalous properties when examined under controlled conditions.
+
+DSC-MATE-7089's anomalous properties are still being studied, and further research is necessary to determine its origins and abilities.

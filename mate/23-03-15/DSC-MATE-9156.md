@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9156
+DSC-MATE-9156, also known as "The Don," is a feared Mafia Boss operating in the urban landscape. His human appearance is deceptive, as he possesses several unique features that make him stand out from the crowd. The most prominent is a series of spots on his face, which seem to be arranged in a peculiar pattern. However, these spots pale in comparison to the one feature that draws the most attention, that is his smile. DSC-MATE-9156's smile is both captivating and intimidating, making it difficult to read his intentions.
+
+His eyes are a different matter altogether. In place of the normal human iris and pupil, they are now replaced with a VR Jade LED interface which flickers occasionally, giving his gaze a surreal, otherworldly quality. His ears have a distinct personality as they showcase a gold earring on one side. The charismatic Don also adorns himself with a gold chain, adding an extra layer of mystique to his appearance.
+
+Despite his imposing posture and ruthless reputation, DSC-MATE-9156 can be surprisingly reliable and organized. Still, there is a stubbornness to him that makes it hard to persuade him to new ideas or routines, and he clings tightly to his established ways of conduct. This stubbornness can sometimes get him into humorous situations, especially when faced with unexpected challenges or change. 
+
+Extra caution is advised when encountering DSC-MATE-9156 as he is a notorious figure with a sharp mind and quick reflexes. His complex personality, along with his unique appearance, makes him one of the most intriguing individuals to cross the path of the Urban Fantasy World.

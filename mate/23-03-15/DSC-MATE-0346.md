@@ -1,0 +1,8 @@
+ID # : DSC-MATE-346
+DSC-MATE-346, also known as "The Tiger Driver," is a male humanoid tiger with a frightened expression on his mouth. His keen eyes, however, remain shrouded in mystery. His head fur is unkempt and not arranged well, giving the impression of a wild and untamed nature. He wears a pair of goggles on his forehead, which he uses during deliveries to reduce glare from oncoming headlights. Strikingly, he also sports a jade earring on each ear, a rare sight for tigers.
+
+The Tiger Driver always wears a medical mask, even before the global pandemic. He is known to be a very caring and nurturing individual, extending that care to everything he comes in contact with. He affectionately names his delivery truck and his plants, often engaging them in conversations. He even seems to anthropomorphize his kitchen appliances, giving his toaster "a personality."
+
+DSC-MATE-346 carries a silver chain around his neck, which many speculate has been handed down to him from his ancestors. His personality is gentle and calming, having an effect on those who encounter him. However, there have been reports of unusual activity during his deliveries, and a few witnesses have claimed that his eyes emit an eerie glow under certain circumstances.
+
+So far, the purpose of the silver chain and the source of the Tiger Driver's powers remain unknown. Nonetheless, the Foundation continues to monitor him closely as a potential anomaly.

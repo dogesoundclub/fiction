@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3562
+DSC-MATE-3562, also known as "The Fashion Designer", is a humanoid entity that appears to be of human origin. Despite her seemingly normal appearance, she possesses a unique set of physical features that differentiate her from others. Most notably, DSC-MATE-3562 has spots on her face, which appear to be of an unknown origin. Furthermore, her eyebrows are orange, giving her a distinctive look.
+
+DSC-MATE-3562's head is covered in 90s brown hair, which is often kept in place with a goggle-like accessory that sits atop her forehead. The entity is often adorned with a gold earring, which seems to be of significant importance to her. Additionally, DSC-MATE-3562 is known to wear a choker and an LED gas mask, which adds to her mysterious and somewhat intimidating appearance.
+
+Despite her outward appearance, DSC-MATE-3562 is known for having a strong sense of empathy and is often attuned to the emotions of those around her. She has a knack for making people feel better and has a sense of humor that often helps others see the brighter side of difficult situations. DSC-MATE-3562's ability to connect with others makes her a valuable asset in the Foundation's efforts to contain and study anomalous entities.

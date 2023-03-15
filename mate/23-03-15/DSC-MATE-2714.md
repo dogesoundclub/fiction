@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2714
+Subject 2714, also known as "The Delivery Driver", is a human female with unique features. She is identified by her signature spots, blue metal head, and green cross earrings. Her forehead carries a pair of goggles, and she wears a pair of normal glasses. However, the most striking feature about her is the LED gas mask she wears, which illuminates her face with an eerie glow.
+
+The Delivery Driver is a tough and decisive character who exudes an air of confidence and authority. She is known for her bossy and intimidating nature towards others, but those who know her understand that it is all about efficiency and effectiveness. This behavior is most evident in her profession as a delivery driver, where time is the essence, and there is no room for error.
+
+Despite her assertiveness, The Delivery Driver has a soft spot for the supernatural. She is well-versed in the ways of the otherworldly and is always on the lookout for new clients that require her services. Her LED gas mask is a testament to her knowledge and experience dealing with the paranormal.
+
+In summary, The Delivery Driver is a unique and formidable character whose presence commands respect. Her unconventional appearance and personality make her stand out in any crowd, and her reputation as a skilled delivery driver and paranormal expert precedes her. DogeSoundClub recommends caution and respect when dealing with her.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-95
+Subject 95, also known as "The Clown," is a Humanoid Anomalous Entity (HAE) and classed as a priority villain by the Foundation. This male entity is identifiable by his distinct Clown Mouth, blue Clown Eyes, and Bucket Hat on his head. Adorned with a Gold Earring, a Silver Chain, and an LED Gas Mask, The Clown presents a menacing figure with his eclectic appearance.
+
+The Clown's most striking feature is his ability to conjure and manipulate hallucinations and illusions, using his exceptional imagination and creativity to create vivid and lifelike phantasms. Rumoured to have been the mastermind behind several criminal enterprises, The Clown is known for leveraging his abilities to cause confusion and chaos, making him an unpredictable adversary.
+
+As mentioned in his personnel file, The Clown has a penchant for hobbies and interests that extend beyond his villainous pursuits. He has been observed to engage in writing poetry, creating elaborate cosplay costumes, and collecting unusual objects even during imprisonment. His creativity and originality have been touted as his greatest strengths, making him a unique and formidable opponent.
+
+Per protocol, unauthorized access to The Clown's cell is strictly forbidden, and interactions with him are limited to minimal contact for the safety of all personnel involved. We advise all personnel to approach with extreme caution and maintain constant surveillance at all times.

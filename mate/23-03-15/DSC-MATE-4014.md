@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4014
+DSC-MATE-4014, also known as "Sparky," is a male electrician who underwent a transformation after exposure to unknown supernatural forces. He now presents as a Siberian tiger, complete with striking orange fur and black stripes. His eyes are a set of green ski goggles, metal frame and adjustable strap included. The tiger's ears are adorned with an imposing red cross earring, as if to signify his commitment to his craft.
+
+In addition to his feline features, DSC-MATE-4014 sports a few unusual accessories. A bright red scarf is wrapped around his neck, serving as both a fashion statement and a practical means of identifying himself to his clients. However, it is his LED gas mask that truly sets him apart. A functional tool for his occupation, the gas mask is customized with neon green lights that illuminate when in use.
+
+Despite his intimidating appearance, DSC-MATE-4014 is known for his dry sense of humor. He has a knack for deadpan delivery that frequently catches his colleagues and clients off guard. It is rumored that he can often be found exchanging jokes with the spirits that roam the abandoned buildings he frequents, some even claiming that he has developed a rapport with the supernatural entities.
+
+DSC-MATE-4014 may not view himself as the life of the party, but his humor and enigmatic persona have made him a beloved figure in his line of work. He is often sought out for his expertise in electrical matters, but it is his captivating personality that keeps others coming back for more.

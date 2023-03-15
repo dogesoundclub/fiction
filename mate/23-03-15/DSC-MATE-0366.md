@@ -1,0 +1,8 @@
+ID # : DSC-MATE-366
+DSC-MATE-366, also known as "The Bunny News Anchor," is a humanoid creature of the human species. She stands at 5'7" and presents a cheerful appearance, with a contagious smile constantly stretching across her face. Be warned, however, for behind her gaze is a pair of blue clown eyes that seem to follow you even when you look away.
+
+Where her head should be is that of a pink rabbit, complete with a set of long ears that twitch at the slightest sound. Her forehead is adorned with a 2 color band, indicating her position in the news channel hierarchy. She wears a green cross earring on her right earlobe- the cross often reflecting on her eyes, adding an eerie touch to her appearance.
+
+Although DSC-MATE-366 appears reliable and organized, she can be quite stubborn. She clings to routines and struggles with accepting new ideas- a trait that can lead to amusing situations when she encounters unexpected changes. Despite this behavior, she maintains a primary position in the news channel's anchor team- an indication of her skills and dedication.
+
+Handle with care, for DSC-MATE-366 remains a mystery, a creature with behaviors outside of human norms- a trait that makes her all the more fascinating.

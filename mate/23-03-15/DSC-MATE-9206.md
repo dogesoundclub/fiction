@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9206
+DSC-MATE-9206, also known as "The Charismatic Doctor", is a human male with a noticeable appearance. He is often seen wearing a red beanie on his head and nerd glasses on his eyes. His unique look is completed with a jade earring on his ear and a cigarette hanging from his mouth. DSC-MATE-9206 possesses a rare talent in connecting with others on a deep level. This skill of his allows him to be charismatic and capable of making people open up to him.
+
+DSC-MATE-9206's ability to create memorable moments sometimes leads to humorous situations where strangers share their life stories or amusing anecdotes that makes them closer to one another. This trait in him is useful in his job as a doctor, as he can quickly gain his patients' trust and make them comfortable discussing their health concerns. 
+
+DSC-MATE-9206's demeanor is captivating, and he is known to hold the attention of any room he walks into. His charisma can even affect those in his immediate vicinity, making them more susceptible to trusting him. DSC-MATE-9206's charm, combined with his passion for medicine, makes him an invaluable asset to his colleagues in the Foundation.

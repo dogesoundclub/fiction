@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4003
+DSC-MATE-4003 is a theater manager of undetermined location and establishment. She appears to be a normal, human female, but upon closer examination, has distinct and peculiar facial features. Most notable is her orange-striped skin, accompanied by an unusual purple lip. Her head is adorned with green hair, which appears to be braided or tied in a ponytail and encased in a purple cap. DSC-MATE-4003’s forehead displays two bands of contrasting colors, though their significance is unknown. 
+
+DSC-MATE-4003 wears a jade earring in each ear, adding just a touch of elegance to her otherwise eccentric appearance. She has a penchant for chokers, which she wears frequently, and is often seen with a cigarette in hand. It is unknown whether DSC-MATE-4003 has a smoking habit or if the cigarette serves as a prop. 
+
+Personality-wise, DSC-MATE-4003 is known for her strong sense of duty and responsibility. However, she also possesses a certain charm that allows her to know when it’s time for work and when it’s time to have fun. DSC-MATE-4003 has been known to lighten the mood at social gatherings, getting everyone involved in the festivities, whether that means dancing or singing along to her favorite songs. 
+
+Despite her unusual appearance, DSC-MATE-4003 is an accomplished professional, and her skills as a theater manager are unparalleled. It is recommended that all interactions with DSC-MATE-4003 remain professional and respectful, and that any inquiries regarding her physical characteristics be avoided unless necessary for research purposes.

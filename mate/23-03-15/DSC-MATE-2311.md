@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2311
+DSC-MATE-2311 is a Traffic Officer assigned to monitor busy intersections and high-volume roads within major urban centers. At first glance, they appear to be a common Capuchin monkey, often seen wearing a blue bandana to protect their face from the harsh sun and pollution. However, a closer examination of the subject's physical attributes reveals some anomalous features.
+
+DSC-MATE-2311's frightened mouth is a constant expression, possibly indicating a sense of fear or apprehension. Their eyes are protected by ski goggles, which seem to offer no additional benefit beyond protecting the subject's vision from debris and dust. DSC-MATE-2311 also has an additional pair of goggles perched atop their forehead, which may serve as spare or backup equipment.
+
+Despite their diminutive stature and beastlike appearance, DSC-MATE-2311 has an active personality that often leads to impulsive actions. They tend to act on their emotions and instincts, making spontaneous decisions that others may find amusing or surprising. This behavior has often resulted in humorous encounters with other DSC entities, as DSC-MATE-2311 seems to have a particular talent for breaking the tension with their impromptu antics.
+
+While their abilities and limitations are still under observation, DSC-MATE-2311 continues to serve as a valuable asset to the Foundation's efforts in maintaining order and security within urban environments. However, caution should be taken when interacting with the subject, as their unpredictable nature may manifest in unexpected and potentially dangerous ways.

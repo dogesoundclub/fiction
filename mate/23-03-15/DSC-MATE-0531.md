@@ -1,0 +1,6 @@
+ID # : DSC-MATE-531
+DSC-MATE-531 is a human female whose unique appearance has been described as both striking and unsettling. Her skin is covered in an array of spots, making it seem as if she is constantly splattered with paint. Her eyes are a piercing orange, and her eyebrows match in color. DSC-MATE-531 keeps her hair dyed green and styled in a purple cap, a fashion choice that has prompted some Foundation personnel to nickname her "the jester." She also wears a pair of jade earrings, which she claims bring her good luck.
+
+Despite her unusual appearance, DSC-MATE-531 leads an unremarkable life as a beautician. She is a reliable and organized worker, with a keen eye for detail. However, her colleagues and clients have noted that she can be stubborn and resistant to change. She clings tightly to routines and can become flustered when faced with unexpected challenges.
+
+DSC-MATE-531 has displayed no anomalous abilities or traits, but her appearance and behavior have raised concerns among some Foundation personnel. Further investigation is ongoing.

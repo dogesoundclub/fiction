@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7382
+DSC-MATE-7382 is a human female with the identification number 7382. They work as a train driver, responsible for ferrying commuters through the bustling city streets. Their face features prominently red lips that contrast sharply with the rest of their not arranged green head. Their VR Jade LED eyes glow with an otherworldly sheen, captivating and hypnotizing those around them. Swaying from their jade earring, they dangle a silver chain, which seems to glitter in the dimly lit tunnels.
+
+However, their most notable accessory is the the medical mask that covers their mouth. While it might seem like a routine precautionary measure in these times of widespread disease, it serves a much deeper purpose- to protect the unsuspecting mortals from DSC-MATE-7382's anomalous ability. DSC-MATE-7382 possesses the ability to emit psychic energies that can result in mild to severe hallucinations in their victims. 
+
+DSC-MATE-7382 is a charming individual and values social connections and harmony above everything else. They are approachable and possess a goofy side that surfaces every now and then, often leading to humorous situations. Their penchant for telling jokes or engaging in playful banter with others makes them a favorite among their peers.
+
+It is essential to monitor DSC-MATE-7382 closely as they pose an inherent threat to the uninitiated. Their telepathic powers could potentially wreak havoc and cause mass hysteria; therefore, it is crucial that they remain under constant surveillance.

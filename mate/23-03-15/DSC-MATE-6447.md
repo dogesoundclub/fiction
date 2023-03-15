@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6447
+Subject 6447, also known by their human identity as a Mechanic, possesses distinctive orange stripes on their face, which are seemingly some form of tribal marking. The subject also adorns a jade earring on their ear, adding to their mysterious allure. However, their most intriguing accessory is undoubtedly the golden chain that adorns their neck, infusing them with an undeniable sense of wealth and status that sparks curiosity amongst their acquaintances.
+
+Despite their enchanting appearance, Subject 6447 is known to be somewhat forgetful at times, causing many a comic misadventure when they simply cannot remember important appointments or get lost while trying to find new places. However, their scatterbrained nature should not be underestimated, as they possess intelligence and expertise that are unmatched by many of their peers.
+
+Further adding to their charm, the subject is often seen carrying a candy stick, which serves as their good luck charm and a soothing balm to their anxiety. Overall, Subject 6447 is a captivating individual who exudes an air of mystery and brilliance that is hard to resist.

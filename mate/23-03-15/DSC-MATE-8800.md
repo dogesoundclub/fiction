@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8800
+Subject 8800, designated as "Guardian" by the Foundation, exhibits a unique appearance with their striking orange stripes and jade earring adorning their ears. The subject's head is not arranged in the typical fashion, a green hue unusual for human beings. A medical mask obscures the subject's mouth, serving to protect themselves and others from any potential infections.
+
+The most distinctive feature of this subject is the outlandish goggles situated firmly on their forehead. It is unknown if they serve a practical purpose, as Guardian's job as a security guard does not require such equipment. Nevertheless, this detail only adds to the intriguing nature of this individual.
+
+Guardian's personality is highlighted by their natural brainstorming abilities and their penchant for coming up with creative solutions to problems. While this trait can be invaluable in situations that require quick thinking, it also leads to moments of levity as Guardian suggests outlandish ideas for solutions simply to gauge reactions. 
+
+Despite their proclivity for humor, Guardian is serious and dedicated to their job, ensuring the safety and security of all individuals within the Foundation's confines. With their commitment to the Foundation's cause and their unique characteristics, Guardian proves to be an invaluable asset to any operation.

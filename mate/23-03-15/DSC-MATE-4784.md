@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4784
+DSC-MATE-4784, also known as the "Monkey Salesman," is a male primate with blue clown eyes. He is a knowledgeable creature with a thirst for learning and an insatiable desire for gathering knowledge. DSC-MATE-4784 has been observed spending most of his time reading and researching obscure topics, collecting books, documentaries, and other educational materials, and consuming them voraciously.
+
+DSC-MATE-4784's passion for sharing his knowledge with others is unparalleled, and he can become animated and expressive when discussing his findings. However, his delivery can be somewhat uncoordinated, often meandering off-topic or getting sidetracked with tangential information. DSC-MATE-4784's lack of social grace has sometimes earned him the reputation of tedium among those who do not share his fascination with rare and arcane knowledge.
+
+Despite his atypical appearance, DSC-MATE-4784 has been able to disguise himself as a human with startling ease, and his occupation as a car salesman has proven unexpectedly successful. He uses his extensive knowledge of the automobile industry to earn the trust of his customers and close deals with persuasive arguments.
+
+DSC-MATE-4784 is generally cooperative and poses no threat to Foundation personnel. However, his curiosity and fascination with the unknown have driven him to venture into forbidden territories in the past, exposing him to various dangers. As such, caution is advised when dealing with DSC-MATE-4784.

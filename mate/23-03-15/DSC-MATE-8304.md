@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8304
+DSC-MATE-8304, also known as "The Tiger", is a sentient creature with a natural affinity for leadership. Despite its fearsome appearance with a golden earring and golden chain adorning its body, it has managed to establish its place as a programmer in the modern world. Its LED gas mask serves as its attire, which conceals its true identity from the world.
+
+DSC-MATE-8304 is a powerful and fearless predator, always ready to take charge of any situation that it finds itself in. Its sharp intellect, combined with its innate charisma, makes it a natural leader both in the workplace and in social circles. However, its powerful personality can also lead to problems if left unchecked, as it has a tendency to intimidate those around it if it feels its authority is being challenged.
+
+The creature's appearance is striking, with tiger-like features that are both ferocious and majestic. Its eyes, while unknown, are rumored to glow like jewels in the dark, reflecting the predator's unbreakable willpower. Despite its fearsome appearance, DSC-MATE-8304 possesses a gentle and compassionate side that it only reveals to those it deems trustworthy.
+
+DSC-MATE-8304's unique abilities and impeccable leadership skills make it a valuable asset to any team lucky enough to earn its loyalty. However, it must be handled with care, as any perceived threat to its authority may lead to dangerous confrontations. All personnel are advised to approach the creature with respect and caution, as it is not to be trifled with.

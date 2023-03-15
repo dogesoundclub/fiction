@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2836
+DSC-MATE-2836, codename "The Doctor", is a female human of unknown age and origin, maintaining a consistent demeanor despite her enigmatic behavior. She is often seen wearing a hooded jacket with two distinct colored bands on her forehead and a golden chain around her neck, which she considers her lucky charm. Her most notable feature is her mischievous smile, which radiates with humor and warmth, yet also hints at a darker side to her nature.
+
+The Doctor possesses a unique set of skills that make her an invaluable asset to any organization, but her true calling lies in the field of medicine. She is a master of improvisation and quick thinking, allowing her to provide aid even in the direst situations. Her collections of medical tools and improvised accessories allow her to operate under the most difficult of circumstances. 
+
+Despite her staunch professionalism, The Doctor is a natural party planner and event organizer, always ready to throw a spontaneous get-together at a moment's notice. She is widely known among her peers for her ability to turn even the most boring of events into a memorable experience. However, this side of her personality is also shrouded in mystery, and some have speculated that she uses these gatherings as an opportunity to gather information.
+
+The Doctor's true motivations are unknown, given her reluctance to share information about her past. Some theorize that she has a deep-seated fear of being caught, which explains the gas mask that she wears as a precaution. Regardless, DSC-MATE-2836 will undoubtedly remain an enigma, an unpredictable individual who is as likely to save your life as to cause a humorous disturbance.

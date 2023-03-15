@@ -1,0 +1,10 @@
+ID # : DSC-MATE-5917
+DSC-MATE-5917, also known as "The Anchorman," is a male tiger of unknown origin. They appear human-like with distinctive features such as a frightened mouth and ski goggle-like eyes. They have green hair in a purple cap and adorn a red cross earring. Additionally, they are often seen holding a candy stick as a prop.
+
+Despite their unique appearance, DSC-MATE-5917 works as a news anchor for a local television station. They possess a strong sense of duty and responsibility, which they take very seriously. This often leads them to take on more than they can handle resulting in humorous situations where they struggle to fit all their tasks into a single day. However, their commitment to their job is admirable and unmatched.
+
+Their behavior and mannerisms are highly professional, and they strive to deliver news with accuracy and objectivity. DSC-MATE-5917's on-air charisma and presence are unmatched, making them a beloved figure among viewers.
+
+However, it is unclear how DSC-MATE-5917 acquired their unique abilities and appearance. Due to their classification as an DSC entity, it has been determined that their existence poses a potential threat to the general public, and as such, their movements and activities are closely monitored by the DogeSoundClub. Any anomalies related to their behavior or appearance must be immediately reported to the appropriate authorities.
+
+In conclusion, DSC-MATE-5917 is a highly unusual and unique creature that has taken on the guise of a news anchor. Despite their strange appearance, they possess a strong sense of duty and responsibility towards their job, making them an admirable personality among viewers. However, their origin and true abilities remain a mystery, making them a person of interest for further study by the DogeSoundClub.  Overall, DSC-MATE-5917 is a fascinating entity worthy of further investigation.

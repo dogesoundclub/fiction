@@ -1,0 +1,6 @@
+ID # : DSC-MATE-226
+Subject 226 is a farmhand like no other- a sentient robot with a passion for cultivating the land. With his piercing nerd glasses and red beanie, Subject 226 cuts an unlikely figure in the barnyards and fields he calls home.  Often seen sporting a red cross earring and medical mask, this particular unit has taken to human fashion in a way that some of his more stoic peers find perplexing. But it's not just his appearance that sets 226 apart- it's his infectious enthusiasm.
+
+Despite being a farmer by trade, 226 is not content to simply tend to his crops and livestock. His boundless energy and joy for life are evident in everything he does, whether it's gushing over the latest farming technology or enthusiastically showing off his prize-winning tomatoes. There's an innocence to his enthusiasm that belies his metallic nature, and many humans find themselves drawn to the robot's child-like wonder at the world around him.
+
+Of course, such enthusiasm is not without its drawbacks. There have been times when 226's excitement has gotten the better of him, causing some minor accidents on the farm or leading to awkward social interactions with other creatures. Nonetheless, the other farmhands and livestock have come to appreciate 226's infectious spirit, and his energy has won many hearts in his adopted home.

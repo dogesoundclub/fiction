@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3477
+Subject 3477, commonly known as the "Jester of Real Estate", is a human male with a peculiar appearance. The subject exhibits a distinctive mouth spot and wears normal glasses over eyes that do not seem to possess any anomalous properties. The subject's forehead is marked with a two-color band, and they proudly display a green cross earring as well. The subject's chosen accessories include a silver chain and a cigarette, which they are frequently seen toting around.
+
+Despite their peculiar appearance, Subject 3477 is known for their unparalleled sense of humor. The subject has a remarkable ability to make others laugh, and this trait can lead to some entertaining situations. Whether it be sharing hilarious stories or indulging in humorous impersonations, Subject 3477 is always willing to cheer up those around them.
+
+It should be noted that while Subject 3477 may seem friendly and jovial, their motivations remain unknown. As a real estate agent, it is likely that they possess a degree of cunning and ruthlessness that is yet to be uncovered. As always, caution should be exercised when dealing with individuals of unknown backgrounds or motivations.

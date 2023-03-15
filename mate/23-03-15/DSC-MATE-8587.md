@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8587
+DSC-MATE-8587, also known as "The Politician", is a male anthropomorphic rabbit with a frightened mouth and ski goggle-like eyes. He is easily recognizable by his not arranged green head and constant cigarette. Despite his political position, DSC-MATE-8587 has a reputation for his great sense of humor and love for making others laugh, often telling funny stories or doing silly impersonations to lighten the mood.
+
+DSC-MATE-8587's abilities include a heightened persuasive power, with his words having a hypnotic effect on those that hear them. Subjects often find themselves agreeing with DSC-MATE-8587's opinions and ideas, even if they were originally opposed to them. It is advised that all interactions with DSC-MATE-8587 are to be recorded and monitored to avoid any potential mind-erasing effects.
+
+DSC-MATE-8587's origins are unknown, and although he claims to be a politician, no official records or history can be found to confirm this. His unique appearance and abilities have classified him as a valuable asset to the DogeSoundClub, and he is currently being kept in a holding cell in Site ██, where proper containment protocols are being enforced.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7362
+DSC-MATE-7362, also known as Officer Red, is a human female police officer with an unusual appearance. Her retro cap is a signature part of her uniform, but what really stands out are her red clown eyes. These unusual eyes can be disconcerting to those who first meet her, but have become a source of pride for Officer Red.
+
+Despite her unusual appearance, Officer Red is known for her warm smile and caring personality. Her colleagues often describe her as a dedicated officer who is always willing to go the extra mile to help those in need. In fact, Officer Red's caring nature can sometimes cause humorous situations. She has been known to take care of her friends and family members as if they were her own children, which can lead to comical misunderstandings.
+
+While Officer Red's warm personality endears her to those around her, it is important to note that she is still a police officer. She takes her job seriously and is always looking out for the safety and well-being of her community. DSC-MATE-7362 is a valued member of the force and an asset to any team she works with.

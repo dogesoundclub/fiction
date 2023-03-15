@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7364
+DSC-MATE-7364 is a highly peculiar specimen that exhibits a range of unusual physical features that are unlike any human being we have ever encountered. This creature possesses red clown eyes that provide a stark contrast against the parted pink hair that adorns its head. The ears are also of particular note, featuring a single jade earring that is clearly visible even from a distance.
+
+As a doctor, DSC-MATE-7364's analytical and logical nature are highly beneficial in their line of work. However, their quirky sense of humor often surfaces unexpectedly, making them unpredictable at times. With a penchant for dry, deadpan humor, DSC-MATE-7364 enjoys making witty observations and teasing their compatriots, at times even toying with them for their own amusement.
+
+Further observations reveal that this creature seems to have an addiction to candy sticks, often found with one in their possession at all times. Despite their quirks, DSC-MATE-7364 remains a valuable member of our team, providing insight and innovative solutions to problems that baffle even the most talented of scientists.
+
+As with many of the specimens under our supervision, there is much about DSC-MATE-7364 that remains unknown. However, we at the Foundation shall continue to monitor their behavior and interactions, in order to better understand this highly unusual creature.

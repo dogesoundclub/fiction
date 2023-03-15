@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4901
+DSC-MATE-4901, codenamed "The Electrician," is a male monkey with a frightened mouth and normal glasses for eyes. His head is unkempt and green, while his ears sport a jade earring. He is often seen wearing a red scarf around his neck. 
+
+As an electrician, DSC-MATE-4901 is highly skilled in his trade, exhibiting exceptional attention to detail. However, this trait extends beyond his profession and can sometimes manifest in unexpected and obsessive ways. For example, he has been observed meticulously organizing and categorizing his personal belongings, ranging from his spice rack to his closet. 
+
+While DSC-MATE-4901 is generally cooperative and amiable, he can become easily stressed when his routines are disrupted or if he feels like he has lost control of a situation. His fear response can lead to unpredictable and potentially dangerous behavior, making him a high-risk item in containment. 
+
+It is recommended that DSC-MATE-4901 be monitored closely and provided with a stable environment to prevent any undue stress or panic. Any disruptions to his routine must be managed with caution and care to avoid triggering his fear response.  Overall, DSC-MATE-4901's attention to detail and electrician skills make him a valuable addition to any team but also require careful mitigation of his anxiety-inducing tendencies.

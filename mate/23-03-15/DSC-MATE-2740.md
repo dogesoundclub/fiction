@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2740
+DSC-MATE-2740 is a human male, employed as a Traffic Officer within the city. His appearance is characterized by striking orange stripes on his face and comically blue clown eyes. DSC-MATE-2740's head is adorned with a blue bandana while he sports a single gold earring. His attire is completed by a signature red scarf and a candy stick that he constantly chews on.
+
+DSC-MATE-2740's personality is one of adventurous spirit and a love for taking risks. He exhibits daring behavior such as bungee jumping and getting lost in the wilderness for no apparent reason. DSC-MATE-2740 has a talent for finding himself in peculiar and sometimes humorous situations, yet always manages to emerge unscathed. However, despite his playful nature, DSC-MATE-2740 is quick to take his job seriously and is a valued member of the Traffic department.
+
+DSC-MATE-2740's eccentricity and buoyant personality do not diminish from his responsibilities, handling his job with commendable efficiency. His bright personality and unique appearance have earned him a sizable following and contributed to providing morale support to his colleagues. Extreme caution must be exercised in handling DSC-MATE-2740's case due to his unpredictable antics, but he remains a cherished asset to the department.

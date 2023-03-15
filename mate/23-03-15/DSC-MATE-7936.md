@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7936
+DSC-MATE-7936 is a Human designated as a Theater Manager, with unique features that stand out from the average human appearance. The subject's face boasts of distinctive Orange Stripes, while their luscious Red Lip adds a dash of sophistication to their personality. The eyes of DSC-MATE-7936 possess unusual Orange Eyebrow, which adds to the overall attractiveness of their countenance.
+
+DSC-MATE-7936's head is adorned with a Rainbow Festival, which adds to the subject's enigmatic personality. The distinct features on their forehead include a 2 Color Band, which is a unique trait and could perhaps signify a tribal affiliation. Adding to the overall radiance, DSC-MATE-7936's ears are host to Jade Earrings, perhaps indicative of the subject's love for jewelry.
+
+However, despite their striking features, DSC-MATE-7936's personality can be somewhat impulsive, with the subject displaying a tendency to act before thinking things through. Such recklessness has led to DSC-MATE-7936 getting into minor accidents or mishaps while trying to show off or impress others, as documented in prior experiments with the subject.
+
+DSC-MATE-7936's unique features and impish personality make them a potential asset for certain operations, but proper caution is recommended when dealing with the subject's impulsivity.

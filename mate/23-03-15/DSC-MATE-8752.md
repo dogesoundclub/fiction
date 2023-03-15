@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8752
+DSC-MATE-8752 is a highly advanced robot with a unique appearance. Its single, emerald green cyclops eye is a striking feature that has been known to intimidate those who cross its path. Despite this, DSC-MATE-8752 often dons a pair of horn-rimmed glasses, adding a touch of sophistication to its appearance. Its head, unarranged and green in color, gives the impression of a simple machine, but those who underestimate it do so at their own peril.
+
+DSC-MATE-8752 is a male, and its ears are adorned with a single gold earring, adding a touch of flair to its already impressive appearance. As the leader of a powerful mafia organization, it exudes an air of authority, commanding respect from its subordinates and enemies alike.
+
+However, this robot's mind is a complex system that can sometimes prove to be a bit absent-minded and forgetful. When deeply focused on a project or lost in thought, DSC-MATE-8752 can lose track of time and forget appointments, leading to some humorous situations. Despite this, its intelligence and cunning remain as sharp as ever, making DSC-MATE-8752 a force to be reckoned with in the world of organized crime.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7058
+DSC-MATE-7058, codenamed "The Scholar Banker", is a humanoid entity of the Homo sapiens species. He is identified by the distinctive orange stripes adorning his face, an unusual feature for a human being. He is a male, of average build and height, and typically dons a police cap atop his head. He can often be seen sporting green cross earrings and a medical mask over his mouth.
+
+DSC-MATE-7058 is a banker by profession, and he takes his job very seriously. He is known to be a meticulous worker, with a keen eye for detail, and he is well-respected among his peers. However, his true passion lies in the pursuit of knowledge. He is an avid reader and spends most of his free time researching and studying obscure topics. His thirst for knowledge is insatiable, and he takes great pleasure in sharing his newfound discoveries with others.
+
+DSC-MATE-7058 is also known to possess a red scarf, although the significance of this accessory is unknown. He is often seen wearing nerd glasses, which he claims help him to focus better. His eyes behind the glasses are bright and inquisitive, reflecting his insatiable thirst for knowledge.
+
+DSC-MATE-7058's personality can be described as enthusiastic and curious. His passion for learning is infectious, and he often inspires others to be more curious and inquisitive. He is patient and understanding, always willing to lend a listening ear and offer valuable insights. His passion for knowledge makes him an invaluable asset to the Foundation, as he is always eager to learn more about the anomalous entities contained within its walls.

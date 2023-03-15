@@ -1,0 +1,8 @@
+ID # : DSC-MATE-188
+DSC-MATE-188, also known as "The Tiger News Anchor," is a highly skilled reporter and news anchor who keeps the public informed of the latest happenings in the city. As a tiger, DSC-MATE-188 has a distinct appearance, with striking VR jade LED eyes that glow intensely in low light conditions. His blue bandana and gold earring add to his overall charisma and presence, making him a highly recognizable figure in the news industry.
+
+Despite his imposing stature, DSC-MATE-188 is known for his kind and nurturing personality, often treating those around him with a maternal-like care. This can sometimes lead to humorous situations, as DSC-MATE-188 tends to pamper his friends and family members as if they were his own cubs. However, this also makes him highly respected and well-loved by his colleagues, who appreciate his compassionate nature and tireless work ethic.
+
+DSC-MATE-188 is usually seen carrying a red scarf and candy stick, which he claims helps him focus and stay energized during long shifts. However, some speculate that the scarf may have some other significance, as DSC-MATE-188 never takes it off, even during hot summer days.
+
+While DSC-MATE-188 may seem like a friendly and approachable figure, it is important to remember that he is a highly intelligent and capable reporter, who will stop at nothing to uncover the truth and get to the bottom of a story. His sharp mind and quick wit have earned him many accolades and awards in the news industry, and he is considered by many to be a legend in his field.

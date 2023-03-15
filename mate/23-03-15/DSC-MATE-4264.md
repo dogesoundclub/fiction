@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4264
+DSC-MATE-4264 is a creature of unknown origin, identified only by its delivery driver job and unique appearance. Classified as a rabbit, DSC-MATE-4264 stands approximately 2 feet tall with striking jade earring that adorns its elongated ears. It wears a retro-style cap as a head covering and ties a bright red scarf around its neck as an accessory. Despite its cutesy appearance, DSC-MATE-4264 packs a personality that leaves a lasting impression on those it meets.
+
+DSC-MATE-4264's personality is one that could be described as empathetic and compassionate to a fault. Its overwhelming desire to take on the problems of those around it can sometimes lead to it shouldering the weight of others' problems. As an DSC in containment, this admirable trait has been known to exhaust DSC-MATE-4264, and it is advised that all human interactions are limited to help reduce stress and maintain its mental health.
+
+It is unknown how DSC-MATE-4264 acquired its delivery driver job, but it appears to relish in it. Footage of DSC-MATE-4264 performing its duties depicts it as active and efficient in the delivery of various parcels. Requests for DSC-MATE-4264 to perform any out-of-the-ordinary deliveries are denied due to its sensitive personality, a recommendation made by its containment unit to alleviate further stress.
+
+In conclusion, while DSC-MATE-4264's personality and appearance may lend to a disarming presence, we must remember that it is an DSC after all. We urge caution when approaching and interacting with DSC-MATE-4264 to ensure its containment and well-being.

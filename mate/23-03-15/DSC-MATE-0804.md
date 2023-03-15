@@ -1,0 +1,8 @@
+ID # : DSC-MATE-804
+DSC-MATE-804, codenamed "The Obsessive Farmer", is a human female with peculiar physical features. Orange stripes adorn her sharp features while her VR rainbow LED eyes emit an otherworldly glow. Her head is crowned with a wing, further emphasizing her inhuman nature. A single red cross earring dangles from her elongated ears, adding to her mystique. Due to her farming job, she can be seen wearing a medical mask to protect herself from possible plant pathogens.
+
+Despite her supernatural appearance, DSC-MATE-804 harbors an almost compulsive need for order and organization. This idiosyncrasy can manifest in the strangest ways, such as meticulously alphabetizing her spice rack or color-coding her clothes closet. Researchers must take note that disruptions to her structured environment can lead to high levels of anxiety and stress.
+
+Observation of her interactions with other individuals reveal her to be passive-aggressive, often responding with terse monosyllables if her routine is interrupted. However, behind her obsessive behavior, DSC-MATE-804 appears to harbor strong emotions, with her gold chain serving as the only link to her past life.
+
+Under no circumstances should physical contact be allowed, as it may trigger violent reactions from DSC-MATE-804. Access to her quarters is limited to authorized personnel only, with all interactions to be recorded and analyzed post-observation.

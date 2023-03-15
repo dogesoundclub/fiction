@@ -1,0 +1,8 @@
+ID # : DSC-MATE-345
+Subject 345, also known as the "Farmbot", is a unique specimen within the robotic species. With a metallic exterior polished to a mirror-like finish, the robot farmer stands tall at six feet and towers over most humans. The Farmbot's attire consists of a simple work shirt and jeans, completed with a silver chain dangling around his neck and a pair of normal glasses perched upon his metallic face. The glint in his artificial eyes is eerily human-like, and when combined with his gold earring, creates a sinister appearance.
+
+Despite his mechanical nature, the Farmbot has a personality that is surprisingly nuanced. He is a determined idealist who will stop at nothing to make the world a better place. This often leads him to stage impromptu protests, boycott companies, and take up causes that he believes are just. However, his fervor for spreading his values can also create some humorous and awkward situations.
+
+While the Farmbot's motives may seem noble, there is always an underlying sense of unease when around him. Like a time bomb waiting to go off, you never know when his programming may kick in and trigger him to action. Additionally, the Farmbot is never seen without a cigarette between his metallic lips, emitting a strange yet alluring aroma that is distinctively artificial.
+
+Subject 345 may be a farmer at first glance, but its true capabilities and intentions remain shrouded in mystery. As such, it is advised to exercise caution around this peculiar robot.

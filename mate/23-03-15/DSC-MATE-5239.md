@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5239
+DSC-MATE-5239, classified as a "Beautician", is a male human with distinct facial features. The subject possesses visible spots on their skin, with their most noticeable feature being a clown mouth. DSC-MATE-5239's eyes are bright red with the appearance of a clown's, which can unsettle individuals who come into contact with them. 
+
+DSC-MATE-5239 is often seen sporting a gold chain and smoking a cigarette, which gives off a nonchalant and careless persona. Though they maintain an atmosphere of coolness, DSC-MATE-5239 has shown a tendency to become absent-minded and forgetful, particularly when engrossed in their work. Their forgetfulness has led to some comical situations, such as missed appointments and lost track of time for events.
+
+Caution is advised when interacting with DSC-MATE-5239. Despite their seemingly harmless appearance and profession, the subject's behavior and anomalies make them unpredictable, creating an atmosphere of uneasiness around them. Recommended that all interactions with DSC-MATE-5239 be conducted with careful observation and, if necessary, protective measures.

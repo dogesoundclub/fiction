@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6889
+Identification number 6889 is a fascinating rabbit-like creature with a serious job as an electrician. Don't let his fluffy ears and cute nose fool you; this dynamic personality can get the wiring in any building fixed in no time. Despite being a hardworking individual, 6889 has a playful side that comes out from time to time. He is known to wear horned rim glasses with a hoodie on his head, completing his look with a flashy gold chain and a cigarette.
+
+But don't let his carefree attitude make you think he's a slacker. 6889 takes his work seriously and has a strong sense of duty and responsibility. He knows that every electrical malfunction can be fatal, and works his best to ensure that everything is in order. However, when the job is done, he knows how to let loose and have a good time. This leads to humorous situations, such as busting out his dance moves and silly antics on the dance floor during networking events.
+
+6889 may have an unconventional appearance, but his skills are indispensable. He is an asset to any team and will always be there to get the job done. Just don't be too surprised if he pulls out a trick or two and gives you a good laugh along the way.

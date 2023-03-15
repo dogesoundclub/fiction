@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1758
+Subject 1758, designated as "The Jester" by our organization, is a male human of average height, with peculiar facial features. Two distinct marks stand out on their face: a spot on their mouth and a clown-like mouth curvature. What really distinguishes them are their piercing blue clown eyes that seem to look into your soul, adorned by a golden earring dangling from their left ear. 
+
+Often seen sporting stylish, fashionable outfits and an ever-present gold chain, The Jester is known to work as a beautician in various high-end salons in urban areas. However, it is best to approach the subject with caution, as they tend to be highly analytical and logical in their thinking. They are known to engage in debates and arguments with others, often finding amusement in challenging their intellectual opponents. 
+
+Opinionated and unafraid to speak their mind, The Jester has a tendency to push the boundaries of accepted social norms and behavior, which can sometimes lead to intriguing, though not necessarily orthodox, conversations. Despite their, at times, off-putting demeanor, The Jester can be counted on to provide exquisite grooming and styling work for their clients. 
+
+It is recommended to approach The Jester with a friendly and respectful attitude, as they respond well to individuals who are open-minded and quick-witted. Do not underestimate their abilities or underestimate their importance, for The Jester has proven to be a valuable asset to our team.

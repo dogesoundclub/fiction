@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9466
+DSC-MATE-9466, also known as "The Tiger Reporter," is an anomalous creature of the feline family. This individual resembles a large Siberian tiger with distinctive markings and a muscular build. It is equipped with a pair of nerd glasses that aid in its vision while it works on its projects. Additionally, DSC-MATE-9466 is always seen sporting a purple cap with a headset, a medical mask that hides its expression, and a red cross earring on its left ear. 
+
+This creature is known for its absent-minded and forgetful nature. It often becomes so engrossed in its work that it loses track of time and forgets appointments, leading to comical situations. Researchers note that DSC-MATE-9466 is highly intelligent and has a passion for uncovering truths and exposing lies to the masses. Its reporting skills are highly valued in the world of journalism, but its anomalous properties make it an asset to the Foundation as well.
+
+DSC-MATE-9466's most distinguishable feature, however, is its bright red scarf. Although it serves no significant purpose, this item has become inseparable from DSC-MATE-9466 and adds to its overall persona. Though friendly and approachable, it is recommended to approach with caution, as this creature is both unpredictable and fiercely protective of its work.

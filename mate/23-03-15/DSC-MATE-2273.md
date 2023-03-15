@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2273
+Item #2273 is a female human employed as a real estate agent. Her most notable feature is the jade VR LED eyes that glow eerily when she is focused on a task. A pair of goggles rests on her forehead, adding to her futuristic appearance. She wears a red cross earring, which some speculate to be a nod to her humanitarian beliefs. 
+
+The most intriguing accessories of Item #2273 are the silver chain and LED gas mask. The chain is worn as a talisman, perhaps a symbol of her personal beliefs or a reminder of her values. The gas mask, on the other hand, is more enigmatic - it may be a precaution against environmental hazards, or a signifier of her unwillingness to submit to authority. Regardless of their specific purpose, these personal items speak to a pronounced, and at times, rebellious personality.
+
+Item #2273 is an idealist at heart, with a deep desire to improve the world around her. Her passion for social justice often leads to humorously extreme actions, such as picketing corporations that she feels are contrary to her values. Though her actions may seem comical to some, few can deny the intensity of her conviction or the force of her will. Agents are advised to proceed with caution when engaging with Item #2273, as she is not one to shy away from a confrontation.

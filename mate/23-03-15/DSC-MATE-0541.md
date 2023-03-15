@@ -1,0 +1,6 @@
+ID # : DSC-MATE-541
+DSC-MATE-541, also known as "The Mechanic," is a human male with a peculiar appearance. He sports a black hoodie on his head and has a noticeable mouth spot. The most striking feature of his forehead is the two-color band. Our agents have spotted him wearing a red scarf and a basic gas mask as accessories.
+
+While he may look like any ordinary mechanic on the surface, DSC-MATE-541 presents some unique behaviors. He is known for his caring and nurturing attitude, known to extend beyond human interactions. 541 has been witnessed giving names to his vehicles, speaking to his plants, and even anthropomorphizing household appliances.
+
+DSC-MATE-541's anomalous properties remain unclear, but monitoring of his behavior is critical. Contact with the Foundation must be made in the event of any unusual activity.

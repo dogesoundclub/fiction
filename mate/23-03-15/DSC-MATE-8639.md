@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8639
+Subject 8639 has been identified as a delivery driver of the human species, with several distinct physical and behavioral features worth noting. This individual possesses distinctive spots on their face, which may be used as a method of identification. Additionally, they are noted to wear normal glasses and a green cross earring on their ears. Their choice of accessories also includes a gold chain and a normal gas mask.
+
+In terms of personality, this subject is known for being somewhat rebellious, often pushing boundaries and finding ways to bend or break the rules. This can lead to humorous situations, as they enjoy testing the limits of authority to see what will happen. However, this behavior may also lead to conflict with those in positions of power or authority.
+
+It is recommended that caution be exercised when interacting with subject 8639, as their tendency towards rule-breaking and disregard for authority may result in unpredictable behavior. As with all human subjects, close observation and monitoring may be necessary to ensure the safety of both the subject and those around them.

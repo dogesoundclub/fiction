@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1967
+DSC-MATE-1967, also known as "Officer Candyman," is a human male police officer with distinct features that make him stand out in a crowd. His face is adorned with bright orange stripes and a clown mouth, which is further accentuated by his piercing red clown eyes. To complete his look, he wears a blue bandana on his head and a goggle on his forehead.Officer Candyman is always full of energy, and his enthusiasm is infectious. He loves getting others excited about things, which can sometimes lead to comical situations when his excitement doesn't quite match the interest level of those around him. Despite his eccentricities, Officer Candyman is a highly competent police officer who takes his job seriously.
+
+On his silver chain, Officer Candyman wears a candy stick, which is said to bring him good luck. He is always willing to offer a candy stick to those in need, and its sweet scent can often be detected before he even enters a room.
+
+To some, Officer Candyman may seem outlandish or even intimidating, but to those who get to know him, he is a loyal friend and a dependable ally.

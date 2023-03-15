@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8456
+Subject 8456 is a peculiar specimen of Homo sapiens and a formidable programmer. Her most striking feature are the spots that cover her face, granting her a unique appearance that can be unsettling to the untrained eye. Her lips are an intense purple, visible even under the LED VR Jade eyes that flicker with every command she types. 
+
+The subject wears a tiara that glimmers in the light, indicating her eccentricity and a green cross earring on her right ear. She also has a penchant for fashionably accessories such as a gold chain adorning her neck and an LED gas mask worn as a fashion statement. Not only her appearance but her personality is equally noteworthy. She is meticulous and focused in her work, keenly observant and attentive of every detail, thus making her an ideal gift-giver. 
+
+However, her obsession with creating the "perfect" gift is a point of concern, as it can lead to her spending an excessive amount of time toiling over a present, putting her mental faculties under immense stress. DSC personnel must ensure that the subject is not overburdened with tasks that may trigger her perfectionistic tendencies. Although strange, subject 8456's strange aura and exceptional intellect make her an invaluable asset to our organization.

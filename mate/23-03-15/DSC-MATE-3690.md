@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3690
+Subject 3690, also known as "The Electrician," is a unique humanoid robot created for the purpose of repairing and maintaining electrical systems in urban areas. Its appearance is quite striking, featuring a singular green cyclops eye, embedded in its otherwise featureless face. The head of the robot is shaped like a red alarm, suggesting its vital importance in alerting others to potential dangers.
+
+Subject 3690 is often seen wearing a silver chain and occasionally indulges in smoking a cigarette, which appears to be merely for aesthetic purposes. However, what truly sets this robot apart from others of its kind is its charming, if somewhat forgetful personality. Despite being a highly intelligent being, the Electrician can sometimes lose itself in thought or become absorbed in its projects, leading to amusing mishaps such as missed appointments or losing track of time.
+
+Though its capabilities are impressive, its forgetfulness can sometimes pose a danger to both itself and those around it. Caution is advised when interacting with Subject 3690, as one can never be entirely sure what is on its mind at any given moment. However, its expertise in electrical engineering makes it a valuable asset to any urban community in need of repairs, and its quirky personality is sure to make it an unforgettable addition to any cast of characters.

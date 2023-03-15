@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9024
+DSC-MATE-9024, also known by her civilian identity as Dr. Rebecca Harlow, is a human veterinarian with an eccentric personality that has made her a standout among her colleagues. She sports 90s brown hair and a distinctive purple lip that has garnered attention in her community. On her forehead, she's known to wear a set of goggles to shield her eyes from any unsanitary debris that may come her way. Additionally, she carries a normal gas mask as a precautionary measure in case of any hazardous animal outbreaks.
+
+Dr. Harlow boasts a natural talent for brainstorming and enjoys coming up with unconventional solutions that tend to raise eyebrows. Her outlandish ideas have been known to lead to humorous situations, and she seems to revel in how others react to her creative ingenuity. Despite her sometimes bordering on impracticality, she remains steadfast in her dedication to veterinary care and has achieved notable success in her field.
+
+Due to Dr. Harlow's idiosyncrasies and unique approach to problem-solving, some staff members were initially skeptical about her abilities. However, her competence and determination have since won them over, and Dr. Harlow has become a vital asset to the organization's mission. With her sharp mind and bold personality, DSC-MATE-9024 proves to be a fascinating individual and a valuable team member.

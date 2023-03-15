@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5345
+DSC-MATE-5345 is a police officer assigned to the urban fantasy division for field operations. Upon examination, DSC-MATE-5345's unique facial feature is the presence of orange stripes on their cheeks, which illuminates when DSC-MATE-5345 exhibits strong emotions. DSC-MATE-5345's head appears to be made of a metallic blue material, which indicates that DSC-MATE-5345 may have undergone cybernetic modifications.
+
+Found on DSC-MATE-5345's forehead is a pair of goggles used in investigative work. These goggles have the ability to detect and analyze various supernatural elements that are otherwise invisible to the naked eye. DSC-MATE-5345 is known to go above and beyond in their line of duty and is often seen wearing a gold chain necklace, a venerated law enforcement badge of the urban fantasy division.
+
+At all times, DSC-MATE-5345 wears a LED gas mask, capable of filtering harmful pollutants and toxins. The mask further enhances DSC-MATE-5345's vision, allowing them to see infrared signatures, and protects them from psychic attacks.
+
+DSC-MATE-5345 can exhibit an absent-minded demeanor, due to being lost in thought or focused entirely on their work projects. Occasionally, DSC-MATE-5345 has been known to forget vital appointments, which can lead to humorous situations, but rest assured, DSC-MATE-5345 remains dedicated to their job and will always make amends for their mistakes.

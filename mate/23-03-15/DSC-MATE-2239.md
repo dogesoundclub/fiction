@@ -1,0 +1,10 @@
+ID # : DSC-MATE-2239
+Subject 2239, codenamed "Tiger Mechanic", is a anomalous humanoid entity of the feline variety. Possessing the form of a majestic tiger, this individual is renowned for their exceptional skill in engineering and mechanical maintenance. Their highly dexterous paws and razor-sharp claws are able to deftly manipulate even the most complex machinery with astounding precision.
+
+The tiger's striking appearance is further augmented by their unusual eye manifestation, which takes the form of a pair of ski goggles. This trait is believed to augment the subject's vision and allow them to perceive intricate details which are otherwise invisible to the naked eye. Additionally, the tiger is frequently observed sporting a police cap atop their head, signifying their dedication to their work and commitment to order and discipline.
+
+Of particular note are the tiger's ears, which bear an unusual red cross earring. The significance of this symbol remains unknown, though it is speculated to be representative of some form of affiliation with a religious or humanitarian organization.
+
+Subject 2239's personality is characterized by a remarkable sensitivity and vulnerability. Despite their imposing appearance, the tiger is highly in touch with their emotions, and is frequently moved to tears by sentimental moments in movies or TV shows. Furthermore, they possess a deep affection for music and art which elicit powerful emotional responses, and are known to be highly empathetic towards others.
+
+Overall, Subject 2239 is a fascinating and complex anomaly with a unique set of skills and traits. Their abilities as a mechanic, combined with their emotional sensitivity, make them a valuable and intriguing asset to any organization fortunate enough to have them.

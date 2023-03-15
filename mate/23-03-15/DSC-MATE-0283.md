@@ -1,0 +1,8 @@
+ID # : DSC-MATE-283
+Subject 283, also known as the "Rabbit Farmer," is a humanoid creature that defies explanation. With a face that bears a pair of distinct orange stripes and bright blue clown eyes, she brings to mind the surreal qualities of a Dali painting. Her head is that of a pink rabbit, while her ears sport an opulent gold earring. Her mouth is typically covered by a medical mask, an obvious precaution against any possible contamination of unknown origin.
+
+Despite her appearance, the Rabbit Farmer is a friendly, approachable character. She exudes an infectious energy, an enthusiasm and passion that is contagious. Her zeal can be a bit overwhelming at times, making it difficult for some people to keep up with her. However, those who can match her level of excitement will find that it is both refreshing and exhilarating.
+
+In her profession, the Rabbit Farmer is a master of cultivation. She possesses an innate understanding of the natural order and knows how to coax life into thriving even in the most inhospitable conditions. This knowledge, combined with her unparalleled work ethic, has made her one of the most successful crop producers in the region.
+
+While her appearance may be initially unsettling to some, it is clear that the Rabbit Farmer is an invaluable asset to anyone lucky enough to have her on their side. Her energy and passion will prove essential in any venture she undertakes, and her expertise in cultivation could mean the difference between success and failure in the face of the unknown.

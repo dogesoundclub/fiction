@@ -1,0 +1,10 @@
+ID # : DSC-MATE-4801
+Subject 4801, also known as Agent Tangerine, is a female human of medium build and height. Her most noticeable facial features are the speckles of various sizes that dot her skin, giving her a unique and intriguing appearance. The subject's eyes are a fiery shade of orange, and her eyebrows are elongated and slanted, adding an exotic touch to her persona. 
+
+The subject's head is adorned with long, sleek, and straight hair that cascades down her shoulders and ends in an orange hue that complements her complexion. The back of her head is shaved to reveal an orange sideway pattern that exudes confidence, edginess, and sophistication. A prominent feature on her forehead is the two-color band that haphazardly wraps around her hairline, giving her a futuristic warrior-like look. 
+
+Subject 4801's ears are pierced with a unique piercing consisting of a green cross dangling earring, adding a touch of spiritualism to her style. She wears a black choker around her neck, which adds just enough glam to her outfit without being overly flashy.
+
+Agent Tangerine is a natural brainstormer, always coming up with creative and innovative ideas to solve complex problems. Her mind is a never-ending source of outlandish solutions that can sometimes prove to be beneficial or humorous depending on the situation. Despite her quirky and sometimes eccentric personality, she is an excellent lawyer, using her creativity and wit to win cases and defend her clients. 
+
+Subject 4801 is to be monitored at all times due to her unique appearance and exceptional brainstorming abilities, which can sometimes lead to unpredictable behavior.

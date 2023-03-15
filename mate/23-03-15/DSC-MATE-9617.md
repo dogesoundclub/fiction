@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9617
+DSC-MATE-9617 is a humanoid entity identified as a farmer of the human species. Their physical appearance is marked by a number of unique features, including the presence of spots on their face and a purple lip. The most distinctive feature of DSC-MATE-9617, however, are their piercing blue clown eyes, which can often leave those who gaze upon them feeling unsettled.
+
+DSC-MATE-9617 typically wears a hoodie on their head and can often be seen accessorizing with a silver chain. While their appearance may seem unusual to some, it is their personality that truly sets them apart from others. DSC-MATE-9617 has a keen sense of curiosity and a strong desire to learn about the world around them.
+
+This curiosity often leads them to seek out obscure or unusual topics and facts that they can use to entertain others. In some cases, DSC-MATE-9617 may randomly spout off bits of trivia in social situations, leading to humorous or awkward exchanges with those around them.
+
+Despite their odd appearance and behaviors, DSC-MATE-9617 is generally considered to be a friendly and approachable individual, making them a valuable asset to any community they are a part of. However, due to their unique features and mannerisms, DSC-MATE-9617 should be monitored closely to ensure that they do not inadvertently cause harm to themselves or others.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9158
+DSC-MATE-9158, also known as "Jester", is a highly unusual creature to behold. This electrician rabbit is draped in an assortment of charming accessories, from his jade earring to his silver chain, and often wears a retro cap on his head, sporting nerdy glasses. It is unknown how these items ended up in his possession, but one theory is that he hopes to blend in with human society better.
+
+Despite his small stature, Jester never fails to command attention with his quirky and unique sense of humor. He is not a typical jokester; his humor is witty and delivered in a dry, deadpan style that leaves many bewildered yet amused. He does not seek out the spotlight but often has a way of stealing the show regardless.
+
+As a creature of the Fae realm, Jester's electrician job is simply a cover to inhabit the human world. He has been observed using his powers to manipulate the electrical systems in buildings subtly. Some believe he uses these abilities to further his own agenda, but what that might be is unknown.
+
+DSC-MATE-9158 may appear harmless, but there is no telling what mischief he might be up to. He is certainly one of the more peculiar creatures in the Foundation's menagerie and should be handled with the utmost care.

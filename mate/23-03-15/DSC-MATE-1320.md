@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1320
+DSC-MATE-1320, or "The Theater Tiger", is a highly unusual character, even by the standards of our Foundation. As the manager of a popular urban theater, DSC-MATE-1320 is known for his flamboyant appearances, including green hair under a purple cap, gold earrings, a gold chain, and signature ski goggles. Despite his intimidating appearance and size, DSC-MATE-1320 is known for his jovial personality and excellent sense of humor.
+
+DSC-MATE-1320 is a male tiger, species Panthera tigris, with distinctive ski goggle eyes that are a bright green color. He is rarely seen without his trademark cigarette, which he uses as a prop during his stand-up comedy routines.
+
+DSC-MATE-1320's role as a theater manager is a strange one, given his animal nature. However, it is believed that his ability to keep audiences entertained is unparalleled. He has been observed telling funny stories, performing silly impersonations, and even singing the occasional song to lighten the mood during tense performances.
+
+Despite the fact that DSC-MATE-1320 is a highly entertaining and personable individual, there is some concern among our researchers as to his true nature. We have reason to believe that DSC-MATE-1320 may possess certain anomalous properties that have yet to be fully understood. As such, we are currently monitoring him closely, and hopefully, we will be able to better understand the nature of his abilities and the implications for our world.

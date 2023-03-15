@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4390
+DSC-MATE-4390 is a remarkable anomaly disguised in the form of a common traffic officer. Donning a retro cap and red scarf, this male monkey oozes charisma and confidence. However, it is the creature's eyes that truly stand out, resembling a pair of ski goggles that seem to glow with a peculiar gleam.
+
+DSC-MATE-4390 has the uncanny ability to connect with others on a deep level, quickly gaining the trust of those around it. Beware though; this power can lead to some unexpected situations, such as complete strangers sharing their life stories with DSC-MATE-4390, or him sharing anecdotes that incite uncontrollable laughter that spreads like wildfire. 
+
+Despite DSC-MATE-4390's impish and roguish demeanor, it can be seen rarely seen with a cigarette dangling from their lips, suggesting that the creature is not as entirely carefree as it may seem. DSC-MATE-4390 demonstrates remarkable emotional intelligence, generally displaying the emotional range to a much greater effect than other "mundane" traffic officers. 
+
+Testing is ongoing, but DSC-MATE-4390 is proving to be an extraordinary asset, able to broker deals and extract information where traditional interrogators would have failed. Who knew a traffic officer could be so persuasive?

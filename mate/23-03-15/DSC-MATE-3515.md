@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3515
+DSC-MATE-3515, also known as "Doctor Stripes," is a female human with distinct orange stripes adorning her face. Her VR rainbow LED eyes constantly scan her surroundings, assessing potential threats and analyzing her environment. Two pigtailed tufts of hair frame her face, giving her an innocent appearance that belies her analytical mind. A red cross earring adorns each ear, a nod to her medical profession.
+
+Obsessed with science and medicine, Doctor Stripes approaches everything with a logical and analytical eye. She enjoys a good debate and can often be found arguing fiercely, even over trivial or unimportant matters. Her sharp wit and intellect make her an asset to any team, but her tenacity can sometimes lead her down a dangerous path.
+
+Despite her fierce determination, Doctor Stripes is not without compassion. Her choker necklace, a gift from a patient, serves as a reminder of the human side of medicine. She holds herself to a high moral standard and is unwavering in her dedication to the welfare of others.
+
+DSC-MATE-3515 may prove to be a valuable asset in the field of urban fantasy. However, her analytical mind may make it difficult for her to believe in the mythical creatures and magic present in such a world. It is important to approach her with caution and respect her scientific beliefs while also attempting to expand her understanding of the unexplainable.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3800
+DSC-MATE-3800, known commonly as "The Mechanic," is a male monkey of the genus Macaca, standing at approximately 2 feet tall. Its eyes are often seen hidden behind a pair of horned-rim glasses, giving it an air of intellectualism. Its head is adorned with a blue bandana, a nod to its old-school roots, while its neck is draped with a gold chain, seemingly a fashionable choice for the primate.
+
+DSC-MATE-3800's personality is often described as jovial and careless, with a tendency to get sidetracked easily. Its scatterbrained nature is often on display as it forgets appointments and loses its way, leading to comical mishaps. Despite its absentmindedness, The Mechanic is a skilled craftsman, with an affinity for engines and machines. Its curiosity and ingenuity have led it to modify various machinery, creating complex mechanisms beyond its primate peers.
+
+As of yet, there is no known explanation for DSC-MATE-3800's peculiar habits and abilities. However, it is classified as safe due to its non-aggressive nature and cooperative attitude towards Foundation personnel. DSC-MATE-3800's mechanical knowledge, combined with its playful demeanor, make it an unexpected ally in the ongoing battle against paranormal anomalies.

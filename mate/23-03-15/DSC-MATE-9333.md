@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9333
+Subject 9333, also known as "The Lawyer," is a member of the primate family and one of the many unexplained creatures in our world. With a frightened mouth and a head of normal black hair, he often wears a gold chain around his neck, and can frequently be seen with a whistle slung around his neck.
+
+As a lawyer, this monkey is known for his laid-back and easy-going demeanor, often putting his clients at ease during what can be a stressful experience. However, those who know him well understand that his loyalty and protectiveness run deep, particularly when it comes to his loved ones. Insults or threats against friends or family are not taken lightly, and it's possible that this can lead to some rather comical situations.
+
+The origins of Subject 9333 remain a mystery, as do many of the strange and otherworldly beings that share our world. However, despite his peculiarity, this monkey has proven himself to be a trustworthy asset to those fortunate enough to enlist his help.

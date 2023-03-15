@@ -1,0 +1,6 @@
+ID # : DSC-MATE-832
+DSC-MATE-832, also known as "Mafioso Hare", is a male rabbit of unknown origin and age. His appearance is characterized by a frightened mouth and horned rim glasses, as well as a headset with LED technology. The rabbit is often seen wearing a silver chain and smoking a cigarette, adding to his air of mystery and danger.
+
+DSC-MATE-832 is the leader of a powerful mafia syndicate, known for its criminal influence in the world of urban fantasy. He is a shrewd and cunning strategist, and is always looking for new ways to increase his power and influence. Despite his reputation as a powerful and intimidating figure, DSC-MATE-832 can be quite scatterbrained at times, often forgetting important details or getting sidetracked easily.
+
+Observers should exercise caution when interacting with DSC-MATE-832, as he is known for using his sharp wit and cunning to manipulate those around him for his own gain. Despite his small stature, the rabbit has proven to be a formidable opponent in both physical and mental combat, making him a force to be reckoned with in the world of urban fantasy.

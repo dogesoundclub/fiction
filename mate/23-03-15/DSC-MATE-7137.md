@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7137
+DSC-MATE-7137, also known as "The Car Salesman," is a humanoid of the human species with a disarming smile that could sell a car to anyone, no matter how broke they are. Their eyes are obscured by normal glasses, adding to their mysterious allure. DSC-MATE-7137 wears a police cap, signifying their sense of duty and responsibility, and on their forehead, there is a two-color band, representing their belief in justice and order.
+
+A green cross earring adorns DSC-MATE-7137's ear, possibly suggesting that they have a deep interest in healing and may have past connections in the medical field. They also wear a gold chain that accentuates their clothing, giving them an air of authority and sophistication. DSC-MATE-7137 is often seen smoking a cigarette, which may indicate that they are attempting to find balance in their life or help them manage stress.
+
+DSC-MATE-7137's personality is one of great discipline, always striving to do what is right. They take their job seriously, often sacrificing their personal time and well-being to ensure that their customers are satisfied. However, this behavior can lead to comedic moments when DSC-MATE-7137 tries to take on more than they can handle, resulting in humorous situations as they struggle to fit everything into one day or carry too many items at once.
+
+In conclusion, DSC-MATE-7137 is a charming and hard-working salesman who will stop at nothing to get the deal done. Their strong sense of duty and responsibility sometimes leads to humorous situations, but ultimately, their character embodies a commitment to justice and an unwavering commitment to their customers.

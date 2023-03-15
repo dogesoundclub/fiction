@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1300
+DSC-MATE-1300, designated as such due to its unique species and appearance, is a male rabbit that serves as a beautician for the supposed mythical creatures in the urban areas where it operates. Its striking ski goggle eyes are matched only by its not arranged green head, which is adorned with a goggle on its forehead. DSC-MATE-1300's preferred accessories are a red scarf and a candy stick, often seen lounging on a leather chair while attending to its clients.
+
+However, DSC-MATE-1300's personality is just as notable as its appearance. It is known for its quick wit and love of debate, which can sometimes lead to playful arguments with friends and family. Despite this playful demeanor, DSC-MATE-1300 is known to be incredibly skilled in its craft, leaving its clients satisfied and returning for more. Its friendly nature has earned it a reputation among the other urban fantasy creatures, often sought after for its beauty tips and secrets.
+
+DSC-MATE-1300's captivating appearance, coupled with its impeccable skills and likable personality, makes it a valuable asset to the Foundation. As such, any attempt by unauthorized personnel to approach DSC-MATE-1300 is strictly prohibited. In the event of an unauthorized interaction, Class-A amnestics will be administered to those affected to prevent a possible breach.

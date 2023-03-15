@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3749
+Subject 3749 is a human male, working as a lawyer in the urban area. Despite being human, the subject's face has notable orange stripes, accompanied by a constant smile that never leaves their lips. Their eyes are always aglow with VR Rainbow LEDs, giving the appearance of being in a constant state of amusement. Atop their head sits a distinctive Doge hat, while one of their ears is adorned with a beautiful jade earring. Around their neck, they wear a silver chain that seems to light up in the presence of supernatural beings.
+
+Perhaps the most telling feature of subject 3749, however, is the gas mask that they always carry with them. While it may seem strange for a human to be carrying a normal gas mask, in the world of the supernatural, it is far from uncommon. The mask serves as a safeguard, allowing the subject to better handle any unnatural occurrences that might come their way.
+
+Subject 3749 is known for their strong and decisive personality, which can sometimes come across as bossy or intimidating to others. However, this is not out of any malice; it's simply that they want to ensure that things are done effectively and efficiently. With a complete understanding of the urban supernatural world and a drive to solve any legal disputes that arise among the supernatural, subject 3749 is one powerful ally to have by your side.

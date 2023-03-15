@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8442
+DSC-MATE-8442, also known as "The Rebel Rabbit," is a male humanoid rabbit that stands at approximately 3 feet tall. He sports green hair, often styled in a messy fashion, and can usually be seen wearing a purple cap atop his head. A notable accessory of DSC-MATE-8442 is a candy stick that he often carries around with him.
+
+As a security guard, DSC-MATE-8442 takes his job seriously, but his rebellious nature can sometimes lead to conflicts with his superiors. He enjoys testing the boundaries and rules set out for him, often trying to bend them just to see what happens. This can result in humorous situations, though it has also led to DSC-MATE-8442 breaking protocol on occasion.
+
+Despite his troublemaking tendencies, DSC-MATE-8442 is well-liked among his colleagues and has been noted as a competent and reliable member of the security team. He is always willing to lend a hand when needed, but his mischievous personality can make him a handful to manage at times.
+
+It is important to note that DSC-MATE-8442 is a sentient being with emotions and should be treated with the same level of respect and professionalism as any other staff member. Any attempts to mistreat or harm DSC-MATE-8442 will not be tolerated and will result in disciplinary action.

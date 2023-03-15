@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3555
+Subject 3555 is classified as a monkey, but not just any ordinary monkey. This particular primate stands out due to its purple cap with a headset and a gold earring adorning each ear. It's not uncommon to spot 3555 wearing a silver chain around its neck and puffing on a cigarette while it works. 
+
+As an Electrician, 3555 displays an unparalleled level of dedication towards his job. He takes his work seriously and approaches it with precision and attention to detail. He can often be found working tirelessly in a dimly-lit electrical control room, surrounded by the flickering of circuits and the hum of generators. 
+
+Despite their strong sense of duty, 3555 knows when to let loose and have fun. They have a lively and outgoing personality, which often manifests itself in humorous situations, such as unexpected dance moves or silly antics. Their company is always sought after at social events, and they never fail to bring a welcoming vibe to any party they attend. 
+
+In conclusion, while 3555 may seem like an ordinary monkey with a penchant for accessories and partying, they are much more than meets the eye. Their dedication to their craft and sense of humor make them an indispensable asset in any urban fantasy setting.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-820
+Subject 820 is a highly intelligent primate species identified as a Car Salesman, who is believed to have some anomalous abilities. Its physical features include a green-colored hair in a purple cap, with a goggle placed on its forehead. It also possesses jade earrings, which add to its intimidating demeanor. Classified data suggests that the subject also wears a gold chain to complete its outfit.
+
+Though the creature may seem playful and jovial, it possesses a strong sense of duty and responsibility, and is highly efficient at selling cars. The Foundation has discovered that the subject has been utilizing its anomalous abilities to enhance its persuasive skills, allowing it to sell any vehicle to almost anyone.
+
+Furthermore, this monkey has a knack for amusing others and is quite the entertainer, showcasing its dance moves, and silly antics at social events. Despite its seemingly fun-loving nature, the Foundation has been keeping a close eye on the subject to ensure that it doesn't pose any threat to the public.
+
+Subject 820 is to be monitored at all times, and its interactions with the public are to be restricted. In case of any anomalous activities, the Foundation's forces are to be alerted immediately.

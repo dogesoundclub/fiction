@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8227
+Subject 8227, also known as "The Lawyer," is a human male with distinctive spots on his face that resemble some form of unusual marking or birthmark. He wears a short pek cap on his head that seems to shield him from prying eyes and a medical mask that obscures his true facial expressions. One of the most noticeable features on him is a green cross earring on his left earlobe. 
+
+8227 is a natural-born leader with a knack for taking charge of situations, whether at work or in a social group. They have a commanding presence that makes them stand out from the crowd, and their innate charisma draws people to them. Despite a friendly smile that sits on his face, there's a sense of aloofness that emanates from him, giving off a strange and eerie vibe. 
+
+As a lawyer, 8227 has a reputation for being ruthless in the courtroom and using his abilities to get the results he wants. But beyond his profession, he seems to have some strange connection with the supernatural world. It's unclear how or why he has acquired these skills, but there's no denying his powers. 
+
+Analyzing his person closely, it appears that 8227 possesses some strange qualities that defy standard human behavior. There have been occasional reports of his abnormal strength and agility that defy human capabilities. This has led some to speculate that the lawyer is not quite human, but rather some form of fantastical entity that has taken shape in the form of a human lawyer to carry out its mysterious motives. It's certain that when it comes to The Lawyer, there's much more beneath the surface than what meets the eye.

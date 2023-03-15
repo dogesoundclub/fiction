@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4652
+Subject 4652, also known as the "Curious Beautician", is a human male with distinctive orange stripes on his face, a perpetual smile, and unsettling red clown eyes peering out from beneath his not-arranged green hair. His forehead is adorned with a red victory band, perhaps indicative of some past achievement or glory. Two features that immediately catch the eye are his gold earring and a bright red scarf, always wrapped tightly around his neck.
+
+The subject's profession as a beautician is not uncommon in the human world, yet his peculiar appearance and mannerisms make him stand out like a sore thumb. Despite this, he seems to take pride in his work and always greets his clients with a warm grin. Those who have spent enough time around him insist that he has an insatiable curiosity about the world and relishes learning obscure or unusual facts. He has a tendency to randomly spout off facts or trivia, especially if it pertains to a topic he is passionate about.
+
+His deep curiosity has not gone unnoticed by Foundation personnel, who closely monitor his interactions with non-anomalous individuals. There have been reports of him discussing topics related to the paranormal or supernatural, though he has never shown any direct knowledge or involvement. It is uncertain whether his curiosity is natural or if it masks a deeper agenda.
+
+Despite his unusual appearance and rumored interests, Subject 4652 has never shown hostility or aggression towards any individuals. He is often seen puffing on a cigarette in a relaxed manner, observing the world around him with an almost detached interest. His overall personality and behavior are mildly concerning, but not enough to warrant additional action at this time.

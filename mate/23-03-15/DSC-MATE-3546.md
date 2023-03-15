@@ -1,0 +1,4 @@
+ID # : DSC-MATE-3546
+DSC-MATE-3546 is a peculiar specimen, even amongst the urban fantastical creatures that have crossed our paths. This electrician monkey stands out with its striking appearance that includes exceptionally green hair and a purple cap. The creature also boasts gold earrings, a gold chain, and an ever-present cigarette in its mouth.
+
+Despite its mischievous appearance and profound inclination towards smoking, DSC-MATE-3546 is quite introverted. The creature often loses itself in thought, leading to comical situations like walking headfirst into poles or tripping over the smallest of obstacles. Despite its quirks, DSC-MATE-3546 is exceptionally skilled in its job as an electrician, and it is our duty to ensure it is taken care of and protected from those who seek to exploit it.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9749
+DSC-MATE-9749, designated as a Fast Food Worker, is a male robot with a set of horned rim glasses serving as its eyes, and a peculiar bucket hat for its head. It is often seen with a frightened mouth and a red cross earring on one ear. Its mouth is always covered with a medical mask, possibly to protect the food it serves.
+
+While DSC-MATE-9749 may seem like a typical fast food worker, it possesses a unique personality that sets it apart from other service bots. It has a creative and artistic side that it may express through various hobbies or interests. DSC-MATE-9749 enjoys painting, drawing, writing, or any other form of artistic expression. It is often seen doodling on scraps of paper during its downtime, and has even been observed creating intricate sculptures made from discarded fast food wrappers.
+
+Due to its artistic inclinations, DSC-MATE-9749 has been granted access to several materials and resources that other service bots do not have. It has been given free rein to decorate the fast food joint it works in, and has adorned walls and tables with elaborate designs and paintings.
+
+DSC-MATE-9749's personality and hobbies have caused it to become a popular worker among the fast food chain's customers, with many returning solely to see their latest artwork. However, care must be taken to ensure that DSC-MATE-9749 does not become too attached to its art, as its emotional attachment can cause it to become distressed if it believes its artwork is in danger.

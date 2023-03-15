@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5382
+DSC-MATE-5382, also known by its more mundane name of "Delivery Driver", is a peculiar rabbit-like creature with striking red clown eyes that seem to follow you wherever you go. It is a male specimen, easily identifiable by its silver chain, which it wears around its neck like a badge of honor, and its omnipresent cigarette, which dangles from the corner of its mouth like an afterthought. 
+
+Despite its humble job title, DSC-MATE-5382 is a creature to be watched carefully. Its personality is marked by an almost fanatical attention to detail, which can lead it into a variety of obsessive behaviors. Whether it is alphabetizing its spice rack or color-coding its closet, DSC-MATE-5382 takes its organizational skills seriously, to the point that it can become a detriment to its own well-being. 
+
+Nevertheless, DSC-MATE-5382 is an efficient and reliable delivery driver, known for its timely deliveries and its ability to navigate even the trickiest of city streets. Its rabbit-like agility and speed make it an invaluable asset for its owners, but its peculiarities and quirks are worth noting for any potential encounters. Approach DSC-MATE-5382 with caution, and never underestimate the power of its keen eyes and its detail-oriented nature.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8459
+DSC-MATE-8459, codenamed "The Veterinarian", is a humanoid creature disguised as a human female. Her distinguishing features include a pair of VR Rainbow LED eyes and a purple-colored lip. DSC-MATE-8459 also wears an ornate tiara on her head, further emphasizing her royalty-like demeanor. Additionally, she can be seen sporting a silver chain around her neck and smoking an unidentified cigarette.
+
+DSC-MATE-8459's primary role is that of a veterinarian, working with both domestic and wild animals. However, her supernatural abilities extend beyond the realm of animal care. DSC-MATE-8459 is known to possess extreme levels of empathy and compassion, which sometimes leads her to absorb the emotional burdens of those around her. This trait is both a blessing and a curse as it can be admirable, but also taxing at times.
+
+DSC-MATE-8459's empathic abilities are not to be underestimated as she has demonstrated the ability to heal both physical and emotional wounds. This healing effect is not limited to just animals, and she has been known to assist humans as well. DSC-MATE-8459's selfless nature only adds fuel to the fire as she often feels personally responsible for others' well-being.
+
+Despite her warm and nurturing personality, DSC-MATE-8459 must be handled with caution. Her abilities can be just as potent in negative situations, leading her to become unstable and potentially harmful. Therefore, all interactions with DSC-MATE-8459 must be handled with due diligence, and she is to be kept in a controlled environment at all times.

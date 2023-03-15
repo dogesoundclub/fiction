@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1633
+DSC-MATE-1633 is a high-ranking politician in the local government. Despite their impressive position of power, DSC-MATE-1633 possesses a striking appearance that deviates from the norms of human society. Their face is adorned with purple lipstick, giving off an air of mystery and danger to those who approach. However, their most peculiar feature lies within their eyes. Embedded with VR Jade LED, DSC-MATE-1633's gaze appears to shift and glow in an otherworldly manner. 
+
+The head of DSC-MATE-1633 is styled in a short and fashionable cut, reminiscent of a modern-day witch. To complete their signature look, DSC-MATE-1633 wears a silver chain that hangs around their neck. This accessory acts as a symbol of protection, warding off negative energies that may threaten their safety.
+
+DSC-MATE-1633's personality is charming, yet disorganized. They tend to forget appointments and get sidetracked easily, losing themselves in their own thoughts. This absent-mindedness often puts DSC-MATE-1633 in humorous situations, much to the amusement of their colleagues. However, behind their scatterbrained exterior lies an intelligent and cunning mind, capable of manipulating those around them for their own personal gain. 
+
+DSC-MATE-1633's behavior is closely monitored by Foundation agents, as there have been reports of anomalous activity surrounding their person. It is unknown if DSC-MATE-1633 is aware of their abilities or if they pose a danger to those around them. At this time, DSC-MATE-1633 is classified as safe, but all interactions with the individual should be approached with caution.

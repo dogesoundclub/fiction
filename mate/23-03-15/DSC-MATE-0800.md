@@ -1,0 +1,8 @@
+ID # : DSC-MATE-800
+DSC-MATE-800, also known as "The Fast Food Worker," is a male human of average height and build. His most distinctive feature is his face, which displays orange stripes that seem to glow in certain lighting conditions. He is always smiling, giving off an air of friendly approachability. His eyes are VR Jade LED, giving him an otherworldly quality that can be both eerie and intriguing.
+
+DSC-MATE-800 wears a red beanie atop his head and sports a goggle on his forehead. His ears are adorned with a green cross earring, and he wears a silver chain around his neck. However, the most striking accessory he wears is a normal gas mask that seems to never leave his face, no matter the circumstance. This, combined with his striped face, lends DSC-MATE-800 an almost animalistic look.
+
+Despite his odd appearance, DSC-MATE-800's personality is surprisingly down-to-earth. He values his independence and likes to figure things out on his own, often refusing help even when it would be in his best interest. This stubbornness can lead to humorous situations, like his insistence on moving large pieces of furniture by himself or refusing to use a map when he's lost.
+
+However, DSC-MATE-800's true nature remains shrouded in mystery. His strange appearance and behavior have raised questions among researchers, who are unsure of his origins and motivations. As of now, DSC-MATE-800 remains under observation, and further study is needed to fully understand this enigmatic fast food worker.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7794
+DSC-MATE-7794 is a male tiger, stood upright with a height of 6ft 2inches. 7794 is a sight to behold, with its signature horned rim glasses perched on its black furred muzzle and Red beanie resting on its head. The tiger has a vibrant and colourful character with its red cross earring adorning its front-pointing ears. 
+
+DSC-MATE-7794 is a seasoned electrician, often working within the foundations of the city's ever-expanding grid. Its species may be a surprise to many, but its unmatched abilities and expertise make Them well suited for the job. 7794's demeanor is somewhat unique, and at times scatterbrained, leading it to forget even the most important of events or appointments. 
+
+While its ability to work through the intense and intricate wiring of the urban jungle remains unparalleled, caution is recommended when entrusting the responsibility of time-sensitive jobs to DSC-MATE-7794. Its jovial nature and aloofness may lead to unforeseen consequences. 
+
+DSC-MATE-7794 is to be kept on a strict regimen, ensuring its appointments and schedules are properly organized and documented. Its abnormal species is to remain confidential, and interaction with 7794 must be carried out as if They are a human being. Failure to adhere to the set guidelines may result in severe consequences.

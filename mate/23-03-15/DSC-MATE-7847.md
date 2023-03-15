@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7847
+Subject 7847, also known as "The Spotter", is a notorious Mafia Boss operating within the urban underworld. The subject appears to be a human female with distinctive spotted face features, sharp red lips, and a bleach-blonde hair set with an ominous wing. One of the most noticeable features of the subject is the pair of green cross earrings that they adorn on their ears.
+
+The Spotter often wears a silver chain that drapes like a noose around her neck, reminiscent of the tight control they have over their numerous criminal enterprises. The subject's personality is typically analytical, logical, and calculated. Known to have a dry, deadpan sense of humor, they tend to make witty observations and tease friends with their quick and biting verbal jabs.
+
+Despite her cold and calculating demeanor, The Spotter is incredibly charming and charismatic, able to sway even the most strong-willed individuals to their will with ease. The subject's reputation precedes her, and many individuals within the dark and dangerous underbelly of the city fear their wrath and respect their power.
+
+The true extent of their powers remains unknown, but rumors of strange supernatural abilities surround The Spotter - whispers of them being able to see things that others cannot, and of being able to manipulate the minds of their enemies. Whatever the truth may be, anyone who encounters this fearsome Mafia Boss is certain to be forever changed.

@@ -1,0 +1,9 @@
+ID # : DSC-MATE-9938
+DSC ID #9938 - Train Driver "Bananas"
+
+Species: Monkey
+Sex: Male
+Appearance: DSC-MATE-9938 is an anthropomorphic monkey of average height and build. The subject frequently wears a black train conductor uniform, with a golden pocket watch attached to its vest. The subject is often seen wearing normal glasses and a fashionable Doge hat, and sports a gold chain around its neck. The subject is rarely seen without its silver whistle, which dangles around its neck.
+Personality: DSC-MATE-9938 is a kind and compassionate individual, showing deep empathy for others. The subject may become emotional when witnessing the pain or suffering of others and may cry or have emotional outbursts. DSC-MATE-9938 has a particular affinity for animals and nature, expressing a fondness for organic life in all its forms.
+Containment Procedures: DSC-MATE-9938 is currently contained in a standard humanoid containment chamber, with access to a nature reserve adjacent to the facility. Please note that restrictions regarding public interaction must be strictly enforced, as DSC-MATE-9938 has a tendency to attract attention and adoration from bystanders.
+Notes: DSC-MATE-9938 is currently employed as a train driver, with exceptional skills in the operation of the steam engine locomotive. The subject expresses great pride in its work and demonstrates a high level of professionalism. DSC-MATE-9938's passion for locomotion is contagious, as it has been known to excite and inspire those around it. Further research is needed to determine whether DSC-MATE-9938's abilities can be harnessed for future advancements in transportation.

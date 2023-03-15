@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2698
+DSC-MATE-2698, codenamed "The Reporter," is a male human with distinctive features that make him stand out. He sports a pair of thick, nerd glasses that cover his eyes, while his frightened mouth seems to be in a constant state of panic. His head is shaved bald, resembling that of a monk, and he can often be seen wearing a silver chain as a complement to his attire.
+
+As a journalist, DSC-MATE-2698 is always on the lookout for newsworthy stories, often taking risks to get an exclusive scoop. However, his impulsive nature can land him in humorous situations that others find amusing, and he tends to act on his emotions rather than thinking things through.
+
+DSC-MATE-2698's personality is what makes him unique. At times he can be serious, driven, and passionate about his work. Other times, his impulsiveness takes over, and he becomes a walking punchline that people can't help but laugh at. Nevertheless, he remains an essential asset to the Foundation, being one of the few valiant reporters willing to investigate supernatural phenomena and raise awareness of their existence.
+
+Caution must be exercised when dealing with DSC-MATE-2698. He may tiptoe along the line of becoming a liability due to his risk-taking behavior, but due to his unique personality, he remains an important part of the Foundation's information-gathering efforts.

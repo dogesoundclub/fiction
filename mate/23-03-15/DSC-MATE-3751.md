@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3751
+Subject 3751, codenamed "The Clown Farmer", is a male human with distinct physical features that make him easily recognizable. He bears spots on his face, providing a unique contrast to his shockingly red clown eyes that seem to stare unabashedly at all those who dare to meet his gaze. His head is adorned with a peak spike, a symbol of his eccentric style, while his jade earring signifies a hidden meaning behind his flamboyant persona.
+
+The Clown Farmer carries a silver chain around his neck, a mystery to those who are not privy to the full extent of his enigmatic identity. However, it is a mere accessory compared to the LED gas mask that is never far from his possession. A functional and fashionable tool that masks his face and illuminates his path in the dark.
+
+Despite his unconventional appearance, The Clown Farmer is known to possess an excellent sense of humor that can uplift the spirits of those around him. He relishes in making others laugh, often sharing funny anecdotes or doing impersonations that leave his audience in stitches. Despite mask hiding his face, the warmth in his guffaws is unmistakable.
+
+Approach with caution, as The Clown Farmer's outlandish ensemble may be deceiving. However, those who take the time to get to know him may be pleasantly surprised by the depths of his wit and the richness of his eccentricity.

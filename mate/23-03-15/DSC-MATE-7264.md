@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7264
+DSC-MATE-7264 is a veterinarian of the human species, with a unique appearance that includes facial spots and purple lips. However, the most notable feature of DSC-MATE-7264 are their eyes, possessing the signature red clown eyes commonly worn in circus performances. They sport a 90s brown hair, complimented by a single green cross earring dangling from their earlobe.
+
+While DSC-MATE-7264 may look intimidating at first glance, their personality is quite the opposite. They hold value in social connections and strive for harmony within their environment. DSC-MATE-7264's easygoing nature also leads to a playful and goofy side, often cracking jokes or bantering with others. Despite their playful demeanor, DSC-MATE-7264 is a serious professional and approaches their work with utmost care, showcasing a deep love and passion for caring for animals.
+
+DSC-MATE-7264 prefers to wear a silver chain as an accessory, which can be observed accompanying them at all times. Overall, DSC-MATE-7264 is a friendly and approachable individual, with a unique appearance and a heart full of compassion.

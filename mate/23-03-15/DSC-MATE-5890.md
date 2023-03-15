@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5890
+Item #5890 is a rare specimen indeed. She appears to be a human with no apparent anomalies, save for her distinguishing physical features. Sporting a bright green head of hair arranged in a stylish edge curl, Item #5890's appearance can often be spotted from a distance. She also wears a striking set of green cross earrings, drawing further attention to herself. 
+
+In addition to her standout hair and jewelry, Item #5890 is rarely seen without her gold chain. The jewelry seems to hold some sentimental value to the item, and she seems to take great care in ensuring it is always on her person. 
+
+While initially appearing to have a relaxed and carefree attitude, further observation reveals Item #5890's deep-seated loyalty and protective nature. She will go to great lengths to defend those she considers her loved ones, even if it means getting into heated arguments with those who may insult them. Her lighthearted personality combined with her fierce protective nature makes for an interesting and complex individual, perfect for any urban fantasy narrative.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7220
+DSC-MATE-7220 is a humanoid entity, identified as a male politician. He is commonly seen sporting a retro cap atop his head and a silver chain draped around his neck, with a pair of nerd glasses adorning his eyes. What stands out most about DSC-MATE-7220 is his captivating smile, which possesses an almost hypnotic quality when he flashes it at those around him. 
+
+DSC-MATE-7220 is quite adept at using his high charisma and natural gift of gab to charm and persuade others to his will. His quick wit and clever retorts make him a force to be reckoned with on the political stage. DSC-MATE-7220 has been known to use humor as a tool to disarm his opponents, allowing him to gain the upper hand in debates and negotiations.
+
+While he may be charming and light-hearted on the surface, DSC-MATE-7220's true intentions remain a mystery. Rumors abound regarding his true loyalties, with some suggesting that he may even be a member of a secretive cabal bent on world domination. Whatever the case may be, approaching DSC-MATE-7220 with an air of caution is advised.

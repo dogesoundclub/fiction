@@ -1,0 +1,6 @@
+ID # : DSC-MATE-236
+DSC-MATE-236, also known as "Dr. Cap", is a human male with notable physical features. The subject's face is marked with a unique spot on the mouth. The subject is often seen wearing a purple cap with a headset, accompanied by a red scarf. DSC-MATE-236 is employed as a doctor and is an expert in his field.
+
+DSC-MATE-236 is a reliable and organized individual, but displays stubborn behavior when confronted with new ideas or changes in his routines. The subject carries out his duties with precision and professionalism, refusing to deviate from established protocols. This uncompromising attitude can lead to humorous situations when DSC-MATE-236 encounters the unexpected, but ultimately serves as a trait of trustworthiness.
+
+Overall, DSC-MATE-236 is a valued member of the Foundation's medical team, who displays an unwavering commitment to the preservation of the anomalous and the preservation of life. Caution should be exercised when introducing significant changes or deviations from his established routines.

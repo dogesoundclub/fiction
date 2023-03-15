@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8225
+DSC-MATE-8225, also known as "The Salesman," is a humanoid entity resembling a male human with striking orange stripes running down his face. His face is typically obscured behind a pair of normal glasses, which conceal his piercing and observant eyes. The entity is often seen adorned in a police cap, adorned with a green cross earring in one ear and a bright red scarf draped around his neck. 
+
+DSC-MATE-8225's abilities are centered around his creative and innovative mindset, which have led him to excel in the field of car salesmanship. He is a natural promoter and can easily convince potential buyers to purchase vehicles, often utilizing his out-of-the-box brainstorming skills to tailor his pitches to specific customers. 
+
+DSC-MATE-8225's personality is characterized by his love for originality and his desire to constantly push the boundaries of what is possible. He enjoys coming up with new and off-the-wall ideas, and often relishes in the reactions of those around him when he suggests something particularly unusual. DSC-MATE-8225's sense of humor and general liveliness make him a likable individual, even if his occasionally zany behavior can confuse those around him. 
+
+It is important to note that while DSC-MATE-8225's abilities are not inherently harmful, his tendency to experiment and improvise can lead to unpredictable and potentially problematic situations. It is recommended that he be kept under close observation and only utilized in controlled environments.

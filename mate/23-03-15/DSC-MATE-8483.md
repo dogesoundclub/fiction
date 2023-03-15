@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8483
+DSC-MATE-8483, known colloquially as "Tigerdoc", is a male tiger of an unknown sub-species. Despite his sharp teeth and claws, Tigerdoc has seemingly acclimated himself to assisting the creatures of the urban jungle in his role as a veterinarian. However, it is important to note that Tigerdoc is not to be underestimated, as he possesses a wild and unpredictable nature that belies his calm demeanor.
+
+Tigerdoc's unique appearance is characterized by his ski goggle eyes and green hair under a purple cap, which add to his overall eccentricity. His ears are pierced with a gold earring, which he is often seen twisting absentmindedly. He can usually be found with a candy stick in his mouth, which he claims helps him concentrate during surgeries.
+
+Though sagacious in his field, Tigerdoc tends to be forgetful and absent-minded, often getting lost in his thoughts while tending to patients. This can sometimes result in unintended but humorous consequences, such as missed appointments and tardiness. Despite his quirks, Tigerdoc is a caring and compassionate individual who goes to great lengths to ensure the well-being of his patients, regardless of their species.

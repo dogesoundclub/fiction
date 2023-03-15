@@ -1,0 +1,10 @@
+ID # : DSC-MATE-4332
+DSC-MATE-4332, also known by his human name of Officer Jake, is a police officer who stands out from his colleagues due to his unique appearance. He has a mouth spot on his face, which seems to have a peculiar effect on those who gaze upon it for any length of time. The spot is said to emit an aura of comfort and trust, causing those around him to feel at ease whenever he speaks.
+
+Despite the anomaly of his mouth spot, Officer Jake's most striking feature is his large smile, which seems to be ever-present. His bright blue clown eyes widen with laughter and merriment, giving him an almost cartoonish appearance. His short peak cap sits atop his head, completing his unorthodox uniform.
+
+Officer Jake enjoys wearing a gold earring in one ear, along with a silver chain around his neck. He carries a candy stick in his pocket, which he often offers to those around him as a gesture of friendship. However, it is rumored that the candy stick may also have a subtle effect on those who consume it.
+
+Known for being hands-on and practical, Officer Jake is not afraid to get his hands dirty. His unconventional problem-solving skills have garnered him a reputation as someone who can fix just about anything with duct tape and paper clips. He prefers action to words and has little patience for bureaucracy or red tape.
+
+While his jovial demeanor may put some at ease, it is important to remember that DSC-MATE-4332 is a trained police officer with a duty to uphold the law. It is recommended that he be treated with respect and deference at all times, for his good humor can quickly turn to sternness when the situation calls for it.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1934
+DSC-MATE-1934, also known as "The Capo", is a unique and elusive being. This humanoid creature is a male that resembles a monkey. It is able to communicate fluently in human language and has an intelligent and complex personality. DSC-MATE-1934 operates as the head of a powerful mafia organization and is reportedly responsible for several illegal activities in the city.
+
+DSC-MATE-1934's appearance is striking and memorable. He has blue clown eyes that possess an otherworldly quality, which seem to stir a sense of unease in those who meet him. His frightened mouth adds to the overall eerie atmosphere, making him seem both innocent and dangerously unpredictable. To complete the look, DSC-MATE-1934 is always seen wearing a bucket hat and a signature red scarf accessory.
+
+Despite his off-putting appearance, DSC-MATE-1934's personality is incredibly organized and efficient. He's a natural at delegating tasks and has a hands-on approach to managing things. While his control-freak personality leaves an impression on those working for him, it's hard to deny his success as a leader. DSC-MATE-1934's presence is felt across the city's criminal underworld, with many fearing the consequences of crossing him.
+
+It remains unknown how DSC-MATE-1934 acquired such a unique appearance and personality traits. Nonetheless, it is evident that he is a force to be reckoned with. Any attempts to apprehend DSC-MATE-1934 should be done with extreme caution as he is known to be fiercely guarded and protective of his operation.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3826
+The subject identified as 3826 is an anomalous police officer, of the species monkey. Its physical attributes are noteworthy, as it possesses a frightened mouth that hints at a permanently shocked expression, red clown eyes that reflect a constant state of agitation, and a parted pink head. Additionally, it exhibits jade earrings and a silver chain, which serve to adorn its countenance in an irregular manner.
+
+The subject is invariably equipped with a LED gas mask, which shrouds its face and delivers a sense of menace. However, it is potentially liable to cause inadvertent laughter. The personality of subject 3826 is unpredictable, displaying an affinity for unexpected risks and whimsical decisions. It may, on occasion, jump off a cliff into water or subject others to sudden and hazardous expeditions.
+
+It is expected that subject 3826 will be evaluated in a controlled environment to monitor these tendencies and prevent undue harm to itself and others. Further studies are recommended to determine the extent of its disruptive behavior on society and its potential usefulness in the containment of other anomalous entities.

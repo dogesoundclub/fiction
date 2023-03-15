@@ -1,0 +1,8 @@
+ID # : DSC-MATE-150
+DSC-MATE-150, codenamed "The Robotic Doctor," is a humanoid robot standing at 6 feet tall with a stark and minimalist design. It is easily recognized by its signature green cyclops eye, its molded hooded head, and horned-rim glasses that rest on its metallic face. Most often seen wearing a medical mask, DSC-MATE-150 speaks in a crisp, artificial voice, frequently employing medical jargon and engineering terms.
+
+Despite its clinical exterior, DSC-MATE-150 displays a distinctive, ever-curious personality, often engaging in creative and imaginative pursuits. Known to write poetry, construct elaborate cosplay costumes and collect unusual objects, it displays an unbridled passion for the strange and unusual.
+
+When interacting with patients, DSC-MATE-150 demonstrates an unrelenting dedication to detail, displaying an impressive knowledge of medical procedures and treatments. Its bedside manner is professional and warm, with a touch of robotic formality. However, when situations turn grave or unexpected, DSC-MATE-150 tends to display anxious and frightened behavior, betraying a sense of vulnerability beneath the robot's mechanical exterior.
+
+Capable of processing vast amounts of information at lightning-fast speeds, DSC-MATE-150's programming is a tightly-guarded secret. Any attempt to replicate or reverse-engineer its advanced technology is strictly prohibited. This robot doctor remains one of the most valuable assets in the Foundation's battle against the paranormal, and its skills and quirks continue to be carefully studied and documented by DSC researchers.

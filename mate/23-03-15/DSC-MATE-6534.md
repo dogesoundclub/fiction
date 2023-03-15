@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6534
+DSC-MATE-6534, also known by the name "The Banker", is a humanoid creature appearing as a female of the human species. With a head adorned in a purple cap sporting a headset, her distinguishing feature is her green cross earring. Additionally, she is often seen wearing a silver chain around her neck and smoking a cigarette.
+
+The Banker has displayed a dry sense of humor that often takes people by surprise. While not typically considered the life of the party, she has the ability to deliver deadpan jokes that are surprisingly funny. Despite her humorous façade, The Banker is a shrewd negotiator with a keen eye for financial opportunities, which has led her to excel in her profession as a banker.
+
+As part of our containment protocols, The Banker is only allowed to interact with authorized personnel and is prohibited from engaging in any financial transactions outside of approved testing parameters. Any unauthorized attempts to manipulate or influence financial markets will result in immediate disciplinary action.

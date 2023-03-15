@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7048
+DSC-MATE-7048, codename "The Reckless Guard" is a human female with vibrant features. She sports a pair of fiery red lips that catch the attention of those around her, complementing her striking orange eyebrows. Her green hair is usually adorned with a purple cap, and she never goes without wearing her signature green cross earring.
+
+As a security guard, DSC-MATE-7048's job requires a level of caution and maturity. However, she tends to act impulsively and recklessly, leading her into trouble more often than not. Despite her flaws, it is undeniable that DSC-MATE-7048 brings a unique energy and charisma to the Foundation.
+
+The Reckless Guard's antics have not gone unnoticed by her colleagues, and she has become somewhat of a wildcard on the field. Her recklessness has led to some humorous situations, such as getting into minor accidents or mishaps while trying to show off or impress others. Though her daring nature worries her teammates, DSC-MATE-7048's quick thinking and bravery have saved lives on more than one occasion.
+
+DSC-MATE-7048 is a shining example of the unpredictability that humans bring to the Foundation. Her wild nature is a reminder that not all Foundation personnel can easily fit within a neat classification. She serves as a reminder that even those who seem reckless can prove to be invaluable assets to the cause.

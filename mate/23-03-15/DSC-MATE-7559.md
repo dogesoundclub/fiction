@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7559
+DSC-MATE-7559, designated as "The Traffic Officer", is a human female with distinguishing physical features such as spots on her face and two color bands on her forehead. Her head is adorned with green hair and a purple cap, giving her a unique and colorful appearance. She can be identified by her gold earring and silver chain, which she always wears.
+
+The Traffic Officer's personality is one of tradition and seriousness, which is a necessary trait in her line of work. She takes her job very seriously and ensures that the city's traffic flows smoothly. However, beneath her no-nonsense exterior, she has a playful side that comes out in humorous situations. Her love for telling stories and jokes that have been passed down through her family or community often results in laughter and a light-hearted atmosphere.
+
+DSC-MATE-7559 is an important asset to the local community, but her unusual appearance might draw unwanted attention to her from the public, hence any interaction with her should be avoided unless scheduled and monitored by security.

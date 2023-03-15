@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8547
+DSC-MATE-8547, codenamed "The Joker Vet," is a female human veterinarian with a striking appearance. Her face features orange stripes, a contagious smile, and orange eyebrow eyes that seem to shine with mischief. She tops off her look with a retro cap with a two-color band on her forehead and wears green cross earrings and a gold chain around her neck.
+
+However, her most curious accessory is her LED gas mask, which she claims helps her focus and recharge her unique energy. DSC-MATE-8547 is known for her exceptional sense of humor and her love of making others laugh. In some cases, this has led to some unconventional methods of animal treatment, including joking with animals to soothe them during procedures.
+
+DSC-MATE-8547's jokes and pranks have led to some humorous situations in the research facility, and her contagious laughter can brighten even the darkest of moods. However, caution is advised as she has been known to push boundaries with her humor, and her eccentric personality may make her unpredictable. DSC-MATE-8547 is to be kept under close surveillance to ensure the safety of personnel and animals in her care.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4867
+DSC-MATE-4867, also known as "Rabbit Farmer," is a humanoid female of the human species, with an anomalous appearance that includes a pink rabbit head and gold earrings for ears. DSC-MATE-4867's most notable physical feature is her permanent smile, complemented by a choker that they always wear around her neck.
+
+DSC-MATE-4867's personality is bubbly and upbeat, but their scatterbrained tendencies can cause disruptions when completing tasks or keeping schedules. Despite this, DSC-MATE-4867's skill and dedication as a farmer is undeniable, and their focus is unwavering when it comes to managing their crops and livestock within the DogeSoundClub's containment facilities.
+
+Attempts to remove the rabbit head and earring accessories have been unsuccessful, indicating that these features are integral to DSC-MATE-4867's anomalous properties. As such, personnel are advised to maintain a professional, non-judgmental attitude towards DSC-MATE-4867, treating them with the same respect as any other Foundation staff member.

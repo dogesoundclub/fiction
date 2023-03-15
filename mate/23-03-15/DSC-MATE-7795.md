@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7795
+Subject 7795, also known as "The Joker Train Driver", is a human male with a striking appearance. His face is adorned with bright orange stripes that run from cheek to cheek, highlighting his extravagant red clown eyes that almost seem to glow with a supernatural energy. His piercing gaze is completed with a single jade earring dangling from his left ear, an exotic detail that adds to his enigmatic aura.
+
+Despite his flamboyant appearance, 7795 is a highly organized individual with a strategic mind that helps him excel at his job as a train driver. He is renowned for his ability to anticipate potential problems and prepare accordingly, earning the respect of his colleagues and the trust of his passengers. However, his structured nature is balanced by a whimsical side that can sometimes lead him down unexpected paths.
+
+As much as he enjoys planning, 7795 also relishes in the thrill of spontaneous adventure, often surprising his friends with whimsical outings or last-minute party planning that turn into unforgettable experiences. His ability to adapt and seize the moment has made him a trusted ally to those fortunate enough to cross his path.
+
+Despite his friendly personality, caution is advised when interacting with 7795. His supernatural appearance and unpredictable behavior have raised concerns among our agents, and further investigation is highly recommended.

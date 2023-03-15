@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6351
+DSC-MATE-6351, also known as "The Real Estate Rabbit," is a humanoid entity standing at approximately 3 feet tall with a typical rabbit's body covered in fluffy gray fur. The most notable feature, however, is the pair of red clown eyes that glow unnaturally against the mannerisms of any light source. 
+
+DSC-MATE-6351's preferred accessory is a cigarette, which they constantly smoke despite being detrimental to their health. It is unknown why this habit is so important to DSC-MATE-6351, but a strong theory is that it helps to ease feelings of anxiety and stress often associated with their job as a real estate agent. 
+
+While DSC-MATE-6351 is a rabbit, they are mostly bipedal and possess human-like intelligence, with an affinity for business and real estate. They have an unwavering sense of independence and pride themselves on being self-sufficient, often opting to do things alone rather than seeking help from others. This trait can lead to comical situations, such as struggling to move heavy furniture or stubbornly refusing to use a GPS when lost.
+
+Despite their aloof personality, DSC-MATE-6351 is known for their shrewd negotiations and ability to make deals that benefit both parties, making them a valuable asset in the world of real estate. However, caution should be exercised when dealing with DSC-MATE-6351, as they have exhibited unpredictable behavior, making them difficult to contain and observe.

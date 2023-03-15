@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6149
+Subject 6149, also known as "The Don", is a notorious Mafia Boss who never fails to leave a lasting impression on those who encounter him. His face is adorned with a distinctive spot on his mouth, while his eyes are shielded by sleek ski goggle lenses. A short peak cap sits atop his head, with a goggle perched just above his forehead. A medical mask covers his mouth, adding to the mystery that surrounds him. But it's the vibrant red scarf wrapped around his neck that completes his striking appearance.
+
+Despite his menacing presence, The Don has a surprisingly lighthearted persona. He takes his job seriously, possessing a deep sense of duty and responsibility for his organization. However, when it's time to let loose, he knows how to have a good time. His playful side comes out during social events, surprising those around him with his dance moves and silly antics on the dance floor.
+
+Approach with caution, as The Don is not to be underestimated. But don't be surprised if you find yourself laughing along with him at his next dance party.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7335
+The Theater Manager, designated as Identification Number 7335, is a male tiger with blue clown eyes and a frightened mouth. His head is not arranged green, and he wears a red victory band on his forehead. He can often be seen wearing a red scarf and smoking a cigarette.
+
+Despite his intimidating appearance, the Theater Manager possesses a gentle and empathetic personality. He is known for his ability to understand and connect with those around him, but this same quality can sometimes lead him to take on the burdens of others as if they were his own. He has an admirable desire to help people, but it can also be exhausting for him to carry the weight of other people's problems.
+
+As a tiger, the Theater Manager has an innate sense of power and strength, but he rarely uses these qualities to intimidate or control others. Instead, he uses his natural charisma and understanding nature to manage the theater and create a welcoming environment for all who enter.
+
+Despite the potential danger of his species, the Theater Manager is a valuable member of the urban fantasy community, using his unique abilities as a tiger and his compassionate personality to bring people together and work towards a better future.

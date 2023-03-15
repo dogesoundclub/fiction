@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6644
+DSC-MATE-6644 is a human female with a unique appearance. Her facial features are adorned with spots, and she has normal glasses for eyes. Additionally, she wears a red cross earring in her ears and a medical mask over her mouth, which is both unsettling and intriguing. One of her standout accessories is a silver chain that hangs around her neck, drawing attention to her attention to detail and meticulous approach to life.
+
+DSC-MATE-6644 works as a train driver but keeps her appearance and personal quirks to herself. Nevertheless, her personality is intensely detail-oriented, to the point where it can verge on the obsessive. This trait extends beyond her work and spills over into her personal life, where she alphabetizes her spice rack and color-codes her closet.
+
+While DSC-MATE-6644's quirks might seem eccentric, they could be an asset in a high-pressure situation where precision is everything. As such, she has been classified as neutral and is allowed to continue with her routine job. However, DSC-MATE-6644 must be monitored closely if she displays any unnatural or paranormal behavior.

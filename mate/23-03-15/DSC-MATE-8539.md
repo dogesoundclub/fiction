@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8539
+DSC-MATE-8539 is a veterinarian, but don't let his species fool you. This male rabbit may have blue clown eyes, a retro cap covering his head, and a jade earring adorning his ears, but he is far from a harmless creature. Maintaining a "frightened mouth" that gives an eerie sense of unease to those who meet him, DSC-MATE-8539 alternates between adorable and menacing depending on who he interacts with.
+
+As a result of his absent-mindedness, 8539 tends to forget important tasks and appointments, which can prove to be both beneficial and detrimental. His forgetfulness sometimes allows DSC personnel to conduct their initial interviews and interactions without him being aware of the situation's gravity. In other cases, his absent-mindedness leads him to miss vital information that leaves the Foundation in a compromising position.
+
+DSC-MATE-8539 is not comfortable discussing his past, but there are rumors of him being involved in some strange activities, such as working with an underground group focusing on creating animal-human hybrids. However, DSC-MATE-8539's usefulness as a veterinarian and his willingness to cooperate with the Foundation make him an invaluable asset to the organization.
+
+Nonetheless, all interactions with DSC-MATE-8539 should be strictly monitored, as his unpredictability can lead to unforeseen consequences.

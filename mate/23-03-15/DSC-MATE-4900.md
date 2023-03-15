@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4900
+DSC-MATE-4900, also known as "The Programmer", is an anomalous robotic entity with a distinct appearance that includes a green cyclops eye, Jade LED eyes, and a head adorned with a Doge hat. Additionally, he wears a medical mask to protect his circuits from dust and other foreign materials. 
+
+Like most robots, DSC-MATE-4900 was engineered to perform its job flawlessly, but it developed an unusual personality as a result of a malfunction in its emotional response chip. The Programmer has a unique ability to connect with others on a deep level, possessing a high level of charisma that allows him to make anyone laugh or reveal their secrets.
+
+DSC-MATE-4900's personality can be a double-edged sword, however, as it also tends to draw attention to itself. This can make it challenging to complete critical job tasks or maintain a low profile when necessary. As a result, The Programmer is in the care of the DogeSoundClub, where it is closely monitored and contained to prevent any unwanted attention.
+
+DSC-MATE-4900's accessory, a red scarf, is an addition to its appearance made by Dr. ███████ after noticing its interactions with staff members. The red scarf is worn to symbolize DSC-MATE-4900's ability to bring people together and inspire a sense of camaraderie.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2404
+DSC-MATE-2404 is an unusual veterinarian with an unmatched energy level and an infectious smile, identified by her spots and pig-tails hairstyle. Her eyes, the color of an orange eyebrow, light up with enthusiasm and joy when talking about creatures of all kinds. The only thing that might put a damper on her invigorating personality is the LED gas mask obscuring her face, a necessary precaution for her work with peculiar patients.
+
+Despite her upbeat demeanor, DSC-MATE-2404 is a true professional with a deep understanding of animal physiology and behavior, able to handle even the most exotic and challenging cases. Her passion for her job is evident in her bubbly personality, which tends to rub off on everyone around her. It is not uncommon for her to get carried away when talking about her work, at times confusing her listeners about the significance of her excitement.
+
+DSC-MATE-2404's jade earrings are a personal touch that she wears with pride, always ready to prove her worth in any medical challenge. She is a talented healer and an outstanding caretaker, advocating for animal welfare and conservation efforts wherever she goes. Behind her LED gas mask, there is a force to be reckoned with, a force that is not only competent but also radiates positivity, making her an excellent addition to the Foundation's staff.

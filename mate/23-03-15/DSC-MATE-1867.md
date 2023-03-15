@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1867
+DSC-MATE-1867, also known as "The Veterinarian," is a human female with distinctive spots on her face and bright red lips. Her orange eyebrows and purple cap with a headset adorn her head, along with a two-color band and goggles on her forehead. She is always seen wearing a medical mask and a silver chain accessory.
+
+Despite her serious profession, DSC-MATE-1867 has a great sense of humor and enjoys making others laugh. Her humor often leads to humorous situations, such as telling funny stories or doing silly impersonations to lighten the mood. However, it is advised that caution be taken when interacting with DSC-MATE-1867, as her humor can sometimes be inappropriate or misinterpreted by others. It is also noted that she has a deep love and compassion for animals, as evidenced by her chosen profession as a veterinarian. 
+
+DSC-MATE-1867 is to be kept in a secure facility at all times, as she is not immune to the dangers of the supernatural world. Any interactions with DSC-MATE-1867 must be monitored and recorded for safety reasons. It is advised to approach her with caution, as she may not always take her work seriously and may make light of dangerous situations.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9177
+DSC-MATE-9177, codenamed "The Real Estate Agent," is a male monkey of unknown origin. The subject stands at roughly 3 feet tall and appears to have a thick fur coat, similar in color to that of a spider monkey. The most notable feature of DSC-MATE-9177 is its large, blue clown-like eyes that remain fixed in a state of perpetual fear. 
+
+In addition to its unique facial features, DSC-MATE-9177 frequently dons a Doge hat atop its head, along with a red scarf around its neck. The subject is often seen wearing a standard gas mask, which it claims provides comfort and protection against unspecified environmental dangers. 
+
+Despite its odd appearance, DSC-MATE-9177 presents a surprisingly amiable demeanor, exhibiting a strong sense of compassion and nurturing behavior. The subject has been observed engaging in conversations with inanimate objects, anthropomorphizing and assigning them names and unique characteristics. DSC-MATE-9177 has also displayed an affinity for caring for living organisms, such as plants and animals, often going to great lengths to ensure their well-being. 
+
+Given DSC-MATE-9177's unique set of characteristics and its unexplained origins, it is recommended that the subject be monitored closely to ensure its behavior remains within acceptable parameters. Additional research is required to determine the nature of DSC-MATE-9177's abilities and motivations.

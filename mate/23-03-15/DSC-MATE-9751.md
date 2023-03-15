@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9751
+Subject 9751 is a human female, and a skilled politician. Their distinguishing feature is the orange stripes across their face, which are accentuated by their bold red lip. Their head is often concealed by a hoodie, which further adds to their mysterious allure. Covering their mouth is a medical mask, shrouding their true intentions and identity.
+
+Despite their impressive political career, subject 9751 can be quite forgetful and absent-minded. Often lost in deep thought or consumed by their work, they can easily lose track of time and miss important appointments. This vulnerability to distraction can lead to some humorous situations, which only add to their enigmatic personality.
+
+However, it is important to note that their gold chain accessory, and their slick political persona can be deceptive, hiding a darker, more sinister side to their character. It is crucial that caution be taken when dealing with subject 9751, as nothing in their political playbook should be taken at face value.

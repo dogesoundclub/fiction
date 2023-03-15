@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7749
+DSC-MATE-7749, also known as "The Mechanic," is a female human with distinctive orange stripes on her face which contrast sharply with her purple lips. However, her most striking feature is her VR rainbow LED eyes which are always actively scanning her surroundings. DSC-MATE-7749 is typically seen wearing a hoodie, with a choker as her primary accessory.
+
+Despite her somewhat unusual appearance, DSC-MATE-7749 is quite charismatic and possesses a natural talent for leadership. She has an uncanny ability to take charge of situations, and often finds herself in positions of authority, whether it be at work, in a social group, or within her personal life. Her calm demeanor and level-headedness make her an excellent problem-solver, as she is able to remain focused and rational even in stressful situations.
+
+As a Mechanic, DSC-MATE-7749 specializes in the repair and maintenance of complex machinery, often working long hours to ensure that everything is running smoothly. She is meticulous and detail-oriented in her work, taking great care to ensure that every piece is in perfect working order before considering a job complete.
+
+Overall, DSC-MATE-7749 is a valuable member of any team, possessing both the technical skills and innate leadership ability needed to excel in any situation. While her appearance may be striking, it is her exceptional personality and unwavering dedication that make her a truly remarkable individual.

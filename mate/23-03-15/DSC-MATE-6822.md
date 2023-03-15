@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6822
+DSC-MATE-6822, also known as "The Electrician," is a male human with a unique appearance. His facial features include a distinct mouth spot and a frightened mouth, contrasting with his nerdy glasses. His head is often disheveled and covered with a peculiar green color, which has not been identified as hair dye or pigment. One of his ears sports a noticeable green cross earring.
+
+Despite his unusual appearance, DSC-MATE-6822 is highly skilled and responsible in his role as an electrician. He takes his job seriously, ensuring that each task is completed correctly and efficiently. However, he also has a lighthearted and humorous side to him. He knows how to have fun and often initiates lively celebrations, such as impromptu dance parties or karaoke sessions, much to the delight of his colleagues.
+
+DSC-MATE-6822's sense of duty, coupled with his cheerful nature, has earned him a special place within the Foundation. He is well-liked by his peers, providing a positive and uplifting presence within his work environment. However, due to his distinct appearance and jovial personality, extreme care must be taken during public outings to avoid arousing suspicion from those outside the Foundation.

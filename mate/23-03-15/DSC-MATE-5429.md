@@ -1,0 +1,10 @@
+ID # : DSC-MATE-5429
+DogeSoundClub Description:
+
+DSC-MATE-5429, also known as "The Empathetic Electrician," is a humanoid species classified as a Human, with distinct and abnormal physical features. Her face is adorned with vibrant orange stripes and a seemingly ever-present smile, but her red clown eyes can quickly unsettle those is unaware of her anomalous properties. DSC-MATE-5429's head is described as being oddly "off-center," with hair appearing to fall unnaturally to one side. Her most notable accessory is a red cross earring and a silver chain that is almost always seen draped around her neck.
+
+DSC-MATE-5429 is a skilled electrician but primary containment is advised due to her very reality bending empathy. Her anomalies are expressed as an uncontrollable sensitivity towards other people's emotions and well-being, which can lead her to empathize and even mirror their feelings. The Empathetic Electrician can become so emotionally attached to someone, that she will feel their pain or joy, and even cause the expression of the persons traits. 
+
+It is suggested that all communications with DSC-MATE-5429 should be done through a third party; preferably a scientist with a minimal response rate as to not inadvertently trigger her Empathetic abilities. Any attempts to aggravate or cause emotional stress to DSC-MATE-5429 must be avoided for the safety of both the Empathetic Electrician and anyone within close proximity.
+
+DSC-MATE-5429 has expressed an unusual fondness for animals and nature, frequently taking long walks outside of the containment cell to experience the ecosystem, so it is recommended that such environments be closely monitored to prevent anomalous interactions. Any new staff members who come into contact with DSC-MATE-5429 should be advised to be cautious in their interactions as the effects could quickly escalate, leaving them emotionally and identically altered.

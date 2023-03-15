@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9490
+DSC-MATE-9490, also known as "The Salesman", appears to be a standard human male, but with several distinguishing features. His head is adorned with a peak spike, giving him a distinctly unique silhouette. Additionally, he has spots scattered across his face, adding to his unusual appearance. His ears are pierced with a gold earring, and he often wears a silver chain around his neck as an accessory.
+
+Despite his eccentric appearance, DSC-MATE-9490 is a charmer of sorts. As a car salesman, he values the art of persuasion and has a gift for connecting with others. He values harmony and seeks to maintain social connections with his colleagues and customers alike. However, he also has a playful and goofy side, often engaging in humorous banter or telling jokes to break the ice.
+
+While DSC-MATE-9490's powers are yet to be fully understood, researchers have noted that his ability to charm and persuade others can border on the supernatural. Some close to him have claimed that being in his presence can feel almost enchanting. Further research is required to accurately determine the extent of his abilities, but caution is advised when interacting with DSC-MATE-9490, as his persuasive powers can be powerful and potentially hazardous.

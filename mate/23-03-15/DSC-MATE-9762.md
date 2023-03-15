@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9762
+DSC-MATE-9762, designated as Officer T.S. by the Foundation, is a male monkey police officer employed in the urban area. Despite his primate species, Officer T.S. possesses a remarkable level of intelligence and wears a pair of nerd glasses as an accessory. His head is adorned with green hair and a purple cap, while sporting a gold earring and a gold chain as accessories.
+
+However, Officer T.S.'s most distinctive feature is his LED gas mask, which he wears during high-stress missions. The mask glows with red light, a warning to any ne'er-do-wells in the vicinity that Officer T.S. is on the job.
+
+Personality-wise, Officer T.S. is a driven and ambitious individual who strives to do his best on the job. He has excellent organizational and strategic thinking skills, which have helped him pull off many successful operations. However, Officer T.S. can sometimes bite off more than he can chew, leading to potentially dangerous situations. Despite this, the Foundation considers Officer T.S. a valuable asset due to his unwavering dedication to his duties.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2277
+DSC-MATE-2277 is a female human believed to possess bizarre and eldritch abilities. Her striking features include a set of luscious purple lips, juxtaposed by her unnatural VR Jade LED eyes that appear to be constantly shifting in color. DSC-MATE-2277 is adorned with 90s brown hair, green cross earrings, and a gold chain that rest loosely around her neck. Alongside these, she is always seen with a cigarette hanging out of her mouth, adding to her inexplicable personality.
+
+Research has shown that DSC-MATE-2277 is a programmer who provides us with valuable technological support. Her strong and decisive attribute shines through her work ethic; however, it can sometimes come off as bossy or intimidating. Despite this, her main goal is to ensure that all her projects are executed efficiently and systematically, even if her methods appear to be unorthodox.
+
+DSC-MATE-2277's eldritch abilities may be a source of concern to the organization; however, her sheer genius and programming expertise surpasses any threats. DSC-MATE-2277 is to be monitored regularly and kept under surveillance to ensure the safety of the organization and the populace.

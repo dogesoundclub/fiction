@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1564
+Subject 1564, also known as the "Mafia Boss," is a human male with a distinctive appearance that sets him apart from the masses. He sports an eye-catching mohawk and a curious green cross earring. His most striking features, however, are his red clown eyes, which seem to project an aura of mischievousness and danger. 
+
+1564 is a capable and organized individual, and his success in the world of organized crime is a testament to his skills. He is known for being a dependable ally and a formidable adversary, but also for his obstinacy and reluctance to change. His attachment to his routines and habits can sometimes lead to comical situations, as he struggles to adapt to new challenges or circumstances. 
+
+It is wise to approach 1564 with caution, as his affiliation with the mafia gives him significant influence and resources at his disposal. But for those brave enough to take a chance and earn his favor, 1564 can be a loyal and invaluable partner. Make no mistake, however - betraying his trust is not a mistake one can afford to make.

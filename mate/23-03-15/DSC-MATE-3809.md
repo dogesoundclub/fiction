@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3809
+DSC-MATE-3809, also known as "The Mechanic," is a human female identified as possessing extraordinary leadership qualities. With her arresting features, including a pair of bright VR Rainbow LEDs for eyes, and signature purple lips, DSC-MATE-3809 commands attention the moment she enters a room. But it is her jade green, meticulously styled hair that captures the attention of her colleagues and acquaintances, its edge curl lending her a sharpness that perfectly complements her commanding persona.
+
+An earring in the shape of a green cross only adds to the unique nature of DSC-MATE-3809's appearance, though it is her ever-present cigarette that typically draws the most notice. A master mechanic, the subject excels in repairing more than just automobiles, often found taking charge of any situation requiring a skilled set of hands or sharp technical expertise.
+
+Despite the demanding nature of her job, DSC-MATE-3809 remains cool and collected, shepherding tasks and people with ease, thanks to her natural talent for leadership. Even in her personal life, she has been known to take the reins when called upon, a trait that makes her both respected and admired by her colleagues, but also potentially fearful among her opponents.
+
+Handle DSC-MATE-3809 with caution. Despite her primarily human make-up, her leadership qualities make her a force to be reckoned with.

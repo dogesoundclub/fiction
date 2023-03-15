@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2166
+Subject 2166, also known as the Rabbit Beautician, is a male extranormal with a striking appearance. Their red clown eyes are the first thing noticed when encountering the subject, drawing attention to a face adorned with a bucket hat and jade earring on their long, alert ears. A fashion-conscious creature, they accessorize with a gold chain and typically don a normal gas mask.
+
+As a beautician, Subject 2166 has a passion for grooming, styling, and making others feel their best. Their quiet, gentle demeanor belies a fierce independence, and they rarely ask for assistance, regardless of the situation. This trait has led to amusing circumstances, such as stubbornly dragging furniture by themselves or eschewing maps even when lost.
+
+Despite their reluctance to seek help, the Rabbit Beautician is a valuable asset to any team or organization. Their attention to detail and expertise in beauty make them a sought-after ally. However, they prefer to keep their personal and professional lives separate and will only involve themselves in matters that align with their values and priorities. 
+
+Caution is advised when interacting with Subject 2166, as their independence may provoke confrontations if crossed. It is recommended to approach them delicately and treat them with respect and kindness.

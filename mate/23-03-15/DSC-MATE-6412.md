@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6412
+DSC-MATE-6412, also known as "The Monkey Real Estate Agent", is a male simian of undetermined origin. DSC-MATE-6412's most notable features are its frightened mouth and glowing red clown eyes, causing alarm in those who view it. DSC-MATE-6412 is often outfitted with a blue bandana on its head and a gold earring on its pointed ears. DSC-MATE-6412 is often seen carrying a lit cigarette in its hand, which it nonchalantly puffs on while engaging in conversation. 
+
+DSC-MATE-6412 is a highly analytical and logical creature, enjoying debates and arguments for the sheer joy of it. Though DSC-MATE-6412 may engage in heated debates over trivial subjects, it often remains calm and collected, never allowing its emotions to get in the way of a good conversation. However, DSC-MATE-6412's appearance often causes unease and trepidation in those around it, which it may use to its advantage during negotiations. 
+
+DSC-MATE-6412's primary occupation is that of a real estate agent, using its persuasive skills and analytical mind to sell property to unsuspecting patrons. DSC-MATE-6412's methods have been known to be unorthodox, often using its physical appearance and unique personality to its advantage. However, caution is advised when dealing with DSC-MATE-6412, as its true intentions are often shrouded in mystery.

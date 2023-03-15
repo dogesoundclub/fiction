@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1166
+DSC-MATE-1166, also known as "The Fashionable Rabbit", is a sentient, humanoid rabbit of unknown origin. This anomaly has a remarkable ability to design and create high-end fashion pieces, from luxurious gowns to stylish suits. DSC-MATE-1166's artistic skills are so impressive that it has gained a following among some wealthy individuals, who commission it for custom-made outfits.
+
+The anomalous creature stands at approximately 1.2 meters tall and has blue clown eyes that glow softly in dim light. Its head is always adorned with a green bucket hat, and its long ears are pierced with a gold earring. DSC-MATE-1166 is always dressed impeccably, usually donning a red scarf around its neck and carrying a candy stick in one hand.
+
+DSC-MATE-1166's personality is described as idealistic and altruistic, often seeking to help those in need and promote causes that align with its values. However, its fervor in pursuing these beliefs can lead to some humorous situations, such as picketing or boycotting companies that it deems unethical or wasteful. Despite its well-meaning intentions, DSC-MATE-1166 can be quite stubborn and may become defensive if its views are challenged.
+
+Overall, DSC-MATE-1166's unique appearance and talents make it a fascinating creature to study. However, caution should be taken when interacting with this anomaly, as it may become agitated if its values are threatened.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1750
+DSC-MATE-1750 is a human police officer with distinctive features. Her face is adorned with purple lipstick, and her head is a vibrant green with curly edges. She often wears a gold earring in each ear, and a black choker around her neck. What sets DSC-MATE-1750 apart from the average officer, however, is her LED gas mask. The origin of this device is unknown, but it appears to serve as both protection and intimidation.
+
+DSC-MATE-1750's personality can be described as a bit scattered and absent-minded. While her work record is commendable, she has been known to forget important engagements or become lost in thought while on the job. Her colleagues report that she is generally easy to get along with, and that her quirks are more endearing than problematic. However, DSC-MATE-1750's superiors express concern that her forgetfulness could have serious consequences in the future.
+
+Despite her occasional absentmindedness, DSC-MATE-1750 is respected among her peers for her dedication to justice and willingness to put herself in harm's way to protect the innocent. Her odd attire and unusual habits have led some to speculate that DSC-MATE-1750 may be a supernatural creature in human guise, but these rumors have never been confirmed. DSC-MATE-1750 remains a valued member of the police force, probationary period to be revised in three months.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3592
+Subject 3592 is a human male with a strikingly unique appearance. Identified by the distinguishing Mouth Spot located on his face, and unusual Ski Goggle Eyes, this character can often be seen wearing a Retro Cap and a Jade Earring, adding to his already distinct appearance.
+
+As a Mechanic, Subject 3592 is often tasked with fixing machinery and other urban gadgets, which he tends to do with his own sense of style and flair. However, this mechanical expertise often leads him to make impulsive decisions, causing some unnecessary and, at times, humorous mishaps in his line of work.
+
+Subject 3592's propensity to act before thinking through the consequences indicates a potential reckless streak, which can prove to be risky in his line of work. However, his desire to impress and showcase his skills often endears him to others, and his jovial personality makes him a valued member of any work crew or social group.
+
+When interacting with others, Subject 3592 often presents himself wearing a Medical Mask due to understandable concerns about contamination and illness. Nevertheless, his unique appearance and friendly disposition make him easily identifiable and well-liked, if not a bit unpredictable.

@@ -1,0 +1,10 @@
+ID # : DSC-MATE-4879
+DSC-MATE-4879, also known as "Officer Hopper", is a sentient rabbit and a Traffic Officer in the Foundation's urban fantasy world. The agent stands at a height of 2 feet 11 inches and has a body weight of 35 pounds. DSC-MATE-4879 is easily distinguishable from regular rabbits due to its retro cap and VR Rainbow LED eyes. Additionally, DSC-MATE-4879 has a visible golden earring pierced on its left ear, which may be an indication of the agent's personality and sense of aesthetics.
+
+DSC-MATE-4879's mouth is often seen in a state of fear, accompanied by a rapid heartbeat and increased blood pressure, indicating that the agent may be sensitive to stressful situations. However, in contrast, Officer Hopper displays a strong sense of duty and responsibility, and never backs down from a challenge. It is believed that DSC-MATE-4879's fear and courage may be linked, and that the agent uses the former to fuel the latter.
+
+Despite a serious demeanor, DSC-MATE-4879 knows how to have fun when the situation calls for it. This leads to humorous situations, with the agent being the life of the party, and often getting everyone else to join in the fun. The agent's favorite songs seem to revolve around genres such as hip hop and electronic music.
+
+DSC-MATE-4879's abilities as a Traffic Officer in the Foundation's urban fantasy world include directing traffic, issuing warnings, and issuing tickets for various traffic violations, among others. The agent also possesses an inherent ability to sense danger, which has proven useful numerous times in stressful situations.
+
+Overall, DSC-MATE-4879 is a unique and reliable agent of the Foundation, in both their fearlessness and their calling to bring joy to the world. Nonetheless, caution should be exercised around the agent since, like all DSC's, it is an anomaly and may not necessarily instinctively adhere to normal procedures expected of Traffic Officers.

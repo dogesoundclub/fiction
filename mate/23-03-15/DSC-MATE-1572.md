@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1572
+Urban Fantasy character file #1572, also known as "The Deliverer," is a curious specimen indeed. Despite the mundane appearance of this human male, it is the unique features that make him stand out in any crowd. His face is adorned with vibrant orange stripes that run along his cheekbones, lending him a fierce aura. Yet, it is his captivating smile that allows him to blend in with ease. Beneath the green layers of his head, are hidden depths and mysteries yet to be discovered.
+
+On his forehead, a goggle rests comfortably as if waiting for the signal to activate. It's rumored that this delivery driver possesses otherworldly powers, and the goggles may be the key to unlocking them. A single gold earring hangs from his left ear, serving as a subtle reminder that he is not just a mere mortal.
+
+The Deliverer is not just another run-of-the-mill delivery driver. He is a man of strong traditions, and that is evident in his rugged demeanor. His no-nonsense attitude is not one to be trifled with, as he values the ways of his culture above all else. However, there is a childlike playfulness that lies beneath his tough exterior. He is not above telling a good joke or story, passed down through his family or community, much to the delight of those around him.
+
+We highly recommend approaching this character with cautious curiosity. For there are secrets hidden within him that are yet to be discovered, and one can never be quite sure what to expect from a man who wears a goggle on his forehead.

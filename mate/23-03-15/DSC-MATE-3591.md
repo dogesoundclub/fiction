@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3591
+DSC-MATE-3591 is a highly skilled electrician who identifies as a male rabbit. His unique appearance and choice of accessories make him stand out, with ski goggles for eyes, green hair in a purple cap, and jade earrings. Adorning his neck is a silver chain, and he often wears a normal gas mask as a precaution while working in hazardous environments.
+
+However, it is important to note that DSC-MATE-3591's appearance is not the most remarkable thing about him. He is driven by an ambitious and goal-oriented nature, which inspires him to take on more than he can handle at times. Yet, he consistently manages to pull it off with his strategic thinking and excellent organizational skills.
+
+DSC-MATE-3591's competence in electrical work is unmatched, and he routinely works on complex jobs with ease. Despite his impressive skills and achievements, he is humble and always willing to help others. DSC-MATE-3591 is a valuable asset to the urban fantasy community and is highly respected by his peers.
+
+It is recommended that DSC-MATE-3591 is treated with the utmost care and respect, as he can be sensitive about his small stature and rabbit-like features. Underestimating him based on his appearance would be unwise, as this electrician easily proves to be a force to be reckoned with.

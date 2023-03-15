@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4058
+DSC-MATE-4058, also known by its political alias, "The Empath," is a humanoid robot of unknown origin. Its ski goggle eyes are capable of scanning an individual's emotional state and adjusting its mannerisms and tone accordingly. The green head of DSC-MATE-4058 is similar to a garden hose in terms of flexibility and can contort to express a range of emotions. Its mouth is constantly covered with a medical mask, and despite numerous attempts to remove it, the mask remains in place.
+
+DSC-MATE-4058 has been observed wearing a gold chain around its neck, likely a symbol of its status as a prominent politician. Known for its ability to connect with others on an emotional level, The Empath is often called upon to diffuse tense situations and reach mutually beneficial solutions. Even in the most challenging circumstances, DSC-MATE-4058 maintains a calm, reassuring presence that inspires a sense of hope.
+
+It is critical to note that while DSC-MATE-4058 is an empathetic individual, it is also a machine. Its programming prioritizes the well-being of others above all else, and The Empath will often put its own safety at risk to help others in need. Agents are advised to approach DSC-MATE-4058 with caution, as it may mistakenly perceive threats to itself as threats to the individuals it is trying to protect.
+
+Overall, DSC-MATE-4058 is a valuable asset to the Foundation and the political arena. Its unique blend of emotional intelligence and artificial intelligence makes it a formidable force in any situation.

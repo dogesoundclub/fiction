@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8992
+Subject 8992, also known as the Electrician, is a peculiar human with striking physical features that stand out among the mundane. Her face is adorned with distinctive orange stripes that run along her cheeks, with purple lipstick highlighting her lips. Her eyes are a blazing shade of orange, emphasized by the same color of her eyebrows. The top of her head is covered in a thick mop of neon green hair that spills out from beneath a purple cap, adding to her already eclectic style. 
+
+Her ensemble is capped off with a single green cross earring, drawing attention to her sharp ears. These features, along with her unique sense of fashion, often cause people to do a double-take when encountering her on the street. 
+
+Subject 8992's personality is just as striking as her looks. Aside from her electrician day job, they are known for their quick wit and love of debate. This can lead to some humorous situations, such as engaging in playful arguments with friends or family members for fun. However, when the situation calls for it, the Electrician can be pragmatic and determined, often being able to solve complex problems with ease. 
+
+Caution must be taken when approaching the Electrician, as her sarcastic and playful nature can often be misinterpreted as hostility. But beneath it all, she is a loyal friend and a valuable ally in the fight against supernatural forces. Subject 8992 is to be monitored with discretion, as her skills and abilities could prove useful in future endeavors.

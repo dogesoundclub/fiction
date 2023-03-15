@@ -1,0 +1,6 @@
+ID # : DSC-MATE-186
+Subject 186, codename "Spotted Adventurer", is a human female on security duty for our secretive establishment. Her defining physical features include a smattering of spots across her face, paired with eccentric orange eyebrows perched above her piercing stare. Her head is crowned with wild green hair concealed under a purple cap, and her ears adorned with a green cross earring. However, her most prominent apparel is her LED gas mask, hinting at her readiness to tackle any hazardous situation that may arise in her job.
+
+Beyond her striking appearance, the Spotted Adventurer is a daring soul with a passionate thirst for adventure. Brimming with a love for exploring the unknown and an eagerness to take risks, she often regales us with thrilling stories of perilous bungee jumps and wilderness escapades. However, her wanderlust may arguably border on recklessness, leaving us to anxiously anticipate her latest escapades.
+
+In light of her eccentric personality, it is important to monitor the Spotted Adventurer's activities and limit her exposure to hazardous situations. But it is undeniable that her fearless spirit and boundless energy make her an invaluable member of our security team.

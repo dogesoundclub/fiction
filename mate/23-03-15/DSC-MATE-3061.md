@@ -1,0 +1,4 @@
+ID # : DSC-MATE-3061
+DSC-MATE-3061 is a notorious Mafia Boss resembling a human with a striking appearance. She is distinguishable by the orange stripes on her face, paired with her purple lips, and her eyes, which are red clown eyes. DSC-MATE-3061 wears a purple cap with a headset, and a goggle on her forehead, which she uses to observe everything around her.
+
+DSC-MATE-3061 has a distinct personality, characterized by her ability to observe even the smallest of details. Her attentiveness to details makes her an excellent gift-giver, but it can also result in her spending a lot of time agonizing over what to get someone - her need for perfection is overwhelming. Her appearance and personality can be intimidating to some, but she uses her observant skills to gain the upper hand in her dealings with other people, making her a formidable and respected Mafia Boss. Overall, DSC-MATE-3061 is a unique and intriguing character in the urban fantasy world.

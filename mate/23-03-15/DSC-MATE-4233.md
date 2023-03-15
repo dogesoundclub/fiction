@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4233
+DSC-MATE-4233 is a male human creature, standing at 6 feet tall and weighing approximately 175 pounds. DSC-MATE-4233 appears to have unique facial features, including orange stripes across its face, an ever-present smile, and normal glasses covering its eyes. On its head, DSC-MATE-4233 wears a hat bearing the image of Doge, and in one of its pierced ears, it displays a jade earring.
+
+Though DSC-MATE-4233's bizarre appearance may be unsettling to some, what makes this creature truly anomalous is the LED gas mask it wears as an accessory. The gas mask emits a soft blue light that has been known to hypnotize and control the minds of those around DSC-MATE-4233, leading Foundation personnel to be cautious around it.
+
+DSC-MATE-4233 has been sighted working as a news anchor in local channels, and it is wise to avoid direct contact with the creature should you come across it. Personality-wise, DSC-MATE-4233 displays a unique sensitivity to emotions, often moved to tears by sentimental moments in movies or TV shows. It has a fondness for music or art that evokes strong feelings, further highlighting its high level of empathetic capabilities, which we advise our agents to be cautious of should DSC-MATE-4233 attempt to use this to its advantage.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8597
+Foundation personnel, meet DSC-MATE-8597 - a humanoid entity that presents itself as a female firefighter hailing from an unknown location. Our teams report that DSC-MATE-8597 stands at a height of 5'11 with an unusual and striking appearance. DSC-MATE-8597 has orange stripes on her face and purple lips, accompanied by eyes that emit a virtual-reality jade LED. she is often seen sporting a blonde Ushanka with a red cross earring, and a silver chain accessory. 
+
+DSC-MATE-8597 is, in essence, a perfectionist. Her personality revolves around being organized and competent, which makes her very controlling at times. Despite her vigilance, she can adapt to and take charge of almost any situation that arises. She is a natural leader and excels in delegating specific tasks to her team members. 
+
+Caution is advised when approaching DSC-MATE-8597 as her demeanor may come off as intimidating. But just like fire, she knows when to extinguish the flames of panic and fear with rational and level-headed thinking. Her innate tendencies have made DSC-MATE-8597 a valuable asset to our database of anomalous entities.

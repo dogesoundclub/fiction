@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9506
+DSC-MATE-9506, also known as "Captain Sparkle", is a human male with a striking appearance. He is often seen with a smile on his face, and his eyes glow with a vibrant VR Rainbow LED hue that seems to change with his moods. On his head, he sports a purple cap with a headset, frequently using it to communicate with his team. His ears are adorned with a green cross earring, which some speculate serves as a good-luck charm. 
+
+Two accessories are always present on DSC-MATE-9506. The first is a gold-chain that sparkles in the light, which he often uses to fiddle with during idle moments. The second is a candy stick, which he claims helps his thinking process. 
+
+Despite his unique appearance, DSC-MATE-9506 is known to be a highly effective firefighter. He is an expert in emergency management and creative problem-solving. DSC-MATE-9506's personality is characterized by his ability to brainstorm out-of-the-box solutions to problems, even if they may seem outlandish at first. He enjoys seeing the reactions of his peers and colleagues when he suggests these creative ideas. 
+
+Recent examinations indicate that DSC-MATE-9506 may have an anomalous ability to generate spontaneous neuronal firings, which could explain his out-of-the-box thinking process. It is recommended that further study is done on DSC-MATE-9506 to determine if his abilities pose any potential dangers within the Foundation.

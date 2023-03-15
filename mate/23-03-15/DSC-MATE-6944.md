@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6944
+DSC-MATE-6944 is a versatile member of the force, donning the uniform of a police officer with pride. However, their physical appearance is rather peculiar, distinguished by a generous smattering of spots decorating their skin. An unusual green-cross earring adorns one ear, contrasting with the silver chain that hangs around their neck. But the most notable feature of DSC-MATE-6944's gear is the LED gas mask they carry with them at all times, its glowing filters a beacon of their readiness for any situation.
+
+Personality-wise, DSC-MATE-6944 is a unique individual with a flair for creativity and an imagination that is hard to match. They have a passion for abstract ideas and curious hobbies that elevate them from the monotony of everyday life. DSC-MATE-6944 spends their free time engrossed in eccentric projects like writing intricate poetry, working on cosplay costumes that are as grandiose as mythological beings or collecting peculiar artefacts.
+
+Although their arcana might leave some to question their reliability, DSC-MATE-6944's duty is to keep the city safe using their innovative resourcefulness, dedication, and utmost bravery.

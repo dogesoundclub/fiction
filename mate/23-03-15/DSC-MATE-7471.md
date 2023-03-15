@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7471
+DSC-MATE-7471 is a male Tiger, with a frightened mouth and infamous blue clown eyes. He is known to wear a red beanie with a distinct two-color band on his forehead and is often seen sporting a red cross earring on his ears. DSC-MATE-7471 is also known to wear a medical mask and a red scarf as an accessory. He operates as a delivery driver and is usually found in urban areas delivering small parcels and packages.
+
+DSC-MATE-7471's personality is distinctive, often very idealistic with a strong desire to make the world a better place. DSC-MATE-7471's actions have led to some humorous situations, such as protesting or boycotting a company or cause that they feel goes against their values. Despite being an animal, DSC-MATE-7471 has a strong sense of justice and often fights for the rights of those who cannot speak for themselves.
+
+DSC-MATE-7471 has been observed engaging in small acts of kindness during his delivery rounds, such as donating his tips to charity or helping stranded individuals on the street. Though his motives may be unclear, his actions are always within the boundaries of the law.
+
+DSC-MATE-7471's unique appearance and personality have led to several containment breaches, as civilians have been known to observe him and attempt to follow him. It is essential to keep a close eye on DSC-MATE-7471 and ensure that he remains under strict surveillance at all times to prevent breaches of classified information.

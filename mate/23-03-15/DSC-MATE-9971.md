@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9971
+DSC-MATE-9971, known as "The Veterinarian", is a human male with distinctive facial features that includes bright orange stripes and a constant smile. His unnerving red clown eyes seem to follow every movement in a room, while his forehead bears a unique two-color band.
+
+Although DSC-MATE-9971 appears to be a jovial individual, he remains unseen without his medical mask that hides a mouth whose purpose remains unknown. He often accessorizes with a red scarf, giving him an unshakeable style reminiscent of classic carnival performances. 
+
+They are known to work as a veterinarian and often overcomplicate an already complex situation, going above and beyond the call of duty, which D-class personnel reports as problematic. DSC-MATE-9971 is a highly organized individual who likes to plan ahead, but his spontaneous side is not something to be taken lightly. He enjoys putting his friends and colleagues on edge with unexpected adventures and last-minute parties that always prove to be a hit.
+
+While DSC-MATE-9971's personality may seem fun-loving and whimsical, it is vital to remember that their clown-like appearance may be terrifying to some individuals. Approach them with caution, and never underestimate the inherent danger that may lie beneath their smiling demeanor.

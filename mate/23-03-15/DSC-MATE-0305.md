@@ -1,0 +1,6 @@
+ID # : DSC-MATE-305
+DSC-MATE-305 is a human security guard with a flair for the dramatic. The first thing that catches the eye is his bright red clown eyes, which seem to shine with an unnatural glow. His ears are adorned with a striking jade earring, giving him a somewhat exotic appearance. The rest of his outfit is just as attention-grabbing; he sports a thick gold chain around his neck and always wears an LED gas mask, no matter the occasion.
+
+Although DSC-MATE-305 is dedicated to his job, his impulsiveness can sometimes get the better of him. He'll often rush headlong into dangerous situations without thinking them through, determined to prove himself to his peers or show off in front of his superiors. This can lead to some near-catastrophic mishaps, such as accidentally discharging his weapon or setting off alarms in the middle of the night.
+
+Despite his flaws, DSC-MATE-305 is known for his sense of humor and lighthearted demeanor. He's a quick wit and always ready with a joke, even in the face of danger or uncertainty. While some might find him annoying or immature, his easygoing nature makes him well-liked among his colleagues and a reliable member of the security team.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2486
+Subject 2486 is a notorious villain within the urban fantasy community known for their unique appearance and unwavering commitment to their beliefs. With a head adorned in a bright purple cap and a headset, Subject 2486 pairs her striking blue clown eyes with a mixture of spots and a smile, making her a recognizable and feared entity within the supernatural underworld. 
+
+Despite her villainous status, Subject 2486 has a reliable and organized personality. However, her stubborn nature often keeps her locked into her routines and makes her resistant to change. This rigidity has led to some humorous situations when Subject 2486 encounters unexpected challenges. 
+
+Of note, Subject 2486's choker is of particular interest as it appears to possess some level of supernatural power, further amplifying her status as a dangerous entity. All parties are advised to approach with caution and prepare accordingly.

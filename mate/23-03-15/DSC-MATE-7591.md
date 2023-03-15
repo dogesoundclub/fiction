@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7591
+DSC-MATE-7591, also known as "The Vet," is a male human of unknown age with distinctive orange stripes on his face, giving him an almost feline-like appearance. Of note, his mouth often takes on a frightened expression, which has been noted in several observations. His eyes are a striking and unsettling shade of red, resembling those of a clown, and his head is parted, with pink hair. He is usually seen wearing a red scarf around his neck and an LED gas mask over his face, which obscures much of his features.
+
+DSC-MATE-7591's profession as a veterinarian is of interest to the Foundation, due to his unique perspective on animal behavior and physiology. However, it should be noted that his artistic tendencies are equally noteworthy, and he may express this side of himself through various mediums. This creative side may manifest in bizarre ways, such as drawing or painting animals in strange positions or with unusual features.
+
+The Vet's personality is multifaceted and often enigmatic. He is known to be introverted, preferring to keep to himself and avoid social situations whenever possible. However, this does not mean he is unfriendly, as he has been observed being quite talkative and engaging when approached in a proper manner.
+
+In conclusion, DSC-MATE-7591 is a unique individual with both practical and artistic skills, making him a valuable asset to the Foundation. However, his unpredictable nature and striking appearance make him a potential security risk, and all interactions with him should be strictly monitored.

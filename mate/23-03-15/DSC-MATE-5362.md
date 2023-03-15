@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5362
+DSC-MATE-5362, also known as "The Train Driver," is a human female of average height and build. She is a professional train driver by occupation, and her job often takes her on long journeys across the country. DSC-MATE-5362's most distinguishing features are the spots on her face and her bright red lipstick, which she often wears to complement her red cross earring.
+
+DSC-MATE-5362's eyes are behind normal glasses, and she is rarely seen without her bucket hat - a must-have accessory to shield her from the sun while driving the train. Another constant companion is her cigarette, which she claims helps her stay calm during stressful situations.
+
+Despite her serious job, DSC-MATE-5362 is known to have a great sense of humor and a love for making others laugh. She regularly entertains passengers onboard the train with humorous stories and silly impersonations, often leading to a lighthearted and cheerful atmosphere.
+
+Special containment protocols for DSC-MATE-5362 involve monitoring her job performance and ensuring that she refrains from telling inappropriate or offensive jokes to passengers. She is allowed to continue working as a train driver so long as she does not exhibit any anomalous behavior or put others in danger.

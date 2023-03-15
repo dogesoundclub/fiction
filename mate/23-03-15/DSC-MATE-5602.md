@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5602
+DSC-MATE-5602, codenamed "The Forgetful Doctor," is a human male with unique facial features. His face is adorned with several spots, which only add to his rugged appearance alongside his ever-present smile. At the center of his forehead, he wears goggles that seem out of place in any environment. He also sports a golden earring that shines as bright as his personality.
+
+As a doctor, DSC-MATE-5602 may cause some panic due to his apparent lack of focus. He tends to forget things easily and can quickly become sidetracked from the task at hand. While this makes him seem scatterbrained, it also makes him quite charming. He tends to see the humor in his forgetfulness, even if it means missing important appointments or getting lost while trying to find a new place.
+
+Furthermore, DSC-MATE-5602 is rarely seen without a cigarette, which he often puffs on while deep in thought. This habit has concerned some of the Foundation's medical staff, but DSC-MATE-5602 maintains that it helps him to concentrate during intense situations.
+
+Overall, DSC-MATE-5602 may not seem like the most reliable asset to the Foundation at first glance. Still, his expertise in the medical field and charming personality can prove to be invaluable in the right circumstances. Containment procedures for DSC-MATE-5602 will involve regular checkups to ensure he doesn't forget anything crucial to the Foundation's mission.

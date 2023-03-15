@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2456
+DSC-MATE-2456, also known as "The Primate Beautician," is a male monkey of currently unknown origin. His appearance is quite distinctive, featuring a retro cap atop his head and a gold earring dangling from his left ear. However, what really sets him apart are his eyes and mouth. His eyes are bright and piercing, with a clown-like red hue that gives the impression of a sinister gaze. His mouth, meanwhile, is perpetually open in a scare display of frightened teeth.
+
+DSC-MATE-2456's job as a beautician remains a mystery, as does his ability to perform such services. However, what is clear is his deep empathy and understanding of others. Often moved to tears or outbursts of emotion when witnessing someone else's pain or suffering, he exhibits a profound connection to those around him.
+
+Perhaps due to his ties to the animal kingdom, DSC-MATE-2456 shows a particular fondness for animals and nature. Though his motivations and abilities may be unknown, it is clear that he possesses a unique inner strength and compassion that is as rare as it is compelling. As such, he remains under close observation and study by Foundation personnel.

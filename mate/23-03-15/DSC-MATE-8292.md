@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8292
+DSC-MATE-8292, also known as the "Metro Hare", is an anomalous sentient rabbit species discovered working as a train driver. DSC-MATE-8292 stands at approximately 120 cm in height and is easily distinguished from other rabbits by its unusual eyes, which resemble ski goggles. Notably, DSC-MATE-8292 also wears a red scarf and an LED gas mask, which it claims is necessary to operate the train safely.
+
+DSC-MATE-8292 possesses a rare curiosity and thirst for knowledge, which often leads it to spend long hours reading and researching obscure topics. Furthermore, DSC-MATE-8292 has an extensive collection of books, documentaries, and other educational materials, which it actively shares with anyone curious enough to engage in a conversation with it.
+
+DSC-MATE-8292 possesses above-average intelligence and displays a remarkable attention to detail. It is also known to be incredibly punctual, ensuring trains arrive and depart from every station precisely on time. Additionally, DSC-MATE-8292's sharp reflexes and impressive driving skills make it an essential asset to the DogeSoundClub's transportation department.
+
+Despite its mild-mannered and polite demeanor, DSC-MATE-8292 remains cautious of humans and takes great care to keep its anomalous abilities hidden from the rest of society. The Foundation works to ensure DSC-MATE-8292's continued cooperation and containment, as its skills remain a valuable asset in transporting potentially hazardous DSCs.

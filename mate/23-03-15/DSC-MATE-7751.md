@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7751
+DSC-MATE-7751, designated as the "Tiger Traffic Officer," is a male tiger with distinctive blue clown eyes. DSC-MATE-7751 is easily identifiable by the goggle always worn on their forehead and a jade earring on each ear. Additionally, DSC-MATE-7751 displays a fondness for accessorizing with a silver chain and a whistle at all times.
+
+DSC-MATE-7751's personality exudes a deep curiosity for the world around them, which drives their pursuit of obscure or unusual topics. This curious nature often manifests as random spouting of unexpected facts and trivia that can surprise and entertain others. Despite their playful quirks, DSC-MATE-7751 remains a dutiful and professional traffic officer.
+
+DSC-MATE-7751 possesses formidable physical strength, agility, and heightened senses that grant them a unique edge in their line of work. Contrary to expectations, DSC-MATE-7751 has shown no hostility towards humans and has even displayed a level of cooperation with Foundation staff.
+
+Due to the abnormal nature of DSC-MATE-7751, they are to be monitored and contained to prevent unwanted attention from the public. Any interaction with DSC-MATE-7751 requires the use of caution and careful consideration of their unusual attributes.

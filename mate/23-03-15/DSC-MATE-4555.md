@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4555
+DSC-MATE-4555, also known as "The Compassionate Anchor," is a human female with bright VR Jade LED eyes and a head of vibrant green hair that is styled in Edge Curl. She is often seen wearing a medical mask over her mouth, obscuring her features from prying eyes. DSC-MATE-4555 has a penchant for accessorizing, often adorning herself with a striking Green Cross Earring and a Gold Chain.
+
+DSC-MATE-4555's true power lies in her remarkable ability to empathize with others. Thanks to her deep understanding and compassion, DSC-MATE-4555 may be moved to tears or emotional outbursts when witnessing someone else's pain or suffering. Even animals and nature do not go unnoticed by DSC-MATE-4555, who possesses a deep fondness for both.
+
+As a News Anchor, DSC-MATE-4555 often reports on tragedies and human suffering. However, her empathy and emotional nature add an extra layer of sincerity to her reporting, making her a beloved figure in the eyes of the audience. DSC-MATE-4555's presence can be calming, and many report feeling a sense of comfort and relief when watching her reports.
+
+DSC-MATE-4555's powers are not without risk, as her emotional outbursts may cause chaos and lead to unintended consequences. As such, DSC-MATE-4555 is to be continually monitored and limited in her exposure to highly emotional situations. Despite this, DSC-MATE-4555 remains a valuable asset to the Foundation, whose unique abilities are unmatched by any other entity.

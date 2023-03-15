@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7216
+DSC-MATE-7216, also known as the "Tiger Doctor," is a male tiger with distinctive features. His face often appears frightened, and he has unsettling red clown eyes. He's known to wear a blue bandana, and can be seen wearing a red scarf and smoking cigarettes.
+
+Despite his intimidating appearance, DSC-MATE-7216 has a personality that is both compassionate and empathetic. He has a deep understanding of the emotions of others and often becomes teary-eyed or experiences emotional outbursts when he witnesses pain or suffering. Additionally, he has a soft spot for animals and nature.
+
+As a doctor, DSC-MATE-7216 has been noted for his excellent bedside manner, creating a calming presence for his patients. His species raises numerous questions regarding his origin, but DSC-MATE-7216 has been docile and cooperative, making him one of the more unique and empathetic creatures in Foundation custody.

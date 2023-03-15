@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9058
+DSC-MATE-9058 is a human male assigned to security duty at Site-██. He wears a bucket hat that obscures the majority of his face, save for a distinctive spot on his mouth. His forehead is adorned with a pair of goggles that remain inexplicably affixed there. The subject's ears host a solitary gold earring. In addition, he is known to wear a silver chain around his neck and often carries a candy stick in his pocket as a personal affectation.
+
+DSC-MATE-9058's personality is characterized by a strong sense of camaraderie and the ability to build social connections. However, despite his amiable nature, he often presents himself as having something of a silly streak. This can manifest in moments of humorous banter with colleagues or the telling of jokes, which may serve to ease the tension of stressful situations. 
+
+It should be noted that while DSC-MATE-9058 is an effective member of site security, his oddities may raise questions about potential breaches of protocol. Any such concerns should be addressed directly with his superiors.

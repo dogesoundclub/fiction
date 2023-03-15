@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5383
+DSC-MATE-5383, also known as "The Clown Fast Food Worker," is a human female of unknown origin, found working in a rundown fast food restaurant in the outskirts of ████████. Her most notable features are the orange stripes on her face and the red clown eyes, which seem to constantly emit a faint glow. The subject's head is adorned with an ushanka, and she is often seen wearing a green cross earring on her left ear, along with a choker around her neck.
+
+DSC-MATE-5383 displays a very organized and efficient personality, often taking charge of group projects or events and delegating tasks to others in a very matter-of-fact way. However, her controlling nature can sometimes lead to humorous situations, as observed in her workplace, where she is known to enforce strict hygiene standards and orderliness, much to the chagrin of her co-workers.
+
+The subject's gas mask is a normal model used by the general public for air pollution protection, but it is unknown why she wears it at all times, even when working in a well-ventilated environment. It is speculated that the mask may be a psychological comfort object, but further investigation is required.
+
+DSC-MATE-5383's anomalous properties and origin are currently under investigation, as her clown-like features and behavior suggest a possible connection to other anomalous entities found in urban areas. As such, she has been classified as a Euclid class DSC, and all interactions with the subject must be closely monitored and recorded.

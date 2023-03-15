@@ -1,0 +1,6 @@
+ID # : DSC-MATE-518
+DSC-MATE-518 is a tiger of uncertain origins, previously employed as a veterinarian. The subject possesses striking jade LED eyes and carries a blue bandana and a gold earring on its pointed ears. In addition, DSC-MATE-518 bears a frightened expression as though it is nervous or scared, which is commonly present on its mouth.
+
+Personality-wise, DSC-MATE-518 is idealistic and strongly believes in contributing to the betterment of the world. The subject may engage in actions that coincide with its beliefs, where it is not uncommon to see DSC-MATE-518 engage in protests or boycotts against entities it perceives to go against its values. These actions, while well-intentioned, can lead to humorous outcomes or conflicts with other members of society.
+
+DSC-MATE-518's primary accessory is a whistle, likely utilized in its previous profession as a veterinarian. Due to DSC-MATE-518's unique biology, containment and interaction with the subject require careful consideration to avoid any potential injury to personnel. All handlers are advised to exercise caution when interacting with DSC-MATE-518.

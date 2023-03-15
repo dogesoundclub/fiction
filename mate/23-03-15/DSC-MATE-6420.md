@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6420
+DSC-MATE-6420, designated as a "Fashionista Primate," is a male monkey with striking blue clown eyes and wearing a single jade earring. DSC-MATE-6420's appearance is often adorned with designer clothing, accessories, and a cigarette, projecting the appearance of an urban fashion guru. 
+
+DSC-MATE-6420 possesses a unique personality, exhibiting obsessive tendencies that extend beyond the realm of high-end fashion. They are incredibly detail-oriented, displaying an unusual affinity for activities such as alphabetizing their spice rack or color-coding their closet. These traits have been observed to manifest suddenly, with DSC-MATE-6420 becoming fixated on new projects and tasks randomly. 
+
+Agents interacting with DSC-MATE-6420 should exercise caution, as repeated exposure may result in an excessive comparison of their own wardrobe to the designer-clad monkey, causing feelings of inadequacy and low self-esteem. Any physical contact with DSC-MATE-6420 is deemed strictly prohibited, as the monkey's jagged nails have been known to cause painful scratches and possible infections. 
+
+DSC-MATE-6420 has not shown signs of aggression towards agents or other DSCs, and given their unique skill set, request for animal-based fashion tips may be submitted to the containment team for further consideration.

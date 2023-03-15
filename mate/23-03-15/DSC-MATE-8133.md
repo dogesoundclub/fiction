@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8133
+Subject 8133, codenamed 'The Monkey Car Salesman', is a peculiar character encountered within the city's seedy automotive market. Despite his simian species, this creature dons an anthropomorphic disguise in the form of a hooded sweatshirt that obscures his features. Translucent nerd glasses adorn his face, lending him an air of professional aloofness and an edge of eccentricity. 
+
+Subject 8133 is often caught sporting a bright red scarf, which serves to accentuate his charismatic personality. However, this is eclipsed by his most disarming accessory, a traditional gas mask that is wholly incongruous with his fashionable attire. The meaning of this is yet unknown, but it has elicited both fear and reverence from his potential clients.
+
+Despite the alarming appearance, Subject 8133 is a joyous and gregarious individual, possessing a wit that can raise the spirits of anyone around him. He relishes in making others laugh with tales of his own reckless adventures, using his dexterity to impersonate anything from local politicians to obscure internet memes. This natural charm ensures that he's a hit with his clients, as evidenced by his soaring sales numbers.
+
+The Foundation has plans to monitor Subject 8133's activities to ensure that his unusual methods are not a threat to the public or other anomalous activity in the area. For now, however, his 'monkey business' in the car dealership trade is subject to close watch under contingency planning DSC-013.

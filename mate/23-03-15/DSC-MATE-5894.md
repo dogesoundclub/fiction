@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5894
+Subject 5894, codename "The Rabbit Farmer" is a peculiar specimen indeed. This male rabbit stands out with his frightened mouth and ski goggle eyes, but the most striking feature is his police cap. Equally as unusual are his gold earring ears and a striking red scarf accessory.
+
+Despite his appearance, The Rabbit Farmer is known for his insatiable thirst for knowledge. He spends most of his time reading, researching obscure topics or collecting books and documentaries on the same. He can sometimes be seen passionately sharing what he has learned with others, making him an endless source of information.
+
+The Rabbit Farmer may seem like an average farmer at first glance, but his passion for knowledge makes him an invaluable asset to any team seeking knowledge or intelligence on any subject imaginable. With his vast collection of books and other educational materials, The Rabbit Farmer is a rabbit to be reckoned with.

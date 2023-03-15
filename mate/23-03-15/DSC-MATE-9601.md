@@ -1,0 +1,10 @@
+ID # : DSC-MATE-9601
+DSC-MATE-9601, also known as Officer Spots, is a traffic officer within the city limits of ██████. At first glance, DSC-MATE-9601 may appear to be an ordinary human, but upon closer inspection, it becomes apparent that he is anything but. Sporting a unique pattern of spots across his face, it is theorized that DSC-MATE-9601 may have been born with a rare genetic condition or acquired it through some sort of anomaly.
+
+In addition to his spots, DSC-MATE-9601 is frequently spotted wearing a pair of goggles atop his forehead, often used to protect his eyes from the bright lights of oncoming vehicles. And if that wasn't enough, DSC-MATE-9601 also sports a gold earring in one ear, adding to his peculiar appearance.
+
+If one were to encounter DSC-MATE-9601 on a routine traffic stop, they might notice the distinctive red scarf around his neck, as well as a candy stick poking out of his pocket. While it is unclear if DSC-MATE-9601 derives any particular pleasure from the candy stick or if it is merely a habit, sources close to DSC-MATE-9601 suggest that he enjoys the extra sugar boost during particularly boring shifts.
+
+Despite his unusual appearance, DSC-MATE-9601 is known to be a helpful and friendly officer, always willing to lend an ear to anyone in need of assistance. With a deep curiosity about the world around him, DSC-MATE-9601 is not afraid to engage in lengthy conversations about obscure and unusual topics, frequently spouting off random facts and trivia to anyone who will listen.
+
+While some may find DSC-MATE-9601's characteristics odd or even unsettling, those who have had the pleasure of getting to know him understand that DSC-MATE-9601 is simply a unique individual with a deep appreciation for the world around him.

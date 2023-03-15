@@ -1,0 +1,4 @@
+ID # : DSC-MATE-6143
+DSC-MATE-6143, also known as "The Rebel Anchor," is a human male with spotted skin and red clown eyes. He sports a blue bandana on his head and is often seen wearing a gas mask. DSC-MATE-6143 is a news anchor for a prominent television network but is known to disobey the network's policies and push boundaries during broadcasts. 
+
+Subjects interacting with DSC-MATE-6143 report a rebellious and mischievous personality. DSC-MATE-6143 enjoys breaking rules, even if it means risking his job or causing chaos. It is not uncommon for DSC-MATE-6143 to bend the rules for comedic effect, causing humorous and sometimes unexpected situations. Agents should be cautious when interacting with DSC-MATE-6143, as his unpredictable behavior may lead to unforeseen consequences.

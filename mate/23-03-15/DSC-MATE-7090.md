@@ -1,0 +1,10 @@
+ID # : DSC-MATE-7090
+DSC-MATE-7090, also known by their given name, Officer Jenkins, is a human male with distinctive physical features. Their mouth spot, located on the left side of the face, has been the subject of much speculation among their fellow officers. Some have theorized that it's a birthmark, while others claim that it's a scar from a previous injury or a mark left by a mysterious creature from the Otherworld.
+
+Officer Jenkins wears nerd glasses that sit slightly askew on their nose, giving them a perpetually unimpressed expression. They also don a bucket hat that's adorned with various pins and patches from different police departments they've worked with over the years. On their forehead, they wear a set of tinted goggles, a habit that they picked up after a particularly grueling case involving a rogue wizard.
+
+Despite their unique style choices, Officer Jenkins is known to be a skilled detective and a reliable partner on the field. They have a quick wit and a dry sense of humor that has caught many criminals off guard, leading to more than a few apprehensions. They may not be the life of the party, but they have a way of delivering deadpan jokes that leave their colleagues chuckling long after the case is closed.
+
+Off-duty, Officer Jenkins can often be seen wearing a bright red scarf, a gift from their mother that they wear as a sort of good luck charm. Their love for hot beverages and classic science fiction novels has earned them a reputation as a true nerd among their coworkers, and they're never shy about sharing their latest book recommendations or theories on time travel. 
+
+DSC-MATE-7090 is currently stationed in the urban division of the Foundation, working to keep the peace between the human and supernatural communities and investigating cases that fall under the Foundation's jurisdiction. Despite their unconventional appearance, they are a valued member of the team and their wit and talent are respected by all who work with them.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3412
+DSC-MATE-3412, also known as "The Banker," is a highly ambitious and driven individual who excels in their field. Despite their human species, their unique appearance includes a distinctive mouth spot and a police cap atop their head. Their ears are adorned with a green cross earring and they are often seen wearing a striking red scarf paired with a standard issue gas mask. 
+
+The Banker possesses exceptional organizational skills and strategic thinking, allowing them to undertake any challenge that comes their way. This often results in them taking on more than they can handle, but their determination and unwavering focus assist them in achieving their goals.
+
+DSC-MATE-3412's expertise in the banking industry has been widely recognized and they have earned themselves a reputation as a successful and well-respected individual. Their ambitious nature, paired with their outstanding abilities, have earned them a place of high regard among their peers.
+
+It is important to note that while their professional successes are widely admired, The Banker's mysterious gas mask and unique attire have raised concerns among colleagues and acquaintances. Further research is being conducted to determine any anomalous abilities that DSC-MATE-3412 may possess.

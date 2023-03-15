@@ -1,0 +1,8 @@
+ID # : DSC-MATE-360
+Subject 360, known to the public as a renowned fashion designer, is a human male with a distinctive mouth spot located just below his left corner lip. But it is difficult to ignore his striking VR Jade LED eyes that often leave people speechless. He stands out with his Gold Earring, but the most striking accessory he dons is a Red Scarf, which he always pairs with his outfits. It is said that the scarf has become his signature fashion statement.
+
+Despite his high status in the fashion industry, Subject 360's most intriguing characteristic is his empathy and compassion for others. He has a unique ability to understand people's struggles and their feelings. However, his extraordinary level of empathy can often lead him to take on the problems of others as if they were his own, a trait that makes him both remarkable and exhausting to be around.
+
+In cases of emotional distress, Subject 360 becomes a trusted shoulder to lean on. Most people feel drawn to him, and he offers them a safe haven where they feel heard and understood. But it also means that his work-life balance is consumed with fixing others, leaving him little time to care for himself.
+
+The Foundation monitors Subject 360 with great interest. His unique abilities and compassionate nature could make him either a valuable asset or a significant security risk. Nonetheless, he continues to lead a successful career in the fashion industry while harbouring the potential to become much more.

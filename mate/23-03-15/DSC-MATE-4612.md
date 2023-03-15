@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4612
+DSC-MATE-4612, designated as "The Tiger Lawyer," is a humanoid creature that resembles a Bengal Tiger. DSC-MATE-4612 stands at an average height of 6'2" and possesses sharp features befitting of a member of the feline family. Despite his animalistic appearance, DSC-MATE-4612 is a successful lawyer and has been observed to wear his trademark blue bandana and normal glasses during his courtroom appearances.
+
+DSC-MATE-4612's personality is impulsive and often leads to him acting before thinking through the consequences of his actions. Due to his reckless nature, DSC-MATE-4612 frequently finds himself in amusing situations, such as getting into minor accidents while showing off or attempting to impress others. Nevertheless, DSC-MATE-4612 is competent in his profession, and those in his presence often note his remarkable charisma.
+
+On top of his bandana and glasses, DSC-MATE-4612 is often seen sporting a gold earring, a gold chain, and a candy stick. Although he denies having any attachment to these accessories, DSC-MATE-4612 irritably refuses to have them removed. During captivity, DSC-MATE-4612 has shown little interest in escaping, preferring to spend his time reading and researching various legal cases. It is unknown why DSC-MATE-4612 believes candy sticks are necessary to enhance his persona as "The Tiger Lawyer." Any attempts to remove his candy stick have been met with vehement opposition.
+
+DSC-MATE-4612's anomalous properties remain unknown. However, he has made several veiled references to "the magic of the courtroom" and "the force of justice." Further investigation is necessary to determine if DSC-MATE-4612 has any connections to other anomalous entities within the legal system.

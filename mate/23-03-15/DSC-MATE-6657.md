@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6657
+DSC-MATE-6657, also known as "Doctor Empathy", is a human male who works as a doctor in an urban medical facility. He possesses a unique physical appearance, with a distinct Mouth Spot on his face and Nerd Glasses adorning his eyes. His head is often concealed with a Purple Cap that has a built-in headset, allowing him to communicate with others discreetly. 
+
+However, what sets DSC-MATE-6657 apart from other doctors is his LED Gas Mask. When activated, the mask illuminates with a bright purple light, which indicates that DSC-MATE-6657 is in a heightened state of empathy. This enables him to better sense and understand the emotional states of those around him, making him a valuable asset in defusing tense situations.
+
+DSC-MATE-6657 is a highly compassionate individual, with a strong sense of empathy towards those in need. He is often able to connect with patients on a deeper emotional level, providing comfort and reassurance during times of distress. His ability to read and respond to others' emotions can lead to humorous situations, as he always seems to know just the right thing to say to brighten someone's day.
+
+Overall, DSC-MATE-6657's unique appearance and empathetic nature make him a valuable member of any urban fantasy setting, and he is highly recommended for inclusion in any narrative involving medical professionals or those with heightened sensitivity to the emotions of others.

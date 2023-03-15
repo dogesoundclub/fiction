@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8432
+Subject 8432, also known as "The Tiger", is a rather unusual creature, even for those of us at the Foundation. As his ID suggests, he works as a security guard, assigned to one of our more sensitive sites. His appearance is that of a majestic Bengal tiger, with the fierce stripes and sharp claws that come with the territory. His eyes, however, are something of a mystery, with a swirling, hypnotic quality that we have yet to fully understand.
+
+Despite his impressive physique, it is his mouth that tends to catch one's attention. It is always open, displaying a set of teeth that could easily rip a man to shreds, but his expression is one of abject fear. It's as though he is constantly on the brink of panic, held back only by his own unyielding willpower.
+
+That's not to say he is a coward, mind you. Far from it. Subject 8432 has proven himself a capable warrior time and time again, using his fearsome strength to protect our personnel and assets. In fact, it is his intellect that perhaps stands out the most. He is a natural-born idea machine, constantly coming up with innovative solutions to problems that would leave most scratching their heads. 
+
+Whether it's creating new security protocols or using his tiger-like senses to detect anomalies others may miss, Subject 8432 is a valuable asset to our organization. And while some may be put off by his quirky nature or intimidating appearance, we here at the Foundation are proud to have him among our ranks.

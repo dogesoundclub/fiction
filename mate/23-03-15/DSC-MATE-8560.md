@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8560
+Subject 8560, also known as the "Electrician", is a human female that possesses unique features that make her stand out from the rest. Her face is covered in spots, but it is her constant smile that catches the attention of those around her. Her eyes are the most intriguing feature, as they are replaced with VR Rainbow LED, making her appear almost robotic.
+
+In addition to her distinctive appearance, the Electrician wears a hoodie that conceals most of her head, but it is not difficult to spot the choker around her neck. Her most prominent accessory, however, is the LED Gas Mask that covers her lower face, glowing with a neon hue. 
+
+Despite the unusual features, Subject 8560's personality is what truly sets her apart from others. She exudes natural charm and charisma, making her the life of the party in any situation. Her sense of humor is infectious, and she often tells jokes and performs silly dances just to put a smile on someone's face. 
+
+While her appearance may be intimidating at first, her personality is warm and welcoming. Subject 8560 is a valuable asset in the mystical community, and her electrical expertise is sought after by many. Her positivity and lightheartedness make her a favorite among her peers, as well as a valuable ally in the fight against the darkness that lurks in the shadows.

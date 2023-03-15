@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7565
+DSC-MATE-7565 is a humanoid entity that presents itself as a female doctor. Its most notable features include a pair of normal glasses and purple lips. However, attention is always immediately drawn to its head, which takes the shape of a pink rabbit with jade earring ears. To offset its unusual appearance, it wears a gold chain around its neck at all times. 
+
+Despite its peculiar outward appearance, DSC-MATE-7565 exudes natural charm and charisma that can make it the center of attention in any room. It is not unusual for it to engage in humorous situations such as telling jokes or performing silly dances to make its companions laugh. 
+
+While DSC-MATE-7565 may have a playful demeanor, its true abilities and nature are unknown. As per standard protocol, it is to be kept in a secure facility at all times for further observation and study. Any interaction with DSC-MATE-7565 is restricted to approved personnel only.

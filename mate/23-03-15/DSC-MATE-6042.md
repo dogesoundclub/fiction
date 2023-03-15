@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6042
+DSC-MATE-6042, also known as the "Idealistic Salesman," is a male human with distinct facial features. His most noticeable feature is a spot on the left corner of his mouth, which possesses an unknown anomaly that renders it resistant to any form of alteration or removal. Furthermore, DSC-MATE-6042 also sports green hair underneath a purple cap, with a gold earring adorning each ear and a silver chain as his preferred accessory.
+
+Although DSC-MATE-6042's occupation lies in the sales department, his personality trait of being idealistic overshadows his professional status. He often finds himself at odds with the corporations he works for with a strong aversion to any company or cause that goes against his values. He has been observed to protest and boycott companies, resulting in humorous situations that led to the containment of DSC-MATE-6042 in Foundation custody.
+
+Due to his peculiar set of beliefs, DSC-MATE-6042 is kept under strict observation, as he has the potential to cause public unrest. With his strong urge to make the world a better place, the Foundation's objective is to keep him from exposing the anomalous world to the unaware public. DSC-MATE-6042 is currently assigned to a designated containment chamber, where he receives regular check-ups and psychological evaluations to ensure his compliance.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5368
+DSC Identification Number 5368, known by many as "The Scholar," is a villainous human who incessantly craves knowledge. Their face is distinguishable by an array of spots, but it is their metal blue head that really sets them apart. A two-color band is etched across their forehead, leading down to a singular choker accessory worn around their neck.
+
+The Scholar's thirst for knowledge is insatiable, and they often spend countless hours holed up in their private library plotting their next nefarious scheme. They take great pleasure in researching and studying obscure and esoteric subjects, often going to extreme lengths to acquire ancient texts or rare tomes. Their vast collection of books, documentaries, and other educational materials would be the envy of any scholar, yet for The Scholar, it is simply the means to an end.
+
+Their love of knowledge is only matched by their desire to share it with others. They can become rather passionate when discussing their newfound information, often going on long-winded monologues about obscure topics. Underestimating The Scholar is a grave mistake, as their extensive intellect makes them a formidable foe in any altercation.
+
+Approach with caution, as DSC Identification Number 5368 is not to be trifled with. Their thirst for knowledge has driven them to become one of the most dangerous villains lurking in the shadows of our urban landscape.

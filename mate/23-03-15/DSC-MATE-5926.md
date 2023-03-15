@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5926
+DSC-MATE-5926, codenamed "The Acting Rabbit," is a humanoid figure that stands at approximately 4 feet tall, weighing roughly 60 pounds. The creature's appearance is that of a white-furred rabbit, complete with a pair of gold earrings and ski goggle eyes that glow a deep red when angered. DSC-MATE-5926's most discernible feature is a red scarf that adorns its neck. The source of this garment is currently unknown and its significance to the creature remains a mystery.
+
+DSC-MATE-5926 is employed as the manager of a local theater and has demonstrated a broad set of skills regarding performing arts, particularly in regards to acting and stagecraft. Their passion extends beyond the theater and into the realm of education, having a voracious appetite for learning and sharing newfound knowledge with others.
+
+DSC-MATE-5926 possesses a unique talent for research and may spend the majority of their time reading and investigating obscure topics. This keenness has led them to collect various books, documentaries, and other educational materials. The creature's love for learning is so intense that it has been observed to become upset and belligerent when prevented from obtaining new information.
+
+Although DSC-MATE-5926 may appear outwardly friendly and welcoming, individuals should take caution when interacting with the creature. Hostile or detrimental actions towards the theater or its staff will trigger an intense response from DSC-MATE-5926. This reaction has been noted to be particularly dangerous, and individuals are advised to maintain an appropriate distance from the creature when angered.

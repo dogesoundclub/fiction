@@ -1,0 +1,10 @@
+ID # : DSC-MATE-3754
+DSC-MATE-3754 is a simian humanoid anomaly that appears to be a veterinarian. It is currently contained within Site-██, where it spends most of its time tending to anomalous animals. DSC-MATE-3754 exhibits personality traits common in many primates, including a strong sense of duty and responsibility. This sense of duty can occasionally lead to unexpected results, such as DSC-MATE-3754 overloading itself with work, leading to humorous situations where it struggles to fit everything into a single day.
+
+DSC-MATE-3754 is visually notable due to its tendency to wear a Doge hat and nerd glasses. The subject is also frequently seen sporting a silver chain and a standard gas mask when working with particularly hazardous anomalies. Despite its unusual appearance, DSC-MATE-3754 is a skilled veterinarian with a deep understanding of animal physiology and exceptional surgical skills.
+
+Due to DSC-MATE-3754's monkey-like features, it has a somewhat mischievous nature and enjoys practical jokes. However, it is incredibly professional when carrying out tasks related to its job. It is essential to keep DSC-MATE-3754 entertained as it can become destructive when bored.
+
+Attempts to communicate with DSC-MATE-3754 have so far proved unsuccessful. The subject communicates mainly through gestures and noises, making it challenging to determine the full extent of its intelligence. However, we have observed the subject using its extensive knowledge of animal behavior to anticipate their needs and wants. Researchers have noted that DSC-MATE-3754 shows particular affection towards primates and seems to have a particular affinity towards monkeys. Still, it treats all anomalous animals with the same level of care and professionalism. 
+
+Note that under no circumstances should DSC-MATE-3754 be allowed near any unauthorized animals, as it has demonstrated a severe lack of restraint when it comes to acquiring new patients. In conclusion, DSC-MATE-3754 is a valuable member of the Site-██ team and should be handled with extreme care and caution.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4598
+DSC-MATE-4598, also known as "The Creative Lawyer," is a humanoid entity that appears to be a human male in his mid-30s. He stands at 6 feet tall and has a slim build. DSC-MATE-4598's face is covered in black and white spots, and he often displays a frightened expression with his mouth agape. His eyes are hidden behind thick nerd glasses, and his parted pink hair frames his face.
+
+DSC-MATE-4598's forehead is adorned with a two-color band, and he wears a jade earring on his left ear. He also sports a gold chain around his neck and an LED gas mask. It is unclear why DSC-MATE-4598 wears a gas mask since he does not display any abnormal respiratory functions.
+
+DSC-MATE-4598 possesses a highly creative personality and vivid imagination, which can lead to some unusual hobbies or interests. DSC-MATE-4598 enjoys writing poetry, creating elaborate cosplay costumes, and collecting unusual objects. This tendency towards creativity and imagination is reflected in his work as a lawyer, often taking unconventional approaches to his cases.
+
+DSC-MATE-4598's exact abilities and limitations are currently unknown, and researchers are advised to approach him with caution. DSC-MATE-4598's abilities and personality make him a valuable asset in the Foundation's ongoing efforts to understand and contain anomalous entities.

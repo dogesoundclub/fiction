@@ -1,0 +1,6 @@
+ID # : DSC-MATE-736
+DSC-MATE-736 is a highly intelligent, anthropomorphic monkey with a job in politics. Despite their impressive capabilities, DSC-MATE-736 often displays a frightened mouth, indicating anxiety or fear in certain situations. Their eyes resemble ski goggles, which provide a sense of protection and focus. DSC-MATE-736's head is adorned with a hooded garment, perhaps to hide their distinctive appearance.
+
+DSC-MATE-736 is often seen sporting a cheerful red scarf and carrying a candy stick, indicative of their playful and lighthearted nature. However, beneath their jovial facade lies a deep-seated determination and an unyielding need to get the job done. This strong and decisive personality can come across as bossy or intimidating to some, but it is all in the interest of ensuring efficiency and efficacy in their political pursuits.
+
+Overall, DSC-MATE-736 is a unique and powerful figure, not to be underestimated despite their whimsical appearance.

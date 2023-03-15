@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7951
+DSC-MATE-7951, also known as "The Tiger Fast Food Worker", is a humanoid creature of the species Panthera tigris with distinctive physical features. Its piercing red clown eyes are the primary identification mark, accompanied by a red beanie and a red cross earring on both ears. DSC-MATE-7951 also wears a silver chain and carries a candy stick as a personal accessory.
+
+Despite being a fast food worker, DSC-MATE-7951 displays a curious and adventurous personality. It often seeks excitement and novelty, leading to reckless behavior and hazardous situations. However, DSC-MATE-7951's tiger instincts and physical attributes allow for survival in many difficult scenarios, making them an asset in missions that require resilience and resourcefulness.
+
+DSC-MATE-7951's love for adventure and taking risks can be both a strength and a weakness, depending on the circumstances. While it has been useful in exploratory missions and undercover operations, DSC-MATE-7951's impulsiveness and lack of caution can lead to injury or exposure. Therefore, strict monitoring and guidance are necessary to ensure the safety and secrecy of DSC-MATE-7951 and the Foundation's goals.

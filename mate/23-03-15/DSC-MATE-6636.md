@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6636
+DSC-MATE-6636, also known as "The Electric Hare," is a highly intelligent and innovative male rabbit who works as an electrician in the city. With his ski goggle eyes and doge hat head, he is easily recognizable and has become something of a local legend. His jade earring ears and bright red scarf make him easy to spot in a crowd.
+
+Despite his quirky appearance, DSC-MATE-6636 is a highly skilled electrician who can fix any electrical problem in the city - as long as it doesn't involve him having to personally climb up any telephone poles. He is a natural brainstormer and often comes up with genius ideas to solve problems. Unfortunately, this can also lead to him suggesting outlandish solutions just to see how people react - much to their amusement.
+
+On his breaks, DSC-MATE-6636 can often be found sucking on his candy stick while thinking up new plans and ideas. He is a friendly and approachable rabbit who loves to chat with people, and is always willing to lend a helping hand - as long as it doesn't involve heights.
+
+Despite his humorous nature, DSC-MATE-6636 should not be underestimated. His intelligence and problem-solving skills make him a valuable member of the community, and he is always on the lookout for new challenges to tackle. He is truly a one-of-a-kind rabbit who has become a beloved figure in the city.

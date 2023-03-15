@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7502
+Subject 7502, also known as the "Empathic Reporter", is a human male with a peculiar appearance that could elicit confusion or fear from those who don't know him very well. His mouth sports a distinctive spot which, when combined with his constant worried expression, could make him an unintentional target for ridicule or bullying. However, these people seem to forget they're looking directly into his red clown eyes, which seem to have a hypnotic, yet endearing, quality to them.
+
+Don't let his appearance fool you. This reporter has a heart of gold, as his golden earring might suggest. He has a strong sense of empathy and can read emotions with a precision that is, quite frankly, unnerving. While he might not go around bragging about his abilities - after all, he still needs a job to pay the bills - he's always ready to lend a sympathetic ear to those in need or to come up with a clever joke to break the tension in a room.
+
+Subject 7502 has some quirks, of course. He never leaves his apartment without his signature red scarf, which he claims is his lucky charm. He's also a passionate smoker, and one could argue he's never seen without a lit cigarette in hand. But these habits aside, he's a dedicated reporter who will stop at nothing to unearth the truth, especially if it's a story that could positively impact the community.
+
+Approach with caution, by all means, but don't underestimate the Empathic Reporter. He might be a jester on the surface, but he holds secrets, and his words could very well make or break a powerful entity's reputation.

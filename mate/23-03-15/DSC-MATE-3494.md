@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3494
+DSC-MATE-3494, codenamed "The Rabid Doctor", is a unique specimen of the rabbit species. He has a frightened mouth that resembles a constant expression of terror. His head is adorned with bright green hair that contrasts with his purple cap. On his forehead, he carries a red victory band, a sign of his victories over his foes. He also adorns himself with a gold earring, a gold chain, and a candy stick, which he frequently gnaws on.
+
+Despite his physical appearance, DSC-MATE-3494 is an intelligent being with a quick wit and excellent debating skills. He never fails to engage in playful arguments with friends and family, purely for entertainment purposes. DSC-MATE-3494 can often be observed hopping and bouncing around, always eager to engage in a debate. 
+
+DSC-MATE-3494 always carries with him his medical bag, which contains an assortment of medical instruments and various treatments. It is uncertain whether his medical knowledge is legitimate or self-taught. Nevertheless, his medical skills are impressive and often prove to be lifesaving.
+
+Due to his unique abilities and intelligence, DSC-MATE-3494 is kept in a secure containment unit, where he can be utilized for study and research purposes. He is also allowed a limited amount of interaction with other DSC entities for research and development purposes. DSC-MATE-3494 is a friendly creature and should be treated with caution, as he has been known to display sudden bursts of aggression when provoked.

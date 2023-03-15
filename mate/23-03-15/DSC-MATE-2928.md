@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2928
+DSC-MATE-2928, also known as the "Orange Striped Villain", is a human female with distinct orange stripes running down her face and a set of purple lips. Her green-haired head curls at the edges, giving off an almost serpentine appearance. DSC-MATE-2928 is known to wear normal glasses over her eyes, giving her an air of intelligence and cunning.
+
+She is often seen sporting a silver chain that dangles down her chest, indicating her status as a high-ranking member of a notorious underground villainous organization. Despite her actions, DSC-MATE-2928 possesses a creative and imaginative personality, indulging in unusual hobbies such as writing poetry, crafting elaborate cosplay costumes, and perusing her rare collection of unique objects.
+
+DSC-MATE-2928's penchant for creativity and a vivid imagination allows her to conjure up some of the most dangerous and unconventional methods of destruction. Her skills are revered by her organization, and she is one of the most feared villains in existence. It is said that DSC-MATE-2928 can blend into any environment and take on various forms, allowing her to move undetected in plain sight.
+
+Approaching DSC-MATE-2928 is not recommended, as her abilities to manipulate and deceive are beyond comprehension. All attempts to contain her have been unsuccessful thus far, and her whereabouts remain unknown to all- save for her kin. The Orange Striped Villain represents the pinnacle of human corruptness and should be approached with caution.

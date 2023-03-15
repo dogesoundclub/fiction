@@ -1,0 +1,6 @@
+ID # : DSC-MATE-695
+DSC-MATE-695, also known as "Dr. Stripe," is a humanoid entity with distinctive orange tiger-like stripes on her face. She works as a veterinarian and prefers to wear her blonde hair tucked inside a furry Ushanka cap. Her normal glasses provide her with clear and uninterrupted vision while the goggles on her forehead serve as backups for her eyes. 
+
+Dr. Stripe is known for her preference for staying connected to her close relations and believes in promoting harmony in society. Her positive and playful nature can lead to humorous situations such as telling jokes and engaging in playful pranks with her coworkers. However, Dr. Stripe does not hesitate to put on her LED gas mask when working with hazardous materials that require protection. Her association with DogeSoundClub has brought forth significant improvements in the treatment and care of anomalous animals. 
+
+Dr. Stripe is one of the DSC's most enthusiastic and dedicated members, and her passion for the foundation's mission spans far beyond her initial job as a veterinary doctor. Still, her quirky personality and her brightly colored stripes make her stand out amongst the diverse range of DSC team members.

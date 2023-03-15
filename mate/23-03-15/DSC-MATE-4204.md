@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4204
+Item number 4204 refers to a human male that can be found working at a fast food establishment in the city. His face is notable for the bold orange stripes that cover most of his face, which are contrasted by the permanent frightened look that twists his mouth. His eyes are replaced by a set of virtual reality Rainbow LEDs, which he often adjusts to suit his mood. Surrounded by parted pink hair, his appearance is finished off with a bright green jade earring.
+
+What sets 4204 apart from other humans is the LED gas mask that he wears as an accessory. This mask seems to provide him with some kind of power or control, although its exact nature is unknown. Despite his appearance and unique accessories, this individual appears to be quite outgoing and enjoys being the center of attention. He often tells jokes and shares stories that have everyone laughing uncontrollably.
+
+Despite his seemingly carefree personality, there is something eerie and unsettling about 4204's presence. Perhaps it is the way that his eyes seem to glow from behind the LED lights, or the way that his gas mask never seems to be removed. Nonetheless, he remains a regular fixture in the city's fast food establishments, continuing to draw the attention of those around him.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-125
+Subject 125, codename "The Tiger Salesman," is a remarkably enigmatic and charismatic individual. He stands at an impressive six feet tall, with a muscular build and piercing, amber eyes that seem to glow like lanterns in the dark. His fur is a striking shade of burnt orange, with bold black stripes that run down his arms and back like lightning bolts. 
+
+But it's not just his appearance that sets him apart; it's the commanding presence he exudes. Even in a crowded room, one can't help but be drawn to him, as if he's the gravitational center of the universe. This charisma and natural talent for leadership is what makes him so successful as a car salesman. He can sell anyone on anything, even if they initially had little interest.
+
+Subject 125 often wears a red cross earring on his left ear, a nod to his rather colorful past. He also dons a silver chain around his neck, adding to his air of mystery. But it's the whistle he carries with him at all times that truly sets him apart; no one quite knows its significance, only that when he blows it, his booming voice becomes even more powerful, as if he's channeling some sort of otherworldly energy.
+
+Despite his charms and bravado, there's a raw edge to The Tiger Salesman that suggests he's seen and done things most people couldn't even fathom. But whether he's a beast or a man, he's one to be respected, and perhaps even feared.

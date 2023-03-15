@@ -1,0 +1,10 @@
+ID # : DSC-MATE-1233
+DogeSoundClub Classification: Euclid
+
+DSC-MATE-1233, codenamed "Tiger Guard," is a male anthropomorphic tiger under our organization's custody. As a part of the security staff, his job is to keep our facility secure and protected from threats, both from outside and within. Despite his intimidating appearance, DSC-MATE-1233 has a jovial, outgoing nature that makes him an asset to our team, capable of lifting the spirits of those around him.
+
+DSC-MATE-1233's vibrant blue clown eyes are a distinct marker of his unusual appearance. Additionally, his forehead features a two-color band and a red cross earring on each ear. He is often seen wearing a medical mask over his muzzle, as a precaution for the safety of fellow personnel. His gold chain necklace is another feature that he never goes without.
+
+While on duty, DSC-MATE-1233 approaches his job with a strong sense of responsibility and a deep commitment to his duties. He is meticulous and diligent in his duties, often going to great lengths to ensure the safety of the site and its inhabitants. However, off-duty, DSC-MATE-1233's carefree nature erupts, often amusing and entertaining his colleagues with his dance moves and other antics on the dance floor.
+
+Special Containment Procedures: DSC-MATE-1233 must be regularly monitored during off-duty hours to ensure he doesn't display any behavior that could lead to future security breaches. Additionally, any interactions with other DSCs must be closely monitored for signs of aggression or hostile behavior. DSC-MATE-1233's humor and natural charisma make him a valuable asset to the Foundation, but his unique physiology makes him a potential security risk that cannot be ignored.

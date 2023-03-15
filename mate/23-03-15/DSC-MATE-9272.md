@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9272
+DSC-MATE-9272 is a striking specimen of the feline variety. With sleek, striped fur and piercing green eyes that glow with the power of advanced cybernetics, this tiger is not to be trifled with. As a Fast Food Worker, DSC-MATE-9272 is remarkably adept at multi-tasking and can often be found preparing a Big Mac while simultaneously calculating escape routes and contingency plans.
+
+Despite their impressive physical abilities, DSC-MATE-9272's most noteworthy trait is their fierce independence. This tiger has a deep-seated aversion to rules and authority, and will go to great lengths to avoid being hemmed in by any sort of constraints. This rebellious streak has led to some decidedly unorthodox behavior in the past, including taking extended breaks and making unauthorized modifications to the fast food restaurant's equipment.
+
+DSC-MATE-9272 is not to be underestimated, even in the relatively mundane world of fast food service. This tiger is a force to be reckoned with, and their independent spirit and quick reflexes make them a valuable addition to any team. Exercise caution when approaching DSC-MATE-9272 and be prepared for surprises - this tiger is not your average fast food worker.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5804
+DSC-MATE-5804, also known as "the Mechanic," is a humanoid entity of the human species, displaying unique physical characteristics that are not commonly found among their kind. Their most prominent features are a pair of VR jade LED eyes, a set of sharp bunny ears, and a pink rabbit head that covers their natural hair. DSC-MATE-5804 also wears a medical mask over their mouth, presumably as a means of protection or for aesthetic purposes.
+
+DSC-MATE-5804's distinctive appearance does not reflect their personality, as they are known for being highly organized and a keen planner. They enjoy strategizing and preparing for events in advance, but also possess a spontaneous side that manifests in unexpected adventures or impromptu party planning. Despite this, DSC-MATE-5804's actions never compromise their efficiency and professionalism as a mechanic.
+
+DSC-MATE-5804 is an exceptional mechanic, exhibiting mastery over complex machinery and the ability to repair and modify almost any mechanical object. They are highly sought after in the urban fantasy community for their skills, and have been known to work for various anomalous organizations and individuals.
+
+Due to their unique appearance and mechanical expertise, DSC-MATE-5804 is considered a valuable asset and should be treated with respect and caution. Any attempts to exploit or harm DSC-MATE-5804 will result in swift and severe consequences.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6975
+DSC-MATE-6975, codenamed "The News Anchor," is a female human with striking orange stripes adorning her face and deep blue clown eyes that seem to peer into the very soul of those who catch her gaze. Her lips are a shocking shade of purple, and she dons a green cross earring on her ear. As if to hide her identity, she obscures her mouth behind a medical mask.
+
+DSC-MATE-6975's physical appearance aside, her most noticeable characteristic is her nurturing personality. Though she is a professional news anchor in her civilian persona, DSC-MATE-6975 often demonstrates her caring nature by taking care of individuals as if they were her own kin, even when they are grown adults. This frequently leads to amusing scenarios and often further endears her to those around her.
+
+Her silver chain necklace is rumored to offer her some protection against supernatural forces, though testing has not confirmed this. It is advised that DSC-MATE-6975 not be exposed to high-stress situations and that her nurturing tendencies be utilized whenever possible for the betterment of the Foundation's objectives.

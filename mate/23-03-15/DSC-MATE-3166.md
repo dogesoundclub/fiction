@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3166
+DSC-MATE-3166, also known by his human name as a news anchor, is a peculiar individual with striking physical features. His friendly demeanor, highlighted by a permanent smile, is a stark contrast to his unusual eye shape - reminiscent of ski goggles. 
+
+His hair is parted and dyed a bright pink, attracting attention wherever he goes. Upon his forehead sits a pair of goggles, serving no apparent function. He sports a single, delicate jade earring on each of his lobes, and his neck bears a silver chain.
+
+DSC-MATE-3166 is known for his sharp tongue and a knack for engaging in debates. He relishes in discussions and arguments, often indulging in playful banter with his companions. However, his wit can also make him a formidable adversary, and he has been recorded to have engaged in heated verbal sparring matches with those who seek to challenge him.
+
+DSC-MATE-3166's abilities and motivations remain unclear, and his presence in the public eye is a matter of deep concern for the Foundation. His charm and wit have earned him a significant following, and he has successfully infiltrated several influential circles. DSC-MATE-3166's status is currently undergoing close monitoring, and further investigation into his origins is ongoing.

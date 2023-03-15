@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4591
+DSC-MATE-4591, also known as "Officer Stripes," is a human female assigned to traffic duty in the inner city. Despite her mundane appearance, DSC-MATE-4591 stands out due to the distinct orange stripes on her face and her striking red lips. Adding to her peculiar looks, her eyes are a vivid jade green and emit a faint LED glow.
+
+Sporting pigtails and a jade earring, DSC-MATE-4591 carries herself with a confident and authoritative demeanor, but don't let her appearance fool you. She has a quick wit and often catches her colleagues and civilians off guard with her dry sense of humor. She isn't one to hog attention, but her subtle, deadpan jokes can leave people doubled over with laughter.
+
+During her tenure with the foundation, DSC-MATE-4591 has proven to be an asset to the team. In addition to her sharp wit, she is highly disciplined and rarely deviates from protocol. However, it is recommended that caution be exercised when interacting with DSC-MATE-4591, as her jokes can often be misinterpreted, leading to confusion and miscommunication.

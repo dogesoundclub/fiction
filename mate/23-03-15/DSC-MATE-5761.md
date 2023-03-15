@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5761
+Subject 5761 is a peculiar individual, even among the inhabitants of the anomalous urban environment. Despite being an ordinary human and holding the occupation of a veterinarian, his appearance is nothing short of exotically eccentric. The mouth spot on his face is an unusual pigmentational anomaly, rumored among the locals to have some mystical properties. However, more notable are his VR Rainbow LED eyes, illuminating his vision with a variety of colors and matrix-like patterns. 
+
+Adding to the enigma, the subject wears a purple cap with a headset and a jade earring that glows faintly. The reason for the headset is unknown, though some speculate it to help him communicate with higher beings. Additionally, he adorns himself with a red scarf and a seemingly normal gas mask, which he wears on most occasions. Some believe the gas mask aids in his interaction with certain unique creatures, while others suggest it's a mere fashion statement. 
+
+Despite his outlandish appearance, subject 5761 has a natural charm and charisma that can captivate those around him. He often uses this ability to become the life of the party, entertaining others with jokes and silly dances. While some may underestimate him for his seemingly eccentric behavior, subject 5761 is a valuable asset to any team tackling the strangest of cases in the city.

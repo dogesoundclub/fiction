@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9063
+DSC-MATE-9063, also known by her mundane name Sarah, is a human real estate agent with a peculiar appearance that cannot be described as anything but anomalous. Her face is marked with a series of spots, reminiscent of a wild cat, and a permanent smile that seems to be at once joyful and unnerving. Her eyes glow red, like those of a clown, and her head is perpetually tilted to one side, giving her an almost doll-like appearance. Her ears are adorned with a single green cross earring, which appears to be crafted from some unknown material.
+
+However, the most intriguing aspect of DSC-MATE-9063's appearance is without a doubt the LED gas mask she wears constantly. The mask is connected to a small, portable power source that emits a soft blue light, and appears to be custom-made to fit her face perfectly. Despite its eerie appearance, the mask is harmless and serves no apparent purpose other than being a fashion statement.
+
+DSC-MATE-9063 values harmony and social connections above all else, and can often be found engaging in playful banter or telling jokes to lighten the mood. However, her goofy side can sometimes get her in trouble, and her antics have been known to cause some humorous, albeit potentially dangerous situations.
+
+As of now, DSC-MATE-9063's anomalous properties are still being studied, and it remains unclear what caused her appearance to manifest in this unusual manner. However, her friendly nature and willingness to cooperate with Foundation personnel have made her a valuable asset to our research team.

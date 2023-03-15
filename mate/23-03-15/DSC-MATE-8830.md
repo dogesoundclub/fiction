@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8830
+DSC-MATE-8830 is a human male assigned as a security guard in Site-██. Identification number 8830 is easily recognizable by his signature ski goggle eyes, a short peak cap on his head, a silver chain and a normal gas mask. Beware, for he may seem ordinary at first glance, but the moment he unleashes his creativity, prepare for the unexpected.
+
+Subject 8830 holds a vivid imagination, fueling his passion for the unusual and attracting him to various eccentric hobbies and interests. His talents include poetry-writing, crafting intricate cosplay costumes, and collecting rare and peculiar objects. His wide array of interests has led him to formulate innovative methods of security protocol implementation, enabling him to develop effective countermeasures against potential intruders.
+
+Approach with caution, for 8830's imaginative capabilities are not to be underestimated. Anything is possible when his mind runs wild, providing an infinite source of unpredictability and unconventional tactics. Access to Site-██ is limited, and with 8830 on duty, rest assured there are no intrusions in the foreseeable future.

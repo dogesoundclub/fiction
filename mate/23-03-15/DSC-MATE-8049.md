@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8049
+Subject 8049, also known as "The Politician," is a human male with distinctive facial features. His face is covered in numerous spots, which give him an unusual appearance. Despite this, he maintains a charming smile that seems to put people at ease. His eyes are obscured by normal glasses, which he wears constantly.
+
+On his head, he dons a famous Doge hat, a reference to the internet meme of the same name. His ears are adorned with a single jade earring, which is a common accessory for those who practice Eastern spirituality. Around his neck, he wears a silver chain that seems to glimmer in the light.
+
+Subject 8049 has a dominant and assertive personality, one that some may find bossy or intimidating. However, it is clear that he simply wants things to get done efficiently and effectively. As a politician, he is adept at navigating complex issues and making tough decisions. He is not afraid to speak his mind and stand up for what he believes is right, even if it's not the popular opinion.
+
+Overall, Subject 8049 presents an intriguing figure in the urban fantasy landscape. With his unique appearance and decisive personality, he is sure to show up in many unexpected places. Those who underestimate him may find themselves quickly outmatched.

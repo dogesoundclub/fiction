@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5409
+DSC-MATE-5409, codenamed "The Smiling Witch," is a female human of notable appearance. The subject's most distinguishing feature is the bold orange stripes that adorn her face, which are complemented by her striking red lips. Her eyes have been replaced with VR Jade LED technology, which shines with a phosphorescent glow, adding an otherworldly aura to her already unique appearance. The subject's short hair is styled in the fashion of a classic witch's cut, while a jade earring in her left ear completes the look.
+
+Despite her unconventional appearance, DSC-MATE-5409 is a friendly and outgoing individual who typically enjoys being the center of attention. Her social nature sometimes leads her to tell humorous stories and jokes that can elicit uproarious laughter from those around her. DSC-MATE-5409 is also an employee in the fast food industry, although the Foundation has yet to establish any anomalous effects from her occupation.
+
+The Foundation has placed DSC-MATE-5409 under constant surveillance to monitor her activities and interactions, as her unique appearance, and outgoing nature may draw attention or suspicion from the general public. The subject has shown no signs of hostility or malice towards others, and so the Foundation considers her low-risk, although her anomalous appearance requires constant monitoring.

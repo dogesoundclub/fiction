@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1586
+DSC-MATE-1586, codenamed "The Forgetful Security Guard," is a human female with distinct spot patterns across her face and a signature red lip. However, her most striking feature is undoubtedly her piercing orange eyebrows that seem to glow with a faint supernatural aura. DSC-MATE-1586's golden earring and black choker add to her overall enigmatic appearance.
+
+Despite her position as a security guard, DSC-MATE-1586 has been noted for her forgetful and absent-minded tendencies, which can often leave her unprepared for sudden incidents. While working on a project or lost in thought, DSC-MATE-1586 has been known to miss appointments or lose track of time altogether, much to the amusement of her colleagues.
+
+It is advised that DSC-MATE-1586 supplement her innate capabilities with additional training and support to ensure optimal performance in her job, as her disposition may put her at risk of unforeseen hazards within the Site. Extreme caution is recommended when interacting with DSC-MATE-1586, as she may exhibit sudden bouts of forgetfulness or distraction, which could compromise the safety of Foundation personnel.

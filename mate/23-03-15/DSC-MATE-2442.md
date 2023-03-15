@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2442
+Subject 2442, also known as "The Boss," is a human male of average height with a captivating smile that never quite reaches his eyes. He is always seen wearing a retro cap and a jade earring in one ear, which is said to bring him good luck and charm his enemies. It is rumored that his gold chain holds a lock of hair from his enemy, which he keeps as a reminder of his victories.
+
+However, what sets this subject apart is his uncanny ability to predict events before they happen. His strong intuition may appear like psychic powers, and many are wary of working against him. He can sense if someone is lying or feeling anxious, making him a shrewd and intimidating Mafia Boss.
+
+With the added bonus of his charming smile and friendly nature, one cannot help but wonder if he is truly human or something more. As with all subjects, caution is advised when dealing with The Boss.

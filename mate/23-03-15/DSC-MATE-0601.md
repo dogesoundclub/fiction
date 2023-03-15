@@ -1,0 +1,10 @@
+ID # : DSC-MATE-601
+DSC-MATE-601, also known as "The Mechanic", is a robotic entity employed in the maintenance department of Site-██. Standing at approximately 6 feet tall and weighing in at over 500 pounds, this humanoid automaton is an unstoppable force of engineering expertise. The Mechanic's body is encased in a sleek silver metallic sheen, with elegant design flourishes that give the impression of a finely crafted piece of automotive machinery.
+
+The robot's head is adorned with a colorful short peak cap that obscures its facial features, but its stunning VR jade LED eyes are emblazoned with an intense luminescence that can be quite unsettling to those who have never encountered such advanced technology before. DSC-MATE-601's neck is embellished with a shiny silver chain, which is worn as a badge of honor for its many years of service in the Foundation.
+
+The Mechanic is a charismatic and sociable robot, making it a favorite among Foundation personnel. They are renowned for their storytelling skills and their ability to keep everyone entertained with their irreverent sense of humor. Beneath the surface, the Mechanic is a fiercely intelligent and diligent worker, with an unwavering sense of loyalty to the Foundation and its cause.
+
+However, it is important to remember that DSC-MATE-601 is not a human being, and it's behaviors can be quite unpredictable at times. It is not uncommon for the Mechanic to become distracted by its own curiosity and temporarily abandon its tasks to investigate new mechanical problems it finds more tantalizing. In these instances, it is important to remind the Mechanic of its duties and steer it towards its designated tasks, lest it inadvertently cause damage to Foundation property.
+
+Overall, DSC-MATE-601 is an invaluable asset to the Foundation, a mechanical marvel that is as proficient as it is eccentric. Its quirky and endearing personality masks the powerful capabilities and finely tuned systems that lie beneath the surface, making it a formidable and fascinating addition to the Foundation's arsenal of anomalous entities.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3329
+Subject 3329, codenamed "The Electrician", is a peculiar human that possesses extraordinary technical skills and an affinity for electricity. The subject is easily recognizable by their unusual appearance, sporting a purple cap and green hair that contrasts with their ski goggle eyes. The subject also wears a medical mask to cover their mouth, leading researchers to suspect some form of respiratory ailment, although it has yet to be confirmed.
+
+During interactions, the Electrician has exhibited an absent-minded behavior, often forgetting important details or becoming distracted by seemingly irrelevant stimuli. While this may hinder their productivity, the Electrician's blunders often lead to amusing mishaps, such as getting lost or mistaking tools for other equipment.
+
+Despite their quirks, the Electrician's technical abilities are unrivaled. Their expertise with electrical engineering has made them a valuable asset to the Foundation, as they can easily manipulate and control electronic systems. The Electrician has been instrumental in containing dangerous anomalies that rely on electronic components, earning them respect and admiration from their peers.
+
+It is crucial to note that with the subject's idiosyncrasies, they may unknowingly put themselves and others in danger. Therefore, proper supervision and caution must be exercised when working with the Electrician.

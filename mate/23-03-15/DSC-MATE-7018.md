@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7018
+DSC-MATE-7018 is a highly skilled Doctor assigned to the Foundation's medical division. He appears to be a middle-aged human male with a permanently affixed smile on his face. His most notable physical features are his eerie red clown eyes, which seem to pierce into one's soul. DSC-MATE-7018's head is always adorned with a bright purple cap with an attached headset to communicate with his team. He has golden earrings and wears a red scarf for his own personal style.
+
+DSC-MATE-7018 is known for his comedic personality and jokes around the facility. He has a natural talent for making people laugh and loves to share humorous stories and silly impersonations to lighten up the atmosphere, even in the darkest of situations. Despite his playful nature, DSC-MATE-7018 is a highly professional and dedicated doctor who takes his duties seriously.
+
+As a trained medical professional, DSC-MATE-7018 is highly sought after for his expertise in various surgical procedures. He has demonstrated exceptional skills in performing complex surgeries on anomalous beings, which require a unique understanding of different biological systems.
+
+DSC-MATE-7018 is highly valued by the Foundation for his medical knowledge and his ability to make his patients feel at ease despite their circumstances. His presence is a great asset to the Foundation, and he continues to be an important member of the medical team.

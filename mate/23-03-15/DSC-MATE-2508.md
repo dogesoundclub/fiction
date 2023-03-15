@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2508
+Subject 2508, also known as the "Fashion Designer," is a peculiar specimen of the human species. His face boasts a smile that doesn't quite reach his ski goggle eyes, which give off a cold and detached aura. A peak spike head, reminiscent of a towering razor blade, sits atop his shoulders, making him stand out in a crowd.
+
+However, what truly sets 2508 apart from his human brethren is his constant use of a medical mask covering half his face. The reason for this bizarre accessory remains unknown, as attempts to remove it have been met with stern rebukes from the subject. Researchers hypothesize that it may be due to severe germophobia or more nefarious motives.
+
+In terms of personality, this subject is undoubtedly a force to be reckoned with. His strong and decisive nature often borders on bossiness and intimidation, but his intentions are always centered around efficiency and effectiveness. Despite his cold demeanor, subject 2508's sharp eye for design and keen fashion sense has earned him a reputation as one of the most sought-after designers on the market.
+
+Further studies are necessary to uncover the potential hidden motivations behind this individual's peculiarities. Until then, caution and respect are advised when interacting with subject 2508.

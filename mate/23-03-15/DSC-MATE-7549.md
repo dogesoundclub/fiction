@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7549
+DSC-MATE-7549 is a female human doctor with distinct red clown eyes and several spots on her skin. She wears a medical mask over her mouth and a goggle on her forehead, while sporting a gold chain as her accessory. DSC-MATE-7549's head is not arranged in an unusual manner, but it is green in color. 
+
+DSC-MATE-7549 is known for her unique and unpredictable personality. While typically very organized and fond of planning ahead, she also possesses a spontaneous side that often leads to humorous situations. This includes surprising her colleagues with impromptu adventures or last-minute party planning that invariably turns into a hit. 
+
+DSC-MATE-7549 is a valuable asset to the Foundation, and her versatile nature has proven useful in many situations. However, due to her unusual appearance and quirky behavior, she is advised to maintain a low profile when interacting with civilians. Any potential breaches or instances of DSC-MATE-7549's spontaneous behavior should be reported to the nearest containment team immediately.

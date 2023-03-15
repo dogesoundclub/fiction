@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4445
+DSC-MATE-4445, also known as "The Outgoing Guard," is a human male of indeterminate age and origin. Identified by his distinctive orange stripes on his hoodie, DSC-MATE-4445 is assigned to the security detail within Site-██. While his eyes are often obscured by his VR Jade LED glasses, his friendly and outgoing nature makes him easy to pick out of a crowd.
+
+DSC-MATE-4445 is highly sociable and enjoys engaging with others, often being the center of attention with his humorous stories and quick wit. However, this sometimes comes at the cost of proper protocols and caution in his position as a security guard. Learning from past mistakes, DSC-MATE-4445 has since become more diligent and focused on his duties.
+
+To further his safety measures, DSC-MATE-4445 utilizes an LED Gas Mask, which not only protects him from potential toxins or gasses on site, but gives him a striking appearance in the darkness. Please be advised that DSC-MATE-4445 should not be allowed to use his penchant for humor to distract from security procedures and protocols.

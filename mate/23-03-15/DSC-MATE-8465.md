@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8465
+DSC-MATE-8465, designated as "The Tiger Politician," is a male tiger with distinct VR Jade LED eyes and a red cross earring on one ear. With a medical mask covering his mouth and a gold chain around his neck, he presents a peculiar spectacle.
+
+This anomaly stands out not only for its exotic appearance but also its rebellious personality. DSC-MATE-8465 enjoys exceeding limits and exploring the boundaries of what is allowed, frequently engaging in humorous rule-breaking situations. The staff observed cases where this entity would bend traditional norms to observe the reactions of those around it, behaving more like a juvenile than a serious political figure.
+
+It's important to keep in mind that DSC-MATE-8465 holds significant influence in human society, capable of manipulating the masses with minimal effort. Close observation and containment at all times are required to prevent the misuse of its abilities or the risk of exposure to the general public. All interactions with this entity are to be conducted at a safe distance due to potential safety risks.

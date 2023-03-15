@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1546
+DSC-MATE-1546, also known as "The Banker", is a human male with striking orange stripes on his face, reminiscent of an exotic feline. His large, red clown eyes are a stark contrast against his dark hoodie, giving him a menacing appearance when coupled with his calculating gaze. He's often seen wearing a silver chain around his neck, as well as a cigarette dangling from his lips, leaving a trail of pungent smoke behind him.
+
+The Banker has a very analytical and logical personality that can be both intimidating and fascinating. He approaches his work with a meticulous attention to detail, often finding hidden opportunities where others see only obstacles. His quirky sense of humor typically reveals itself in wry observations and dry, deadpan teasing, which is particularly bizarre given his otherwise stoic demeanor.
+
+Despite his cold and calculating persona, The Banker maintains some level of charm and appeals to many who encounter him. Whether it's his tiger-like stripes or his razor-sharp mind, it remains unclear. DSC-MATE-1546 is to be monitored at all times, particularly when it comes to his business dealings, as his motives and intentions often remain ambiguous to outsiders.

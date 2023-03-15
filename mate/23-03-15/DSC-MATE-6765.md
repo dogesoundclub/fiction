@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6765
+Subject 6765, also known as "The Tiger Reporter," is a unique humanoid creature that possesses several physical features that distinguish it from regular humans. The subject's body is covered in orange and black striped fur, typical of the tiger species. Its eyes are an unusual shade of blue, similar to those of a clown. 
+
+The Tiger Reporter's head is adorned with a bucket hat, and it wears a medical mask over its mouth, likely due to the current pandemic situation. The subject's forehead features a pair of goggles, used for unknown purposes, and it sports a red cross earring on one of its ears, indicating some association with the medical field. 
+
+Despite its unconventional appearance, the Tiger Reporter exudes a welcoming personality, with a jovial nature that immediately puts anyone it interacts with at ease. It has a great sense of humor, and enjoys making others laugh, often telling funny stories or doing silly impersonations to lighten the mood, even in the most serious of situations. 
+
+The Tiger Reporter's unique abilities and perspectives make it an invaluable asset for any investigative team, especially those dealing with the paranormal or supernatural. Its exceptional ability to adapt to changing situations, combined with its infectious personality, makes this subject a valuable ally in the field of urban fantasy.

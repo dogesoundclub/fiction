@@ -1,0 +1,8 @@
+ID # : DSC-MATE-324
+Subject 324, designated as "The Train Driver," is a female human with strikingly unique features. Covered in spots from head to toe, her most notable feature is her bold red lips that are often accentuated with her favorite accessory: a cigarette. The Train Driver is often seen wearing a blonde ushanka hat atop her head, completing her unconventional look.
+
+Personality-wise, The Train Driver is a complex individual. Though she has a reputation for being quiet and introspective, she is also known for her quick wit and dry sense of humor. She has a tendency to get lost in her own thoughts and daydreams, which can lead to amusing misadventures. Whether she is walking into a pole or tripping over her own feet, those around her never quite know what to expect.
+
+Despite her quirks, The Train Driver is a respected member of society. As a train driver, she is responsible for the safe transportation of hundreds of people each day. Though she is often lost in thought, she never loses sight of her duty and takes her job very seriously. Her passengers feel a sense of security knowing that they are in her capable hands.
+
+Overall, Subject 324 is a fascinating individual with a striking appearance and a unique personality. Though she may have her head in the clouds at times, she is grounded in her responsibilities and is always determined to succeed.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-1638
+Subject 1638, also known as "Sarge", is a police officer with a unique genetic makeup. As a primate-based species, Sarge has a distinctive frightened mouth expression, which can be interpreted as vulnerability or fear. However, don't let his appearance deceive you, as Sarge is a fierce protector of his loved ones and will stop at nothing to defend them.
+
+As a nod to his primate roots, he has taken to wearing a goggle on his forehead, reminiscent of old-timey fighter pilot helmets. However, it would be a grave mistake to underestimate the power of Sarge, as he often wields an LED gas mask as his weapon of choice in urban combat situations.
+
+Sarge can be quite the character, with his easy-going and laid-back demeanor. But, he is no pushover and can get into some heated arguments when someone insults a member of his family or circle of friends. It is often humorous to see his transformation from a chilled-out monkey to a fierce defender in a matter of seconds.
+
+Despite his appearance, Sarge is a force to be reckoned with and an integral part of the urban fantasy community. His loyalty and protectiveness make him an invaluable asset to those who call him a friend or ally. However, be wary of crossing him, as he will not hesitate to utilize all of his unique abilities to defend those he cares for.

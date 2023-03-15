@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6000
+DSC-MATE-6000 is a human male with striking features that set him apart from the norm. Adorned with a medical mask, glasses and an earring, his signature silver chain strikes like a thunderbolt. This individual possesses a rare gift of foresight, a strong sense of intuition, and an uncanny ability to tap into psychic energy. Witnesses have testified that DSC-MATE-6000 can sense the emotions of people and predict events before they come to fruition.
+
+Research indicates that DSC-MATE-6000's powers stem from his neurological activity, which varies from the typical human mind. Due to the strain and unpredictability associated with psychic abilities, the Foundation has strictly monitored DSC-MATE-6000's behavior, routinely performing psychological evaluations and containing him within a controlled environment.
+
+DSC-MATE-6000 is a Doctor in his field of expertise and has gained a reputation for his impressive psychic powers. Despite his striking appearance and unusual abilities, he has a friendly demeanor and enjoys interacting with others. However, his powers can still be disturbing and unsettling to those who have witnessed them first-hand. DSC-MATE-6000 is to be treated with caution and kept under strict supervision at all times.

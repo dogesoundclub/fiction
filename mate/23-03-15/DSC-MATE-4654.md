@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4654
+Subject 4654, also known as "The Risktaker", is a human male who thrives on the thrill of adventure. His face is adorned with distinctive spots, a detail that makes him easily recognizable. However, it is his custom-made VR Rainbow LED eyes that truly set him apart from others. The glowing hues of these eyes are a constant reminder of his love for the unknown and his willingness to take risks.
+
+The subject's hair is a normal blonde, though it is often styled in a messy fashion to reflect the chaos of his adventurous spirit. His ears are pierced with a green cross earring, a mysterious emblem that hints at his hidden depths. To complete his outfit, he is known to wear a vibrant red scarf, a signal of his rebellious nature.
+
+Despite his villainous activities, The Risktaker is often regarded as a charming individual. He has a charisma that draws people to him, a trait that he uses to his advantage when recruiting others for his criminal activities. His personality is marked with a sense of humor and a willingness to take things as they come. The thrill of new adventures excites him, even if they involve near-death experiences or getting lost in the wilderness.
+
+The Risktaker is a force to be reckoned with, both physically and mentally. His love for adventure and his willingness to take risks make him an unpredictable foe. His custom-made VR Rainbow LED eyes are rumored to imbue him with supernatural powers, though the true extent of his abilities remains unknown. Approach with caution.

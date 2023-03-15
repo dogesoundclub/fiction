@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3753
+DSC-MATE-3753 is a highly intelligent human female with a thirst for knowledge and a love of the unusual. Her unique appearance is hard to miss, boasting bright green hair covered by a purple cap, with spots and a vibrant purple lip. The subject's forehead is adorned with a two-color band which may represent her knowledge or authority in her field. DSC-MATE-3753's ears are decorated with gold earrings, and a matching chain adorns her neck. 
+
+Despite her unusual appearance, DSC-MATE-3753 is highly respected in her field as a doctor. Her advanced knowledge allows her to solve cases that others may not have the ability to handle. The subject is known for her deep curiosity, often exhibiting a desire to learn obscure knowledge and trivia, sometimes to the point of randomly spouting facts or quotes. 
+
+DSC-MATE-3753 is equipped with a normal gas mask, which she wears during certain procedures, protecting herself and others from airborne hazards. While the mask may be daunting to some, in the hands of DSC-MATE-3753, it is a tool of her expertise.
+
+Researchers are advised to approach DSC-MATE-3753 with respect and an open mind. The subject has a friendly demeanor and a willingness to explain her knowledge to those who show interest. However, inappropriate or insensitive behavior is not tolerated and will be met with severe consequences.

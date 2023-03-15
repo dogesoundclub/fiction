@@ -1,0 +1,10 @@
+ID # : DSC-MATE-4143
+DSC-MATE-4143, designated as the "Real Estate Agent," is a peculiar human being with a striking appearance. DSC-MATE-4143's most notable feature is the permanent smile that graces their face at all times. The expression appears to be genuine and infectious, causing those around DSC-MATE-4143 to feel a sense of comfort and ease. 
+
+DSC-MATE-4143's eyes are unique, resembling a pair of ski goggles that have been fused to their face. Despite this abnormality, DSC-MATE-4143's vision is not impaired in any way. Atop DSC-MATE-4143's head rests a retro cap, which appears to have been plucked straight out of a bygone era. Covering DSC-MATE-4143's mouth is a medical mask, not out of fear of any known contagions, but rather as a conscious style choice.
+
+Completing DSC-MATE-4143's ensemble is a vibrant red scarf, which they wear no matter the weather or occasion. The meaning behind this accessory remains unclear but has been observed to provide DSC-MATE-4143 with a sense of comfort and security.
+
+DSC-MATE-4143's personality is equally unique, with a reputation for their ambitious nature and goal-oriented mindset. This can lead DSC-MATE-4143 to take on more than they can handle, but their excellent organizational skills and strategic thinking allow them to manage any task with ease. Despite this drive, DSC-MATE-4143 remains approachable and affable, with a skill for making those around them feel at ease. 
+
+DSC-MATE-4143's occupation as a real estate agent is not unusual, and they excel in their profession thanks to their natural charisma and persuasive nature. However, there may be more to DSC-MATE-4143 than meets the eye, and further observation and study are necessary to determine any potential anomalous abilities or tendencies. DSC-MATE-4143 is currently contained and monitored by the Foundation to ensure the safety of the general public.

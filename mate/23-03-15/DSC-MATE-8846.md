@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8846
+DSC-MATE-8846, also known as "The Rail Monkey," is a male simian creature that works as a train driver on underground subway lines. Its frightened mouth and rainbow LED eyes make it an intimidating sight to behold, but its hoodie, red scarf, and candy stick help to soften its overall appearance. A typical day in the life of DSC-MATE-8846 is spent navigating the subterranean tunnels while occasionally causing mischief and pushing the boundaries of the rules put in place.
+
+DSC-MATE-8846's rebellious nature often leads it to break rules for the sake of amusement, leading to humorous situations and causing a bit of tension between it and its superiors. Despite its tendency to bend the rules, DSC-MATE-8846 is highly skilled at its job and takes it seriously when the need arises. It can quickly adapt to new situations and has been known to remain calm and collected under pressure.
+
+Due to its unique abilities, DSC-MATE-8846 has become a valuable asset to the Foundation's transportation department. Its monkey-like agility and instincts have saved countless lives on several occasions. Although DSC-MATE-8846 can be unpredictable at times, we have found its abilities to be an invaluable resource, and we look forward to continuing to work with it in the future.

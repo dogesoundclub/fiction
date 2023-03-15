@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6855
+DSC-MATE-6855, designated as "The Theater Manager," is a male human of unknown age with orange striped facial features. He has a fondness for gold earrings adorning his ears and often sports a silver chain around his neck. DSC-MATE-6855 is often observed smoking a cigarette. 
+
+DSC-MATE-6855 possesses a unique personality that sets him apart from others. While being empathetic and compassionate, DSC-MATE-6855 has a tendency to assume the responsibility of others' problems, making their troubles his own. This trait blends admirably with his role as a theater manager, where he actively seeks to solve issues for his performers.
+
+DSC-MATE-6855's empathetic nature, combined with his mystic accessories and personality, make him an intriguing subject for investigation. It is recommended that all interactions with DSC-MATE-6855 are to be carried out with care, as his empathetic traits may influence agents in ways that can be both beneficial and detrimental to their well-being.

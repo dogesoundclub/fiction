@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6595
+Subject 6595, also known as "The Scholar", is a female human of seemingly innocent appearance. However, her red clown-like eyes and 00s school girl hairstyle unsettle those around her. She often wears a jade earring on one of her ears, which contrasts with the 2 color band on her forehead and her choker that accentuates her neck.
+
+As a lawyer, The Scholar is well-versed in legal matters, but her true passion lies in pursuing knowledge. She hoards books, documentaries, and other educational materials on obscure topics and spends most of her time researching them. She is known to be constantly trying to learn and understand different subjects, particularly those that are not commonly known. Her knowledge is not relegated to legal matters and she possesses a broad range of information on diverse topics.
+
+However, do not mistake her thirst for knowledge for a kind-hearted nature. The Scholar tends to approach people who seek knowledge of an obscure topic and offers them her expertise, often with sinister intentions. Her desire to learn is never satiated, and she will sometimes resort to unethical means to acquire information, going to any length to gain the knowledge she seeks. So beware, for crossing paths with The Scholar may lead to your own downfall.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2576
+DSC-MATE-2576, codenamed "The Hooded Doctor," is a male human of unknown origin. He is easily distinguishable by his distinctive orange stripes on his face, along with a permanently frightened mouth. His VR jade LED eyes constantly flicker, giving off an otherworldly glow that suggests he is not quite of this world.
+
+Despite his strange appearance, DSC-MATE-2576's medical skills are considered top-notch, earning him the classification of "Doctor" within the Foundation. He always wears a medical mask, obscuring his mouth and concealing his identity. However, his gold chain suggests that he has a certain level of taste for the finer things in life.
+
+DSC-MATE-2576's no-nonsense attitude and love for tradition can make him a difficult character to work with. However, his playful side is often revealed through his fondness for telling jokes and sharing stories that have been passed down through his family or community. In some instances, DSC-MATE-2576 has been known to break character and act jovial, causing humorous situations.
+
+The true origins of DSC-MATE-2576 are still unknown, and researchers are currently investigating his background and connection to anomalous activities. Despite being classified as a humanoid entity, his unique appearance and unusual behavior suggest that he may be more than just your average human doctor.

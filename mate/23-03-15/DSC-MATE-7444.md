@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7444
+Subject 7444 is an anomalous member of the primate species, identified as a male monkey. Found to possess a set of vibrant VR Rainbow LED eyes, this specimen sports an accessory in the form of a red beanie hat atop his head. Additionally, a red scarf can frequently be seen wrapped around his neck, while an LED gas mask of unknown origin covers his mouth.
+
+As a real estate agent, subject 7444 is known for his persuasive nature and persuasive sales pitch. However, his rebellious streak often causes him to bend the rules for his own entertainment, sometimes breaking them altogether. This behavior can result in humorous situations, although sometimes it leads to objects being taken or information being leaked.
+
+Approach with caution: despite his jovial demeanor, subject 7444's unpredictable nature renders him difficult to predict or fully control. Further testing is necessary to determine the full extent of his anomalous properties.

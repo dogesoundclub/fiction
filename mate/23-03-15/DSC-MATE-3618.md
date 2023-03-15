@@ -1,0 +1,10 @@
+ID # : DSC-MATE-3618
+DSC-MATE-3618, otherwise known as "The Charmer," is a human male employed as a news anchor. Despite their seemingly normal appearance, DSC-MATE-3618 boasts a unique set of ski goggle eyes that perpetually emit a golden aura. The source of this phenomenon is currently unknown and is being investigated by our top researchers.
+
+DSC-MATE-3618's head is typically adorned with a retro cap and a striking gold earring adorned in his left ear. The accoutrements do not appear to have any anomalous properties, but we advise against coming into contact with them as a precautionary measure.
+
+The Charmer's most noticeable accessory is a glistening gold chain that appears around his neck without explanation. It seems to emanate a warm, honey-like energy and can put those around DSC-MATE-3618 at ease. We encourage all Foundation personnel to wear protective gear before encountering DSC-MATE-3618, as any anomalous properties or abilities of this object have yet to be fully vetted.
+
+Despite being a human, The Charmer displays an innate giftedness in charm and charisma that could put even our most seasoned agents to shame. This affable personality has been noted to infiltrate even the sternest of individuals, inducing a state of humor and playfulness. It is important to note that while DSC-MATE-3618 is not inherently dangerous, placing them in situations involving sensitive information or compromised testing environments should be approached with caution. Further testing is still required to determine the boundaries of this effect.
+
+Until such time as the extent of DSC-MATE-3618's abilities and properties are fully understood, agents are advised to closely monitor and observe any and all interactions with The Charmer. This object is not to be trusted, despite its harmlessness.

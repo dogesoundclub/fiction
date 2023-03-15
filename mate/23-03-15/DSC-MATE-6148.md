@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6148
+Subject 6148 is a mysterious mechanic among the bustling streets of the city. Despite being just an ordinary human, this individual stands out among the rest with their unique appearance. Their face is freckled with spots, while their forehead is adorned with an unusual pair of goggles that are always perched up top. A gold earring dangles from one ear, while a medical mask conceals their mouth.
+
+But what truly sets Subject 6148 apart is their natural charisma and leadership abilities. Whether it's in the workplace or amongst friends, this individual has an innate talent for taking charge and making tough decisions. They radiate a sense of confidence that others can't help but be drawn to. And with a silver chain adorning their neck, they exude a sense of commanding authority that's hard to ignore.
+
+However, there's something else about Subject 6148 that gives others pause. Something that suggests there's more to this mechanic than meets the eye. Perhaps it's their mysterious past, or a secret they're hiding from the world. Whatever the case may be, there's no denying that Subject 6148 is a force to be reckoned with. One that should be approached with caution, and perhaps a healthy dose of respect.

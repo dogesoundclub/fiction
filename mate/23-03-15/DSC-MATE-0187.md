@@ -1,0 +1,8 @@
+ID # : DSC-MATE-187
+DSC-MATE-187 is a unique creature in the urban fantasy world, identified by its distinct identification number. This particular creature's occupation is that of a Theater Manager, a role that allows it to interact with humans without drawing attention to its own elusive nature. The creature's species is that of a tiger, a fierce predator of the wild.
+
+DSC-MATE-187 is male and sports a pair of horned rim glasses on its eyes, giving it a scholarly appearance. It has a two-color band on its forehead, another notable feature that sets it apart from other tigers. Additionally, the creature sports a red cross earring on its ears, implying its willingness to challenge the norms. Sometimes it wears a red scarf and is frequently seen smoking a cigarette, a habit that is challenging even for its own species to break.
+
+The personality of DSC-MATE-187 is what sets it apart from other tigers. It is unlike any other creature found in the urban fantasy world, often displaying a dry sense of humor that can catch people off guard. The creature may not consider itself the life of the party, but it has a way of delivering deadpan jokes that can be surprisingly funny.
+
+DSC-MATE-187 is a fascinating creature, inviting curiosity from humans and other creatures alike. Its unique appearance and personality make it a valuable asset to any urban fantasy narrative, opening up a new realm of possibilities to explore.  The Foundation monitors DSC-MATE-187's activities closely, ensuring that it remains a harmonious force in an otherwise chaotic world.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4000
+DSC-MATE-4000, also known as "The Rebellious Lawyer," is a human female with unique features that set her apart from others in her profession. She is easily recognizable by her distinctive orange stripes that run down one side of her head and her striking VR Rainbow LED eyes that seem to glow brightly in any environment. 
+
+Her head is slightly asymmetrical, with the aforementioned orange side being noticeably larger than the other, and she often wears a goggle on her forehead, further highlighting her unusual appearance. Adding to this, she displays a green cross earring on each ear and frequently wears a medical mask across her mouth, leaving her with an aura of mysteriousness that draws others' attention.
+
+DSC-MATE-4000's personality is equally noteworthy, characterized as someone who is a bit rebellious and enjoys pushing the boundaries in life. She finds herself at home in situations where rules are meant to be broken, often prompting her to look for ways to bend or even break them just to see what happens next. This tendency can lead to some humorous situations that sometimes test her limit, but her natural wit and intelligence often help her navigate them smoothly. 
+
+In her current professional career as a lawyer, DSC-MATE-4000 has proven to be an effective and resourceful advocate for clients, using her unbridled creativity and keen understanding of the law to win even the most difficult cases. But her reputation precedes her, and it is clear that her reckless spirit has led to several controversial incidents. DSC-MATE-4000 continues to be monitored by the DogeSoundClub, as her unpredictable nature necessitates close attention.

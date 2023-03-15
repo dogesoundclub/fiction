@@ -1,0 +1,4 @@
+ID # : DSC-MATE-3506
+Subject Identified as 3506, a Homo Sapiens, known for their profession as a Train Driver. This individual possesses distinct physical features with numerous spots scattered on their face and a clown mouth, alongside blue clown eyes. Their head is adorned with a mohawk, and their forehead is notably decorated with a two-color band and goggles for unknown reasons. The subject's ears also sport an impressive jade earring while carrying a candy stick as an accessory.
+
+It is essential to note that Subject 3506 displays a tendency for reckless behavior, leaving them liable to act before thinking things through, often leading to amusing mishaps or minor accidents while trying to impress others. Approach with utmost caution, as an unpredictable nature can be expected from this individual.

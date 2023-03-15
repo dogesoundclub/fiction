@@ -1,0 +1,10 @@
+ID # : DSC-MATE-4641
+DSC-MATE-4641, codenamed "The Electrician", is a human male of average height and build, with several distinct physical features. His face is covered in numerous spots, which seem to be a natural occurrence rather than a medical condition. Despite this unusual appearance, DSC-MATE-4641 is known for his infectious smile, which can quickly brighten up any room he enters.
+
+DSC-MATE-4641's eyes are obscured by a pair of standard prescription glasses, which he uses to correct his nearsightedness. His head, however, is a different story; it is constructed entirely out of a shimmering metal that is difficult to identify. The metal is a deep purple hue, and seems to have been intricately crafted into a skull shape.
+
+Attached to DSC-MATE-4641's ears is a single jade earring, which has been observed to glow faintly at times. This earring appears to have some sort of significance to DSC-MATE-4641, although he has yet to reveal any information about its origin or purpose.
+
+In addition to these features, DSC-MATE-4641 also sports a gold chain around his neck which he claims is a family heirloom. Of particular interest, however, is the LED gas mask that DSC-MATE-4641 is always seen wearing when performing his duties as an electrician. The mask has been modified with batteries and circuitry, allowing it to light up brightly in different colors, giving DSC-MATE-4641 the appearance of some sort of futuristic cyborg.
+
+Despite his heavily modified appearance, DSC-MATE-4641 is a friendly and personable individual, known for his great sense of humor. He enjoys lighthearted banter and cracking jokes, and is often called upon to cheer up colleagues during tough times. Despite this, DSC-MATE-4641 can be surprisingly skilled and resourceful when needed, often coming up with unique solutions to complex problems. Overall, DSC-MATE-4641 is a valuable asset to the Foundation, both for his technical expertise and his ability to keep those around him in good spirits.

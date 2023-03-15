@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4724
+DSC-MATE-4724, also known as "The Tiger Car Salesman," is a humanoid tiger species with piercing amber eyes. He is a suave salesman who wears a purple cap with green hair, goggles on his forehead, and a red cross earring on each ear. DSC-MATE-4724 also wears a gold chain around his neck and a cigarette hanging effortlessly from his lips. 
+
+DSC-MATE-4724 has an uncanny ability to observe and pay attention to even the smallest details, which helps him excel in his profession. He has a knack for providing the perfect car to fit the needs and wants of his clients. However, this same attention to detail can also make him overly concerned about giving the perfect gift. DSC-MATE-4724 can often be found agonizing over the perfect present for his loved ones, spending hours in thought before settling on one that meets his high standards. 
+
+DSC-MATE-4724 is a charismatic individual and can be quite charming. However, it is important to note that he is also a predator and should be treated with caution. He has been known to use his charm to manipulate or coerce individuals into buying a car or accepting his gifts. DSC-MATE-4724's exact abilities and limitations are still under observation, and caution should always be taken when interacting with him.

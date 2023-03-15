@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7857
+DSC-MATE-7857, also known as "The Banker," is a male rabbit of unknown origin. He is easily distinguishable by his bright red beanie and golden earring. DSC-MATE-7857's most notable accessory is a candy stick, which he is often seen chewing on. 
+
+DSC-MATE-7857 is known for his laid-back and easy-going demeanor, but he is also fiercely loyal and protective of his loved ones. Despite his small stature, DSC-MATE-7857 has been reported to engage in heated arguments when someone insults a friend or family member. This personality trait has been the cause of several humorous situations in the field.
+
+Further study is needed to determine the extent of DSC-MATE-7857's abilities and any potential danger he may pose to the Foundation. In the meantime, all personnel are advised to approach DSC-MATE-7857 with caution and to not underestimate his protective nature.

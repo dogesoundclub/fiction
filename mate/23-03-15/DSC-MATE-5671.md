@@ -1,0 +1,6 @@
+ID # : DSC-MATE-5671
+Subject 5671 is a male rabbit of unknown origin, with a frightened mouth and nerdy glasses adorning his sharp eyes. He is often seen sporting a blue bandana around his head, which seems to be a personal adornment rather than a functional accessory.
+
+Despite his timid appearance, this villainous critter is not one to be underestimated. His unpredictable and reckless behavior makes him a formidable foe, willing to take risks and act before considering the consequences. This tendency to leap before looking often gets him into hilarious predicaments, as he tries to impress with his bumbling bravado.
+
+It is not clear what motivates this wacky rabbit, or what drives him to his nefarious deeds. However, his cunning and unpredictable nature make him a dangerous threat to any who dare cross his path. Exercise caution when encountering subject 5671.

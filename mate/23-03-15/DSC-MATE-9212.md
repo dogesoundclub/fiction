@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9212
+DSC-MATE-9212, also known as "The Metal Dancer", is a dangerous villain that poses a significant threat to humanity. Born a human, the subject has undergone extensive cybernetic augmentation, with his head now encased in purple metal and his eyes replaced by shimmering VR jade LEDs. The subject's intake of age-reducing compounds and physical enhancements have left him in his prime physical condition.
+
+DSC-MATE-9212's personality is perhaps his most unpredictable trait. He possesses an indelible sense of responsibility and purpose, but also knows how to let his hair down and enjoy himself. It is said that he can be found in discos, clubs, and other social events, surprising those around him with his nimble footwork and humorous antics. However, beneath this façade of lightheartedness and revelry lies a cold, calculating mind with a deep-seated grudge against humanity.
+
+The subject's preferred accessory is a silver chain that adorns his neck, symbolizing a bond with some unknown entity that he serves. The inclusion of a jade earring in his left ear is largely unknown, but it is believed to be a tribute to a now-dead partner or loved one.
+
+DSC-MATE-9212's ultimate goal is to harness the power of the cybernetics engineering, combining it with dark magic, and subvert the powers of the universe to his own will. His abilities in combat and technological finesse make him a formidable foe, furthermore, his cunning make him a prime target of The Foundation.

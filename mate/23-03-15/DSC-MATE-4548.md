@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4548
+DSC-MATE-4548, also known as "Tiger Salesman", is a male tiger with remarkable features. The subject has jade LED eyes and is often seen wearing a Doge hat and a red cross earring on his ears. DSC-MATE-4548 also wears a red scarf and carries a whistle as part of his standard attire. 
+
+DSC-MATE-4548's day job is that of a car salesman, a job which he takes very seriously. The subject has a strong sense of duty and responsibility towards his work, making him an indispensable member of the sales team. Despite this, DSC-MATE-4548 knows how to have fun and let loose, which can lead to humorous situations. 
+
+Observers have reported that during social events, DSC-MATE-4548 surprises others by showcasing his dance moves and silly antics. Such behavior can be attributed to the subject's tendency to be playful and jovial around others. 
+
+DSC-MATE-4548 has been observed carrying out his duties with utmost sincerity and professionalism, displaying traits of loyalty, honesty, and dedication to his work. However, under no circumstance, must personnel allow DSC-MATE-4548 to sell them any vehicles. Any attempts to negotiate contracts with DSC-MATE-4548 may result in the subject breaking into song and dance, causing confusion and delaying important tasks. To avoid such situations, personnel must approach DSC-MATE-4548 with caution and refrain from engaging in conversations that may lead to the aforementioned behaviors.

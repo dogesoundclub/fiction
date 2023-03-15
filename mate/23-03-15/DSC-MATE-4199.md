@@ -1,0 +1,4 @@
+ID # : DSC-MATE-4199
+DSC-MATE-4199 is a peculiar sight to behold. This humanoid entity is identified as a female news anchor, whose distinguishing characteristic is her purple lips and bright blue clown-like eyes. Her head is adorned with pink rabbit hair, an unnatural addition to a human body. And, to further enhance her quirkiness, she sports green cross earrings and a choker.
+
+But don't let DSC-MATE-4199's appearance deceive you. Her humor, albeit dry, is one of her strongest assets. Her deadpan delivery of jokes often takes people aback, and her wit can unexpectedly catch them off guard. Her personality is hard to read but her comedy is unforgettable. Meeting her is akin to experiencing a twisted carnival ride, but with jokes that are stranger than the sights that surround you. Proceed with caution.

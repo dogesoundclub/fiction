@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9615
+DSC-MATE-9615, also known as "The Rebel," is a human male security guard currently employed by our organization. The subject is easily identifiable by his unique features, including a vibrant red clown-like eye color, a sharp mohawk hairstyle, and a medical mask covering his mouth. 
+
+Despite his professional responsibilities, DSC-MATE-9615 often exhibits rebellious tendencies and a love for bending rules. Staff should exercise caution when interacting with DSC-MATE-9615, as he may attempt to push boundaries or engage in playful mischief, leading to potentially hazardous situations. 
+
+However, despite his playful exterior, DSC-MATE-9615 is an effective and reliable personnel member, quickly adapting to new situations and demonstrating a strong sense of loyalty to his colleagues. Staff are advised to approach DSC-MATE-9615 with caution but also with respect for his dedication to the organization.

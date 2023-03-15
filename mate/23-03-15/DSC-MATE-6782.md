@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6782
+DSC-MATE-6782, also known as "Stripes," is a human security guard with distinctive orange stripes adorning their facial features. Most strikingly, Stripes has a perpetual smile etched across their face, which can be unnerving to some. Their eyes resemble ski goggles, with clear lenses that reveal nothing of their emotions or thoughts. On one ear, they wear a green cross earring, a statement piece that seems to symbolize their unshakeable faith in their convictions. 
+
+Stripes likes to accessorize, and can often be seen sporting a gold chain and a candy stick as a treat for themselves. Don't let their playful demeanor fool you, however. They are a driven and goal-oriented individual, with an ambition that can sometimes lead them to bite off more than they can chew. But they always manage to find a way to meet their objectives, thanks to their strategic thinking and impeccable organizational skills. 
+
+Their work as a security guard at [REDACTED] has earned them a reputation among their coworkers as someone who takes their job seriously, always keeping a sharp eye out for potential threats. There are rumors that they can see things that others cannot, but no concrete evidence has yet been found to support these claims. 
+
+Overall, DSC-MATE-6782 is an enigma. Beneath their sunny exterior lies a person driven by a sense of purpose and a fierce desire to succeed at all costs. They are to be observed with caution, as there may be more to them than meets the eye.

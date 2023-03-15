@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9589
+DSC-MATE-9589, also known as "The Psychic Firefighter," is a human male with striking features that set him apart from the norm. He is 6'2" tall with a normal blonde hairdo and a green cross earring adorning his right ear. His most peculiar feature is a mouth spot that draws attention immediately; it appears to be a black dot, almost like a beauty mark, just below the corner of his bottom lip. 
+
+DSC-MATE-9589's personality is both intriguing and unsettling. He has a strong sense of intuition that borders on what could be perceived as psychic powers. He has an uncanny ability to predict upcoming events or sense when others are struggling with anxiety or distress. His keen sixth sense can be both impressive and eerie to those around him. 
+
+In addition, DSC-MATE-9589 is often seen wearing a silver chain around his neck, sporting a friendly smile, and carrying a cigarette in his hand. As a firefighter, he takes his job very seriously, and his level of dedication is particularly outstanding. Interestingly, he seems to have a unique way of communicating with fires, as if they are sentient beings with whom he can speak to and understand their needs, leading to a significant reduction of collateral damage. 
+
+DSC-MATE-9589's presence is both comforting and anxious, and people often flock towards him to seek his advice or assistance. However, DSC-MATE-9589 himself seems to prefer keeping a safe distance from others, using his abilities to protect himself from potential threats. He is a true enigma that requires further study and research.

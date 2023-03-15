@@ -1,0 +1,10 @@
+ID # : DSC-MATE-4207
+DSC-MATE-4207, also known as the "News Anchor," is a male human with distinctive features that make him easily recognizable. His most prominent feature is a large, splotchy mark on his mouth that resembles a birthmark. Despite this, he is often seen with a wide grin, showing off his second feature, a set of unnerving red clown-like eyes. 
+
+To complement his unique appearance, DSC-MATE-4207 dons a blue bandana on his head and sports a gold earring on each ear. He also wears a gold chain around his neck, giving him a certain air of confidence and self-assuredness that he carries well.
+
+Though he wears a medical mask over his mouth on-camera, behind the scenes, DSC-MATE-4207 is known for being fiercely independent. This independence can border on stubbornness at times, as he is often unwilling to ask for help or admit when he's lost. He's a proud individual, and this can lead to some humorous situations when he takes on more than he can handle alone. 
+
+Despite his strong-willed attitude, DSC-MATE-4207 has a talent for conveying news in a captivating manner. His deep, commanding voice and engaging demeanor make him popular with audiences, and he has a tendency to draw people in with his natural charisma. Whether it's reporting on a breaking news story or delivering a feature piece, DSC-MATE-4207 brings his own unique flair to everything he does. 
+
+He is to be monitored closely, as his unusual appearance and personality may make him a target for those interested in the supernatural. DSC-MATE-4207 is to be kept newsworthy and away from sensitive information that could put the DogeSoundClub at risk.

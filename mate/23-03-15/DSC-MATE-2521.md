@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2521
+Item #2521 is a human male identified as an electrician. He is noted for his distinctive features, including multiple spots on his face and a perpetually frightened expression. His eyes are obscured by normal glasses, but he wears a blue bandana on his head and a jade earring in his left ear. Notably, he also wears a silver chain around his neck and keeps a candy stick in his pocket for frequent snacking.
+
+Despite his nervous demeanor, item #2521 has a strong sense of duty and responsibility, particularly in his work as an electrician. He takes great care to ensure that all electrical systems are functioning safely and efficiently, and is not afraid to speak up if he detects a potential issue. Despite this seriousness, he is not shy when it comes to having fun. In social situations, he surprises others with his dance moves and silly antics, often becoming the life of the party. 
+
+Attempts to further study this individual have resulted in surprisingly minimal findings, as if there was nothing particularly unusual about him. Further research is ongoing to determine if there are any underlying anomalies present in item #2521.

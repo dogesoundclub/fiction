@@ -1,0 +1,8 @@
+ID # : DSC-MATE-938
+Subject 938, also known as "The Joker", is a male human with striking orange stripes adorning his face - a physical trait that serves to intimidate and disorient his targets. The subject's eyes possess VR jade LED technology, giving them a hauntingly unnatural and piercing quality. His head is decorated with a head of normal blonde hair, which he keeps styled in a neat and fashionable cut. 
+
+However, what truly sets Subject 938 apart is his preference for wearing a medical mask obscuring his mouth. The reasons for this are unknown, leading many to speculate that the subject suffers from some form of disfigurement or is hiding a secret identity. Completing his look is a silver chain, which hangs around his neck like a talisman. 
+
+Subjects who have encountered 938 describe him as having a dry sense of humor that takes people off guard. Despite his unassuming demeanor, he has a knack for delivering deadpan jokes with excellent timing, often taking people by surprise. Some believe this to be intentional, as he seems to relish in the confusion it creates. 
+
+Make no mistake, however - Subject 938 is a known villain and should be approached with caution. His powers and abilities are still being researched, but what is known is that he is a formidable opponent, with a cunning and unpredictable nature that makes him a serious threat to anyone who opposes him.

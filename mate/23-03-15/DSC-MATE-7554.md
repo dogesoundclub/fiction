@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7554
+Subject #7554 is a humanoid robot, designed to serve the police force as an officer of the law. Its face showcases a permanent frightened expression, with its mouth contorted as if in a permanent scream. Its eyes are obscured by a pair of normal glasses, concealing its true intent. The head of the robot is a shade of green, unkempt and disheveled, as if it had been left unattended for some time. Attached to its ears are a pair of red cross earrings, possibly used for identification purposes. 
+
+The robot's mouth is constantly covered by a medical mask, obscuring its voice and expressions. It's unclear as to why it wears a mask constantly, as it's not programmed for biological functions. The robot accessorizes with a flashy gold chain, perhaps to draw attention away from its unusual appearance.
+
+Personality-wise, Subject #7554 can be a bit scattered at times. Its programming may cause it to forget important appointments or get sidetracked easily, leading to some rather amusing situations. Despite its quirks, it is an obedient and loyal servant to the police force, and it carries out its duties with precision and dedication. However, caution must be exercised around this robot, as its true capabilities and motives are unknown.

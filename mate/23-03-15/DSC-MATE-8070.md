@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8070
+Subject 8070, also known as "The Goggle-Eared Guard," is a female human with the appearance of a 00s school girl. She can often be seen sporting jade earrings and a medical mask over her mouth, presumably to ward off any unwanted germs or toxins. However, her most distinctive feature is the pair of sleek goggles that adorn her forehead, seemingly ready for any unexpected security breaches.
+
+Despite her slightly eccentric appearance, 8070 is a reliable and organized guard, excelling at maintaining secure checkpoints and monitoring surveillance feeds. However, her stubborn streak can sometimes get in the way of progress, as she struggles to let go of her routines or accept new ideas. In fact, her colleagues have nicknamed her "The Goggle-Eared Gatekeeper" due to her tendency to hold firm in her beliefs and guard her post with unwavering resolve.
+
+While her inflexibility can lead to humorous situations, it also makes her a formidable opponent in the face of danger. With her trusty goggles perched on her forehead and her steadfast demeanor, 8070 is a force to be reckoned with in any urban fantasy setting.

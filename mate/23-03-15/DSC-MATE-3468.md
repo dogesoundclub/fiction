@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3468
+DSC-MATE-3468 is a human male identified as a Car Salesman. They display unique physical features, including spotted skin and ski goggle eyes. DSC-MATE-3468 often wears a red beanie and a green cross earring. They are commonly seen donning a red scarf and a normal gas mask as protective gear. 
+
+DSC-MATE-3468's personality is characterized by a rare innate empathetic ability towards others. DSC-MATE-3468 feels deeply connected to individuals, and they are often brought to tears or emotional outbursts when exposed to someone else's pain. In addition to this, DSC-MATE-3468 has a deep fondness towards animals and nature. 
+
+DSC-MATE-3468 should be approached with care as their extraordinary ability may be hazardous. DSC-MATE-3468's emotional state could be triggered by various stimuli, and it is advised to handle them cautiously in case of any such occurrence.

@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3746
+DSC-MATE-3746, or Officer Spots as he is often called, is a human male standing at approximately 6 feet 2 inches tall. His face is marked by several large spots, each a different shade of brown, giving him a distinct and unusual appearance. His head is covered in several layers of green fabric, and he is always seen wearing a medical mask over his mouth, obscuring his facial expressions. 
+
+At all times, DSC-MATE-3746 can be seen wearing a thick gold chain around his neck, despite the dangers it may pose in his line of work. He is a police officer, known for his quick wit and sense of humor even in the most dire of situations. His lighthearted nature often brings levity to tense or stressful situations, but he is always focused on the task at hand.
+
+His colleagues describe him as an integral member of the police force, with an uncanny ability to diffuse tensions and lighten the mood. However, there have been several reports of DSC-MATE-3746 using his humor to manipulate suspects or potentially dangerous individuals. As such, it is recommended that caution be exercised when dealing with Officer Spots in high-stress situations.

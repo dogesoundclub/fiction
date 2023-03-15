@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8275
+DSC-MATE-8275, also known as "The Banker," is a human male who works in a financial institution. He can be easily identified by the spot on his mouth and his frightened expression, which he constantly hides behind a medical mask. The Banker wears a bucket hat, and a silver chain completes his attire.
+
+Although humanoid in appearance, DSC-MATE-8275's impulsiveness sets him apart from normal humans. He acts on his emotions, and this tendency can lead to humorous and surprising situations. The Banker's behavior has been observed to be unpredictable, which causes some concern among his co-workers and clients.
+
+Due to his anomalous nature, DSC-MATE-8275 is to be under constant surveillance to prevent any incidents that could compromise human safety. Any recorded anomalous actions should be reported to the Foundation immediately.

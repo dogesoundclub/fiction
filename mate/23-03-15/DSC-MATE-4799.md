@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4799
+Subject 4799, also known as the "Orange Striped Villain", is a human male with distinctive orange stripes across his face. His frightened mouth, paired with his glowing VR jade LED eyes, creates an unnerving appearance that strikes fear in anyone who happens to cross his path. Subject 4799 is always seen wearing a hoodie that conceals his identity, and his presence alone is enough to send chills down the spine of even the bravest individuals.
+
+Despite his terrifying appearance, Subject 4799 possesses a strong and decisive personality. Sometimes his commanding nature can come off as bossy or intimidating, but it's all to ensure that things are done efficiently and effectively. He is always one step ahead of his enemies, with a cunning mind that always seems to stay one step ahead of those who dare cross him.
+
+Subject 4799 is known to be a villain, eagerly participating in illegal activities with a reckless abandon that seems almost unnatural. His motives seem unclear, but there is no denying the dark energy that surrounds him. The Orange Striped Villain is a force to be reckoned with, and those who dare to stand in his way will quickly regret it.
+
+Whether he is working alone or with his colleagues, Subject 4799 is a formidable opponent that should not be underestimated. His sharp mind, combined with his terrifying appearance, make him a dangerous adversary in any urban fantasy world. Approach with extreme caution.

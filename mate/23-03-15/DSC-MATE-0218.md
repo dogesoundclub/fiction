@@ -1,0 +1,8 @@
+ID # : DSC-MATE-218
+Subject 218 is a traffic officer assigned to the busiest streets of the city. When encountered, he presents a frightened mouth, constantly worrying about his next move. His eyes, obscure behind a pair of dark goggles on his forehead, are difficult to read, which many consider an intentional hiding of his true intentions. 
+
+Subject 218's tiger species adds to his intimidating presence, evoking a sense of danger and ferocity. However, after initial interactions, it becomes apparent that his personality is in stark contrast to what one would expect. He is very much in touch with his emotions, often moved to tears by sentimental moments in movies or TV shows. 
+
+He has a fondness for music and art that evokes strong feelings, which seems to be his go-to for comfort. His love for sentimental media may seem odd for someone in his position, but it proves useful in his line of work. When dealing with traffic violations, he shows a surprising level of empathy towards lawbreakers, often letting them off with a warning instead of a fine. 
+
+Subject 218 is often seen wearing a shiny gold chain around his neck and smoking a cigarette, which he uses as a coping mechanism for stressful situations. His demeanor and fondness for the arts make him an unusual, albeit effective, traffic officer in the city. However, there are rumors that Subject 218’s fondness for sentimental media could be used as leverage against him. It is strongly advised to approach with caution.

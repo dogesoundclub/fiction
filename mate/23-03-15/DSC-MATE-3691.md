@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3691
+DSC-MATE-3691 is a peculiar specimen of tiger-human hybrid that has taken up the guise of a car salesman. Their unique appearance is characterized by a pair of large, oval nerd glasses perched on their snout, a police cap adorning their head, and a medical mask covering their mouth. DSC-MATE-3691 also seems to have a fascination with accessorizing themselves with a flashy gold chain.
+
+Don't let their profession fool you, as DSC-MATE-3691 possesses a wild spirit that craves adventure and excitement. Their thrill-seeking nature often leads them to engage in dangerous activities such as bungee jumping or exploring remote places. Despite their precarious antics, DSC-MATE-3691 has been known to survive near-death experiences and come out on top by the skin of their teeth.
+
+It is advised that interactions with DSC-MATE-3691 should be approached with caution, as the thrill-seeker is likely to suggest risky endeavors or concoct harebrained schemes. However, their amusing and colorful personality has earned them a level of charm and likability that can be hard to resist.

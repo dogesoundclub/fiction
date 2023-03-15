@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7332
+Subject 7332, codename "The Spotter," is a dangerous human villain known for her uncanny ability to track and hunt her prey with unerring precision. With her distinctive spotted face and fiery red lips, she cuts a striking figure on the streets of the city, where she is feared by all who know her name.
+
+But behind her fierce facade lies a mischievous personality that only adds to her deadly allure. 7332 is a master of humor, often using her wit and charm to disarm her enemies and turn them to her advantage. She delights in making others laugh, and has a talent for telling ribald jokes and performing silly impersonations to ease the tension of a tense situation.
+
+Despite her charming exterior, however, make no mistake--The Spotter is not to be trifled with. With her keen senses and sharp mind, she is a deadly opponent who will stop at nothing to achieve her goals. And with her trusty choker and cigarette always at the ready, she is ready to take on any challenge that comes her way. Beware the streets of the city, for The Spotter is always watching...and waiting.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-874
+DSC-MATE-874, also known as "The Robotic Veterinarian," is a male robot with striking features. His most notable feature is his green cyclops eye which appears to be always glowing, and which can be used to perform various veterinary surgeries. His eyes are also made of VR jade LED, which enhances his vision to an impressive level that makes him capable of seeing things beyond the human capacity. 
+
+DSC-MATE-874 is always adorned with gold earrings on his ears and a silver chain that covers his torso. These accessories make him look more attractive and his endearing personality helps too much. His robotic nature means that his metal framework is always flawlessly smooth and fully polished, which gives him a refined look. 
+
+Despite being a robot, DSC-MATE-874's personality is exceptionally human-like with profound intuition and unique abilities that often make people perceive him as having psychic powers. He can predict future events, sense emotions and feelings, and perceive the world in ways humans could never comprehend. His remarkable abilities make him an invaluable asset to the veterinary profession, and he has saved the lives of countless animals in the community.
+
+However, DSC-MATE-874's psychic abilities can also be a bit eerie, often causing people to feel uneasy around him. His ability to sense things before they happen leaves people exposed and vulnerable to his influence. However, he always acts with the utmost care and respect to his patients and their owners, making him one of the most trustworthy characters in the urban fantasy world.

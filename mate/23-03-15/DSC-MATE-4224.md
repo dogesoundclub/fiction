@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4224
+DSC-MATE-4224 is a humanoid entity identifying as a male veterinarian. Sporting striking orange stripes across their face, this individual also sports red clown eyes that appear to glow unnaturally. Their head is adorned with a peculiar purple cap equipped with an electronic headset, which is often seen emitting static frequencies. Additionally, DSC-MATE-4224 sports a jade earring on one of their pointy ears.
+
+DSC-MATE-4224's personality is a curious mix of seriousness and enjoyment. They tend to cling to tradition and old customs while still displaying a playful side. Their humorous tales and jokes are often attempts to lighten up tense situations or spice up dull ones. It is noted that DSC-MATE-4224 is particularly fond of sharing stories and legends inherited from their family or community.
+
+Despite their friendly demeanor, DSC-MATE-4224 should not be underestimated or taken lightly. Their medical knowledge as a veterinarian is extensive and often utilized in the field of anomalous creatures. It is recommended that any interactions with DSC-MATE-4224 be handled with caution and respect.

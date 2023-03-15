@@ -1,0 +1,10 @@
+ID # : DSC-MATE-166
+DSC-MATE-166, also known as "The Boss", is a formidable figure in the world of organized crime. At first glance, the subject appears to be an average Siberian tiger, standing at approximately 6 feet tall and weighing in at 550 pounds. However, upon closer inspection, it becomes apparent that DSC-MATE-166 is far from an ordinary feline.
+
+The subject's eyes are replaced with VR Rainbow LED lights, enhancing their already predatory gaze. On top of their head, DSC-MATE-166 wears a traditional police cap, a symbol of their control over the underworld. Their ears are adorned with a single gold earring, a testament to their wealth and power. To conceal their true identity, the subject often dons a medical mask, making it nearly impossible for their enemies to identify them.
+
+Perhaps the most striking accessory worn by DSC-MATE-166 is their silver chain necklace. A symbol of their rank within the organization, the chain is said to be cursed, imbued with magical powers that enhance the subject's ability to command and intimidate others.
+
+Despite their fearsome appearance and reputation, DSC-MATE-166 possesses a natural talent for leadership. They have a commanding presence, often finding themselves taking charge of situations without even trying. Whether in the workplace, social settings, or their personal life, The Boss is a natural-born leader.
+
+Caution is advised when dealing with DSC-MATE-166. Their power and influence cannot be underestimated, and those who oppose them have been known to suffer dire consequences. As always, containment of the subject should be a top priority for the Foundation.

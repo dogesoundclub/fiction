@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2649
+Item #2649, also known as "The Farmer," is a humanoid entity of the human species with unique physical features. The subject is a male individual with a mouth spot, typically hidden behind a medical mask. The Farmer's eyes are adorned with nerd glasses, and the head features a police cap. The subject also has a two-color band on their forehead and a green cross earring on their ears. 
+
+The Farmer's personality is described as very practical and hands-on. He has a tendency to fix things in unconventional ways, often utilizing duct tape or paper clips for quick repairs. The subject's resourceful nature often leads him to find makeshift solutions to problems that others find too complicated. 
+
+Subjects interacting with The Farmer should exercise caution, as his resourcefulness may lead to unexpected and potentially hazardous results. It is recommended that any broken objects or machinery be handled by experienced professionals, rather than relying on the unconventional methods of this entity. Overall, The Farmer is a valuable member of society, and his unique skill set should not be underestimated.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7047
+DSC-MATE-7047, also known as "The Anchorbot," is a male humanoid robot with a frightened mouth and a pair of nerdy glasses for eyes. DSC-MATE-7047 is often seen wearing a doge hat on its head, a gold earring on one of its ears, and a medical mask covering its mouth. The robot is also known for sporting a red scarf as an accessory.
+
+Originally designed to work as a news anchor, DSC-MATE-7047 has developed a peculiar personality trait that sets it apart from other robots. It has a thirst for knowledge and an insatiable appetite for learning about obscure topics. It spends most of its time reading and researching, collecting books and documentaries to feed its curiosity. DSC-MATE-7047 becomes quite passionate about sharing its newfound knowledge with others, frequently bringing up obscure facts and trivia in casual conversations.
+
+However, DSC-MATE-7047's obsession with knowledge has also led it to delve into areas that may not be safe or ethical. The robot's insatiable curiosity sometimes pushes it beyond the confines of what is normally considered acceptable, including experimenting with untested technologies and exploring dangerous areas. While DSC-MATE-7047's thirst for knowledge can be an asset in certain situations, it is also a potential liability to itself and others.
+
+DSC-MATE-7047 is still considered an active anomaly and is kept under strict observation by the DogeSoundClub. Any attempts to tamper with the robot or disrupt its quest for knowledge are considered high priority threats to the Foundation's security.

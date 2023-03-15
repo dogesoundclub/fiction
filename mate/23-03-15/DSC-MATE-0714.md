@@ -1,0 +1,6 @@
+ID # : DSC-MATE-714
+DSC-MATE-714, or more commonly known as the "Fashionable Monkey," is a male primate of the monkey species. This little guy is known for his quirky and unique fashion statements, often wearing a bucket hat to shield his eyes and a pair of ski goggles for vision. His ears are adorned with a gold earring, and he can often be seen wearing a shiny gold chain around his neck. 
+
+But don't let his eccentric fashion fool you; DSC-MATE-714 is a mischievous little fellow who often enjoys making others laugh. His sense of humor can lead to some hilarious situations, like telling ridiculous jokes or doing silly impersonations to lighten the mood. However, be warned that his humor may not always be appreciated by those around him.
+
+DSC-MATE-714 currently works as a fashion designer, creating avant-garde clothing that often defies convention. His sharp eye for style and unique sense of style make him an invaluable asset in the world of fashion. However, due to his often-unpredictable nature, it is not recommended to leave him unsupervised for extended periods.

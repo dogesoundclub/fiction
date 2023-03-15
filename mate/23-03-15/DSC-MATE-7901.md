@@ -1,0 +1,10 @@
+ID # : DSC-MATE-7901
+DSC-MATE-7901, also known as "The Farmer," is a male Monkey of an unknown subspecies. He stands at an average height of 3 feet and weighs around 50 pounds. His distinctive features include a pair of nerd glasses that magnify his piercing, intelligent eyes, and green hair under a purple cap. A two-colored band adorns his prominent forehead, enhancing his striking appearance.
+
+Whilst his odd appearance may seem comical, make no mistake - DSC-MATE-7901 means business. Tasked with farming a wide range of crops, The Farmer has a strong sense of duty and responsibility towards his craft. He approaches each day with a laser-focus, working tirelessly to ensure that his task is completed to the best of his abilities. 
+
+On top of his unusual sense of style, DSC-MATE-7901 also carries himself with a certain swagger. This is exemplified by his gold chain necklace that complements his unique fashion choices. Additionally, he is almost always seen carrying a candy stick in his mouth, leading some personnel to believe it may be a coping mechanism for the stresses of his work.
+
+Despite his strenuous labor, DSC-MATE-7901 knows how to let loose and have fun, injecting humor into his daily routine. He often surprises others with his surprisingly good dance moves and silly antics on the dance floor at social events. This jovial side to his personality helps him build camaraderie amongst his peers and keep his spirits high during otherwise grueling work.
+
+Personnel are advised to approach DSC-MATE-7901 with respect, as his diligent work ethic and quirky demeanor put him in high regard within the foundation.

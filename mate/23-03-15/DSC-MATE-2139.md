@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2139
+DSC-MATE-2139, also known as "The Train Driver", is a human male with distinctive facial features. The subject's face is adorned with spots, and a perpetual smile stretches across their lips. However, it is the subject's eyes that are most striking. DSC-MATE-2139's eyes are an abnormal shade of red, giving them a clown-like appearance.
+
+In addition to the unusual facial features, DSC-MATE-2139 wears a Doge hat on their head. The forehead is marked with a two-color band, and a green cross earring hangs from each ear. An extravagant gold chain adorns the subject's neck, and a candy stick is often seen protruding from their mouth.
+
+DSC-MATE-2139's personality is charismatic, with a natural talent for leadership. They often take charge in social situations and work environments. This behavior can become overwhelming, as DSC-MATE-2139 is prone to micromanagement and assertiveness. Despite this flaw, their leadership abilities have proven useful in containment efforts.
+
+It is strongly advised to approach DSC-MATE-2139 with caution, as their behavior can be unpredictable. Under no circumstances should DSC-MATE-2139 be allowed near any DSC items relating to transportation, particularly trains. Any requests by DSC-MATE-2139 to handle such objects must be denied. In addition, DSC-MATE-2139 must be kept under surveillance at all times to prevent any unauthorized access to objects of interest.

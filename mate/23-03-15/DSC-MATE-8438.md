@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8438
+DSC-MATE-8438 is a humanoid entity referred to as the "Car Salesman". Though appearing as a female of the human species, DSC-MATE-8438 has a striking appearance with an 00s School Girl head and vibrant VR Jade LED eyes. DSC-MATE-8438 is known to wear a Green Cross Earring on one ear and carries a cigarette as an accessory.
+
+DSC-MATE-8438's most notable feature is their infectious smile, which can charm even the most skeptical of individuals. This is perhaps an essential trait for their chosen profession, as DSC-MATE-8438 works as a car salesman. However, their bubbly nature can also be detrimental, as they tend to be scatterbrained and easily sidetracked.
+
+DSC-MATE-8438 displays a jovial and carefree demeanor, often leading to humorous situations. They are known to forget important appointments and get lost while trying to locate new places. DSC-MATE-8438's behavior could be attributed to their underlying anomalous properties or merely an eccentric personality. Therefore, caution should be exercised when interacting with DSC-MATE-8438.

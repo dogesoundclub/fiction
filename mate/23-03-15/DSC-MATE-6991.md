@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6991
+Subject 6991, also known as "The Programmer," is a humanoid monkey specimen. His head is adorned with vibrant green hair and a purple cap, giving him a distinctive and unique appearance. Subject 6991 is always seen wearing a silver chain around his neck and carrying a whistle, which he uses for both amusement and practical reasons.
+
+As a programmer, Subject 6991 possesses an analytical and logical mind that allows him to excel in his work. He enjoys debating with others, and his sharp tongue and quick wit often lead to humorous situations that both entertain and enlighten his peers.
+
+Despite the lighthearted nature of his personality, Subject 6991's intellect and insight are not to be underestimated. He has a deep understanding of complex systems and can quickly identify weaknesses within them. This unique combination of wit and intelligence makes him a valuable asset in any situation, be it related to his work or otherwise.
+
+Researchers who have interacted with Subject 6991 have noted his relaxed and friendly persona, which is perhaps why he is often seen socializing with other members of the research team. Despite his playful nature, however, Subject 6991 is a force to be reckoned with when it comes to problem-solving and critical thinking. His contributions to the research team have proven invaluable, and his presence is always welcomed within the DogeSoundClub.

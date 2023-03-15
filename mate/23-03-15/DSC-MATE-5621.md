@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5621
+DSC-MATE-5621, also known as "The Mechanic," is a humanoid entity with striking physical features. Upon first observation, 5621 is immediately characterized by the orange stripes which decorate her face and the large, almost comically red lips that frame her mouth. She possesses a pair of vivid blue clown-like eyes, which have been known to disorient and distract those who make direct eye contact with her.
+
+In keeping with the colorful theme of her appearance, The Mechanic wears a bucket hat atop her head, which is decorated with charms and pins of varying shapes and sizes. Curiously, she also sports a single green cross earring on her right ear, which is a symbol often associated with the supernatural.
+
+Completing the ensemble is a black choker wrapped tightly around her neck. Although its origins are unknown, this small trinket is an apparent source of comfort to her, and likely has some sentimental value.
+
+The Mechanic's personality is equally intriguing. She is a highly creative individual who revels in her imagination. Some say that her hobbies verge on the bizarre; she has a penchant for writing poetry, creating intricate costumes, and collecting unusual items. At times, this fixation on the unusual can lead her down a dangerous path, but she is ultimately able to retain control of her impulses. Anyone with DSC-MATE-5621's interests, however, would be wise to keep a close eye on their behavior.

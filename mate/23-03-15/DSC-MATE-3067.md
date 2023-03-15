@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3067
+DSC-MATE-3067, also known as "Tiger Programmer," is a sentient tiger of unknown origin with the ability to manipulate technology, specifically programming. Despite his fierce appearance, DSC-MATE-3067 has shown a gentle and nurturing personality. He often acts as a caregiver for those in his close circle, treating them with the same level of care as his own kin. 
+
+DSC-MATE-3067's physical appearance includes a bucket hat for headwear and a red cross earring on each ear. He also wears a silver chain around his neck and can often be seen with a lit cigarette. Due to his species, DSC-MATE-3067's eyes are presumed to be yellow with black pupils, but this has not been confirmed.
+
+DSC-MATE-3067's ability to manipulate programming makes him a valuable asset to the Foundation. However, his loyalty to his loved ones has made it difficult for the Foundation to fully utilize his skills. DSC-MATE-3067 has a tendency to prioritize the needs of his friends and family over his duties as an DSC object, often resulting in humorous situations where he tries to "protect" those around him from the dangers of the Foundation.
+
+Overall, DSC-MATE-3067 is a unique and valuable addition to our collection of anomalies. However, special care must be taken to ensure his loyalty to the Foundation remains intact. Any attempts to harm or separate DSC-MATE-3067 from his loved ones may result in unpredictable behavior.

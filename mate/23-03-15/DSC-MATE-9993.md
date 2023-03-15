@@ -1,0 +1,6 @@
+ID # : DSC-MATE-9993
+DSC-MATE-9993, also known as "The Empathetic Reporter", is a human female with distinctive features. The subject is adorned with jade earrings and a silver chain, which contrasts against the spots on her face. Striking red clown eyes are the most noticeable feature, and her blonde hair features a small wing on top.
+
+Despite her off-putting appearance, DSC-MATE-9993 is approachable and friendly. They possess an incredible ability to empathize and connect with others, making them an ideal candidate for their job as a reporter. However, this trait can lead to issues when handling distressing or traumatic situations. DSC-MATE-9993 has been known to take on the problems of others, leading to exhaustion and burnout.
+
+It is important to monitor DSC-MATE-9993's workload and mental health to ensure optimal performance. With proper care and attention, the subject can be a valuable asset in situations requiring compassion and empathy.

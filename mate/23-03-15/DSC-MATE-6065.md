@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6065
+Subject 6065, also known as the "Tiger Car Salesman," is an anomaly of the feline persuasion. His outward appearance boasts a powerful and intimidating demeanor, with a sleek tiger build and sharp, piercing blue clown eyes. However, it is his frightened mouth, always twisted in a state of uneasy worry, that betrays his true nature.
+
+The subject has found employment in the highly competitive auto sales industry, where he utilizes his innate talent for leadership and takes charge of any given situation. He is often relied upon to close important deals, as he effortlessly persuades customers to make purchases that exceed their initial expectations.
+
+In addition to his job, Subject 6065 often dons a black hoodie, a gold chain, and and LED gas mask - a curious accessory that adds to his mystique. He keeps mostly to himself and does not readily divulge details about his personal life. Despite this, his natural charisma and commanding presence draw people towards him and he is often sought out for advice and guidance.
+
+In conclusion, Subject 6065 is a fascinating and unique tiger anomaly, who has successfully integrated himself into the hustle and bustle of modern society. While his inner anxieties may be at odds with his confident exterior, his natural born leadership abilities make him a valuable member of any team - whether that be in the showroom or out in the field.

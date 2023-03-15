@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5308
+Identification number: 5308 is a curious humanoid with striking facial features. His face is adorned with vibrant orange stripes that run from his temples to his jawline. His mouth is always curled into a mischievous smile, hinting at his rebellious personality. However, his most distinct feature is his eyes, which are large and round like ski goggles, giving him an eccentric appearance.
+
+The top of his head is adorned with a peculiar peak spike that gives him the look of a cartoon character. He often wears a pair of goggles on his forehead, ready to don them at a moment's notice. His ears are pierced with a jade earring that glints in the sunlight.
+
+One of his favorite accessories is a candy stick that he is never without. He enjoys breaking rules and bending them to his will, often leading to humorous situations. Despite his playful nature, he is a trustworthy doctor with an insatiable appetite for pushing boundaries.
+
+As a member of the human species, 5308 often finds himself in the middle of urban fantasy situations, using his wit and adventurous spirit to get out of sticky situations. Whether he is facing supernatural forces or mundane annoyances, his determination and sense of humor always prevail.

@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8097
+DSC-MATE-8097 is a remarkable monkey that bears a striking resemblance to an experienced police officer. With a prominent police cap atop his head and a red scarf hung around his neck, DSC-MATE-8097 often appears to be on duty 24/7. DSC-MATE-8097's blue clown eyes tend to make him look frightening, yet his constant frightened mouth expression seems to give him an even more amusing outlook. 
+
+As a programmer, DSC-MATE-8097 is exceptional, constantly consumed with coding, debugging, or testing software. However, DSC-MATE-8097's signature independent nature might be a source of concern. They are frequently observed refusing aid even when they obviously need it, resulting in hilarious scenarios like carrying a cumbersome furniture item alone or refusing to read a map when lost.
+
+DSC-MATE-8097 is a purebred monkey species, but it is unclear how they acquire such likeness to urban living. They are intelligent creatures, and their identity as a police officer entices people to approach them. DSC-MATE-8097 is often seen holding a candy stick, which they appear to enjoy consuming while working. 
+
+Furthermore, DSC-MATE-8097 is a dynamic, quirky, and unpredictable creature. May it be in their style, their behavior, or the situations they put themselves in, DSC-MATE-8097 makes their presence known in a way that often leaves an impact on whoever meets them. As a result, DSC-MATE-8097 is one of the most enigmatic beings in the realm of urban fantasy.

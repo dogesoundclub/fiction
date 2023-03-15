@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7673
+Subject 7673, also known as "The Monkey News Anchor," is believed to be a highly intelligent primate of an unknown species. Sporting a signature red beanie on his head and his iconic jade earring on his ear, 7673 is a highly recognizable and popular figure in the society. 
+
+Donning nerd glasses to enhance his visual capabilities, the Monkey News Anchor is often seen clad in a silver chain and equipped with a whistle, hinting at his highly disciplined nature. He may appear bossy or intimidating at times, but this is merely because of his strong and decisive personality, which aims to ensure that everything is carried out with utmost efficiency and effectiveness. 
+
+Although his true origins are shrouded in mystery, it is believed that the Monkey News Anchor possesses an advanced level of intelligence and possesses a keen understanding of politics and global affairs. His expertise in delivering breaking news and accurate information in real-time has earned him a reputable place among his contemporaries. 
+
+However, it is important to note that while Subject 7673 may have extraordinary abilities, he should be treated with the same level of respect and care as any other living being. Provided with the right resources and care, the Monkey News Anchor can undoubtedly serve as a valuable asset in the quest for knowledge and understanding.

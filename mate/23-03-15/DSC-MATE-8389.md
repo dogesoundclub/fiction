@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8389
+DSC-MATE-8389 is a humanoid entity of the Homo sapiens species. It has a distinct feature of red lips and red clown eyes that seem to glow in the dark. Its head is adorned with an orange side shaved hairstyle, while its ears bear a green cross earring that dangles from its lobes. DSC-MATE-8389 often sports a gold chain as an accessory, and a cigarette as another.
+
+Its job profile suggests that it is a programmer, but its demeanor on and off duty reveals that DSC-MATE-8389 has a natural talent for leadership. It has the uncanny ability to take charge of any situation and make sound decisions, even in the face of adversity. DSC-MATE-8389's leadership skills have not gone unnoticed and have gained the attention of the Foundation's upper echelons.
+
+Although it appears to be human, DSC-MATE-8389's overbearing personality seems to suggest that it harbors an anomalous essence that might need further examination. As such, it has been assigned to Level-3 personnel for further monitoring and research. Until then, researchers are advised to approach DSC-MATE-8389 with caution and to have a clear-cut strategy in place when interacting with the entity.

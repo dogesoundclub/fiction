@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8380
+DSC-MATE-8380, also known as "The Empathic Lawyer", is a male rabbit of unknown origin with highly attuned powers of empathy. Often seen wearing a retro cap with horned rim glasses, accessorized with a gold earring, chain, and a candy stick, DSC-MATE-8380 is a peculiar sight in the urban landscape.
+
+Despite being a rabbit, DSC-MATE-8380 has attained a law degree and is a practicing lawyer. His empathic abilities allow him to be an excellent mediator and litigator, often successfully settling cases before they even reach a courtroom. Whether it's negotiating with conflicting parties or comforting a client in distress, DSC-MATE-8380 can always be counted on to empathize, understand, and provide the best possible solution.
+
+DSC-MATE-8380's empathic abilities also enable him to read emotions with great accuracy. This can lead to humorous situations, such as knowing just the right thing to say to make someone feel better or helping others to see the humor in a difficult situation. His candy stick accessory is often used to comfort and distract his clients, providing them with a moment of sweetness in their time of need.
+
+DSC-MATE-8380's origins and how he obtained his abilities are unknown. However, due to his uncommon appearance and abilities, he has been classified as an DSC and is under the Foundation's surveillance. While his motives and intentions seem pure, the Foundation keeps a watchful eye on him to ensure the safety of the general public.

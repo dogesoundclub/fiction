@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5713
+Subject 5713, deemed colloquially as "Tiger" due to his evolved species, is a fascinating and intriguing specimen that has caught the attention of many in the urban fantasy community. This particular individual holds the coveted role of a mechanic, an occupation that requires one to have a keen eye for detail and a willingness to rummage through the inner workings of complex devices. Tiger possesses both these traits in abundance, making him not only a skilled professional but also a valuable asset to any team.
+
+Upon closer inspection, one can note the subject's distinctive features — a frightened mouth that betrays his anxieties, normal glasses that suggest a need for sharper vision, and a gold earring that is undoubtedly of sentimental value. However, an item in his possession that has piqued the curiosity of many is a candy stick that he is often seen fidgeting with. Its purpose is yet unclear, but one can only guess it is a comfort item for the nervous feline.
+
+While Tiger's physical appearance may be intimidating, his personality is the opposite. He is a diligent worker who approaches his tasks with great care and precision. However, his attention to detail can sometimes tip over into an almost obsessive focus, such as alphabetizing his spice rack or color-coding his closet. Though this trait may seem like a simple quirk, it is a potential weakness that could be exploited if his emotions were to get the better of him.
+
+All in all, subject 5713 is a fascinating creature that requires careful study and monitoring. His unique combination of species, job, and personality makes for an intriguing character that is sure to have a significant impact on any urban fantasy narrative.

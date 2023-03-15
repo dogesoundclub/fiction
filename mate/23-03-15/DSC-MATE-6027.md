@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6027
+DSC-MATE-6027, also known as "The Rabbit Conductor", is a male anthropomorphic rabbit that works as a train driver for several subway lines in the city. Despite his timid and frightened appearance, DSC-MATE-6027 takes his job very seriously and is always ready to rise up to any challenge.
+
+DSC-MATE-6027's face features a frightened mouth that constantly twitches as a sign of distress. His eyes are equipped with advanced Virtual Reality Rainbow LED technology that allows him to visualize the intricate network of tunnels and tracks that he navigates throughout the day. In addition to his headgear - a Retro Cap - DSC-MATE-6027 usually wears a red scarf as an accessory, providing him with a sense of comfort and protection.
+
+DSC-MATE-6027's personality is characterized by a strong sense of duty and responsibility, often taking on more tasks than he can handle. This has resulted in some humorous situations ranging from being unable to fit all of his duties into a single day, to attempting to carry too many objects at once. Despite these mild quirks, DSC-MATE-6027 is highly respected amongst his colleagues and passengers, who praise his punctuality and professionalism.
+
+DSC-MATE-6027 is considered to be a valuable asset to the Foundation, given his important role in the city's public transport infrastructure. Nonetheless, any signs of physical or psychological distress must be addressed immediately, as DSC-MATE-6027's wellbeing is essential for the safety of both himself and his passengers.

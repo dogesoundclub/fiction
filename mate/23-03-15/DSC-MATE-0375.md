@@ -1,0 +1,4 @@
+ID # : DSC-MATE-375
+DSC-MATE-375 appears to be a typical human male in appearance, with the notable feature of a prominent mouth spot. DSC-MATE-375's blue clown eyes lend a jovial air to their countenance, which is further accentuated by the two-color band on their forehead and a pair of goggles resting atop their head. In their left ear, DSC-MATE-375 sports a jade earring, while a silver chain hangs around their neck.
+
+As the manager of a urban theatre, DSC-MATE-375 is known for their great sense of humor, often delighting audiences with their silly impersonations and funny anecdotes. However, DSC-MATE-375's cheerful façade belies a deeper, more strategic mind, one which has proven invaluable in navigating the often-complex world of urban theatre. Though they can be easily underestimated, DSC-MATE-375's sharp wit and analytical skills have made them an indispensable member of their organization.

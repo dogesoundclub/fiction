@@ -1,0 +1,6 @@
+ID # : DSC-MATE-1734
+DSC-MATE-1734, designated as "The Tiger Driver", is a male tiger humanoid who works as a delivery driver within the urban jungle. His visage is obscured by a hoodie, which conceals his eyes from sight. Strikingly, The Tiger Driver bears a red scarf alongside his signature candy stick, indicating a happy-go-lucky demeanor despite his formidable appearance.
+
+One must not underestimate the intelligence of The Tiger Driver, as he possess a great sense of humor and enjoys making others chuckle. He has a knack for telling funny tales and performing outlandish impersonations to lift the spirits of those around him. 
+
+DSC-MATE-1734 has exhibited no hostile or malicious intent towards humans, and his primary objective is to deliver goods on time with efficiency, earning him high praise from those who have had the pleasure of interacting with him. Although anomalies within urban society are often viewed with suspicion, DSC-MATE-1734 is a welcome addition to the survey, delivering a much-needed dose of humor and good cheer.

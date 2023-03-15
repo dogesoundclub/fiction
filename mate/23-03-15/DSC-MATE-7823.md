@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7823
+DSC-MATE-7823 is a humanoid entity identified as a female firefighter operating within the urban area. She bears distinctive features such as orange stripes across her face and purple lip. Notably, DSC-MATE-7823's eyebrows are of a vibrant orange color that contrasts with her brown hair from the 90s era. An additional feature of interest is a red cross earring that adorns her ears, signifying her profession.
+
+DSC-MATE-7823 often wears a choker and an LED gas mask to protect herself from airborne hazards in the line of duty. Despite the apparent danger of her job, DSC-MATE-7823 carries herself with a playful and humorous disposition. She delights in making others laugh and uses her wit and charm to ease stressful situations.
+
+While DSC-MATE-7823's natural affability endears her to many, it does pose problems for containment measures. Her humor and penchant for playing pranks can sometimes lead to breaches in protocol, causing some to question her suitability in the Foundation.
+
+Nevertheless, DSC-MATE-7823's resilience and expertise as a firefighter make her a valuable asset in containing unnatural fires and other dangerous phenomena. Her adaptability and lighthearted attitude in the face of danger have earned her respect among her peers, earning the nickname "The Laughing Flame" among her colleagues.

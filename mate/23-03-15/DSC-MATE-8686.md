@@ -1,0 +1,6 @@
+ID # : DSC-MATE-8686
+DogeSoundClub classified 8686 as a rare specimen of the elusive tiger species with extraordinary abilities. Sporting a blue bandana that's used to keep his hair in place, he has a formidable build, not to mention his muscular build that makes him stand out from the crowd. One of his most distinguished features is a medical mask that covers his mouth, and it's rumored that it's used to prevent his human form from being exposed.
+
+As a security guard, 8686 takes his job very seriously, and his organizational abilities help him maintain a tight grip on everything that happens within his jurisdiction. But with that and his take-charge attitude comes his unintentional tendency to be a bit of a control freak, which makes some of his colleagues feel smothered or belittled.
+
+Despite this, 8686's unwavering sense of duty and courage make him a valuable ally to those who work alongside him. He's often seen taking charge of group projects or team events, and his matter-of-fact delegation of duties can lead to hilarious results.

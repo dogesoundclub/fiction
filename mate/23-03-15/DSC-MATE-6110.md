@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6110
+DSC-MATE-6110, codenamed "The News Monkey," is a unique specimen of the monkey species known for its unusual physical traits and eccentric personality. With a head adorned by a Doge hat, and eyes shining like a rainbow LED screen, this creature presents itself as an unusual sight to behold.
+
+DSC-MATE-6110's primary job is that of a news anchor, using its advanced dexterity and impressive cognitive abilities to read texts and communicate with its audience. Its speech patterns have been noted to be highly precise and articulate, often using complex sentence structures and vocabulary.
+
+Despite its professionalism on the job, DSC-MATE-6110's personality is considered unique among its species. It tends to organize and manage tasks efficiently, often delegating responsibilities to others with a bossy demeanor. This can occasionally cause humorous situations, especially when working in group settings, where DSC-MATE-6110's meticulous personality can come across as slightly overbearing.
+
+DSC-MATE-6110 is often seen carrying a candy stick in its hand, using it as a stress-relief mechanism when under pressure. While its quirky personality and unusual traits might make it seem friendly and harmless, DSC-MATE-6110 possesses highly developed cognitive abilities, which make it a formidable opponent when provoked. As with all DSC objects, caution is recommended when handling or interacting with DSC-MATE-6110.

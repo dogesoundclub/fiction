@@ -1,0 +1,6 @@
+ID # : DSC-MATE-7255
+DSC Identification Number 7255 denotes a peculiar human. This news anchor's face is covered in irregular black spots, and their purple lips are as dark as their soul. What's more, their blue eyes are cartoonishly big, reminiscent of a clown's. They don a bucket hat over their head, and a flashy gold earring on their ears.
+
+But don't be fooled by their whimsical appearance. DSC 7255 may seem laid-back and easy-going, but that is a façade. Underneath that exterior lies a fiercely loyal and protective personality. They will go to great lengths to protect their loved ones, even if it means getting into a heated argument with anyone who dares to insult them.
+
+Do not underestimate this seemingly harmless news anchor. They possess a sharp mind and a quicker tongue. Chaos follows them wherever they go. Approach with caution.

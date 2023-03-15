@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3320
+Subject 3320, designated as "Monkey Guard" in our database, is a male primate of undetermined origin who has been employed as a security guard in various facilities. He is easily identified by his frightened mouth, which is constantly open in an expression of anxiety, and his eyes, which appear to be constantly darting around in search of danger.
+
+The subject's head is covered in a thick layer of green fur that is often unkempt and unkempt. His ears are pierced with a single jade earring each, and he is usually seen wearing a silver chain around his neck. While these accessories may seem superfluous to some, they are apparently of great significance to the subject.
+
+Despite his constant state of nervousness, Monkey Guard possesses impressive observational skills and an attention to detail that is second to none. These traits make him an excellent gift-giver, as he is able to pick up on subtleties that others might miss. However, this also means that he can become overly fixated on finding the "perfect" gift, often spending excessive amounts of time agonizing over what to get someone.
+
+We recommend that Monkey Guard be given duties that allow him to utilize his keen perception and attention to detail, as he has proven to be an asset in situations where a high level of vigilance is required. However, we caution against placing him in any high-stress situations that may exacerbate his anxiety.

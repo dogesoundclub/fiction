@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7834
+DSC-MATE-7834, also known as "The Hare" is a unique creature that presents itself as a male rabbit with striking attributes. Its ski goggle eyes are capable of gazing at objects in the dark, while its jade earring ears are particularly sensitive to sound. DSC-MATE-7834's green hair, popping out from a purple cap, suggests that this entity has a unique fashion style that it cherishes. 
+
+As a veterinarian, DSC-MATE-7834 has a deep affection towards animals and often carries a silver chain to calm down anxious pets. The silver seems to have a soothing effect on the creatures, which makes it easier for DSC-MATE-7834 to perform its work. Moreover, DSC-MATE-7834 regularly carries a whistle. It is unclear why, but personnel have been instructed to remain cautious in the presence of DSC-MATE-7834's whistle. 
+
+DSC-MATE-7834 can be somewhat impulsive, and it has been observed that it tends to base its decisions on emotions rather than logic. This leads to amusing circumstances and unforeseeable situations that can leave others stunned. DSC-MATE-7834's behavior can be erratic at times, so personnel are advised to monitor its behavior closely. 
+
+Overall, DSC-MATE-7834's lack of impulse control and tempestuous nature makes it an unpredictable yet charming creature. Its affection towards animals and unique attributes have made it an asset to the Foundation.

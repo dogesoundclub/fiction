@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7324
+DSC-MATE-7324, also known as "The Reporter" is a human male with distinct features that set him apart from the norm. The subject is often seen wearing a Doge hat, green cross earring on the left ear, and a red scarf around the neck. His facial feature #1 consists of various spots that are strategically placed on his face. His blue clown eyes are unsettling to most individuals, as they seem to pierce through the souls of those who gaze upon them.
+
+The subject has a peculiar personality that's driven by logical and analytical thinking with a touch of a quirky sense of humor. Often making witty observations, The Reporter has become known for his ability to deduce situations with the utmost precision. Despite his serious demeanor, The Reporter possesses a dry, deadpan way of teasing his friends.
+
+DSC-MATE-7324 has been assigned as a liaison between the Foundation and the media industry, choosing to put his skills to use as a reporter. He has been instrumental in providing vital information to assist in our operational success. Despite his straightforward approach, The Reporter has become a valued member of the Foundation, and his contributions to our cause are invaluable.
+
+In moments of unease or discomfort, The Reporter can be seen nibbling on the candy stick, which he often carries around with him. Overall, DSC-MATE-7324 is a unique individual who brings a level of wit and logical reasoning, ensuring that the Foundation remains steps ahead of any potential threats.

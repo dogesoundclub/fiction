@@ -1,0 +1,8 @@
+ID # : DSC-MATE-6705
+Subject 6705 appears to be a human male, occupying the role of a firefighter in our world. However, upon closer inspection, certain anomalous features become evident. The subject exhibits striking orange stripes upon their otherwise ordinary face, drawing the eye and potentially causing a sense of unease. Further examination reveals that the mouth of the subject is perpetually contorted into a frightened expression, as if in a perpetual state of terror.
+
+The most unsettling aspect of this subject, however, is undoubtedly their eyes. They possess bright blue irises, which are alarmingly reminiscent of clown makeup. The uncanny nature of these eyes has been known to cause distress to those who gaze upon them for extended periods.
+
+The subject's head is adorned with a short peak cap, a common piece of headwear among firefighters. However, the medical mask that covers their lower face sets them apart from their non-anomalous peers. This mask may signify an attempt by the subject to conceal their disturbing facial features from the public eye.
+
+Subject 6705's personality appears to be a mixture of seriousness and playfulness. They place great value on tradition and heritage, relishing the opportunity to regale others with tales passed down from their family or community. Despite this gravitas, they possess a mischievous streak that manifests in the form of jokes or pranks. Beware of underestimating this enigmatic figure - they may hold more power than their outward appearance would suggest.

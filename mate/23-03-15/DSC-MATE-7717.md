@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7717
+DSC-MATE-7717 is a human male with striking orange stripes marking their face, which contrast dramatically with their red clown eyes. Their blonde hair is unremarkable, save for the gaudy gold earring that dangles from one ear. A gold chain is their preferred accessory, always draped around their neck. 
+
+As a reporter, DSC-MATE-7717 exhibits an insatiable curiosity, driven by a thirst for knowledge. They are known to spend countless hours researching esoteric topics, compiling information to share with others. This drive has led to a sizeable collection of books, documentaries, and other educational materials, all of which DSC-MATE-7717 holds dear.
+
+Despite their uniquely striking appearance, DSC-MATE-7717 maintains a low profile, rarely venturing into public spaces where they may draw too much attention. Instead, they prefer to keep to themselves, surrounded by their books and research materials, content to delve deeper into the world of knowledge than any mortal should dare. 
+
+While DSC-MATE-7717 may not be the most personable or outgoing of individuals, their passion for learning is undeniable. They are a valuable asset to any team or organization, leveraging their boundless curiosity to uncover hidden truths and reveal the secrets of the universe. But tread carefully, for those who get too close to DSC-MATE-7717 may find themselves drawn into a world of knowledge that they cannot handle.

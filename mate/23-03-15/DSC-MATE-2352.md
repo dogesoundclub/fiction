@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2352
+DSC-MATE-2352 is a veterinarian of the Tiger species, also known as "The Emotional Beast". This subject wears a red beanie on their head and sports Jade Earrings on their ears, which may symbolize good luck or spirituality. The subject usually wears horn-rimmed glasses over their piercing green eyes, making for an approachable demeanor. However, do not let their calm appearance fool you. DSC-MATE-2352 is a sentient being capable of a vast range of emotions, favoring the stronger, more intense sensations.
+
+DSC-MATE-2352 has two notable accessories: a Silver Chain and a Candy Stick. Both trinkets seem insignificant, but their use may be a comfort mechanism for this subject. Further assessment is necessary.
+
+DSC-MATE-2352's personality is well documented, displaying an expressiveness that could bring a tear to anyone's eye. They may become emotionally involved in sentimental scenes during movies or TV shows, or they may find themselves drawn to music and art that evokes feeling. Caution must be taken with this subject's emotions, as strong stimuli could potentially cause an unstable reaction.
+
+DSC-MATE-2352's veterinary profession may require additional screening, as animals under their care may be subject to undue stress or harm if DSC-MATE-2352 experiences intense emotions during their time at work. Further research and containment measures are necessary.

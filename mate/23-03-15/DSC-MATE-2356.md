@@ -1,0 +1,8 @@
+ID # : DSC-MATE-2356
+Subject 2356, also known as the "Ambitious Car Salesman," is a human female of average height and weight. However, their appearance is anything but ordinary. Their face is adorned with orange stripes that make them stand out in any crowd, along with bold red lipstick that draws attention to their lips. Most strikingly, their eyes glow with a VR rainbow LED, indicating that they may possess some sort of cybernetic enhancement.
+
+Despite their unusual appearance, Subject 2356 attempts to blend in with society through their witch short hair and a golden chain necklace. However, their personality is what truly sets them apart. They are known for their unshakable drive and ability to set and achieve lofty goals. Their strategic thinking and exceptional organizational skills enable them to take on more than most can handle while still emerging victorious.
+
+Those who cross Subject 2356's path should be wary, as their ambition can sometimes lead them to take risks and make enemies. They may have connections to underground organizations that enable them to achieve their goals, but the true extent of their schemes remains unknown.
+
+In summary, Subject 2356 is a unique and ambitious individual with a personality and appearance that make them stand out in any urban fantasy novel setting. Handle with caution.

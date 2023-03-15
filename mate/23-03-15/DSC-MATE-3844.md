@@ -1,0 +1,8 @@
+ID # : DSC-MATE-3844
+Subject 3844, also known as Officer Rabbit, is a humanoid being of the Homo sapiens species. Her striking appearance includes a pair of VR jade LED eyes that glow mysteriously in the darkness, accentuated by purple lips almost too dark to distinguish from black. Her head is topped by a bright pink bunny ears that sway with her every move, a playful yet eerie addition to her overall appearance. Officer Rabbit also wears a red cross earring, perhaps hinting at a clandestine membership in a secret society or religious organization. 
+
+As a police officer, Officer Rabbit's job is to serve and protect, both the human and otherworldly communities that coexist in this urban metropolis. Known for her unique appearance and quirky personality, she is undoubtedly one of the most recognisable members of law enforcement in the region. She is often seen with a cigarette in hand, the smoke curling around the tips of her pink bunny ears.
+
+Officer Rabbit has an insatiable curiosity about the world and all things supernatural. She is known to indulge in obscure or unusual topics, sending her down a rabbit hole of knowledge where she discovers hidden gems of information. Her love of trivia often leads to her randomly spouting off facts to anyone who will listen - a trait that some find entertaining while others find it distracting. 
+
+In summary, Officer Rabbit is a colourful character with a unique blend of playfulness and intrigue. Her fascination with the unknown, combined with her job and appearance, makes her stand out in a city teeming with secrets and shadows. One thing is for sure - Officer Rabbit is someone you won't forget anytime soon.

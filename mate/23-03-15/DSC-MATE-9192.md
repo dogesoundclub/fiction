@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9192
+Subject 9192, also known as the "Programmer", is a robotic entity of obscure origin. Its physical appearance gives it an extraordinary look, as it features a single cyclopean green eye and a pair of nerd glasses covering its sight. Its face is adorned with a vibrant red beanie, hinting at a quirky personality. Its ears are accessorized with a seemingly out of place gold earring.
+
+Despite being constructed out of metal and circuits, the Programmer has quite the relatable personality. They are known for their drive, eager to accomplish goals and exceed expectations. However, their ambition can sometimes lead them to take on projects beyond their capabilities. But much like an intelligent machine, the Programmer uses strategic thinking and remarkable organizational skills to come through the tasks.
+
+The true abilities and purpose of the Programmer's construction have remained an enigma, with not even the most skilled technological experts able to fully decipher its inner workings. The Programmer might be the first of its kind, and very well the only one ever-made.
+
+Subject 9192 is under ongoing observation by the authorities, and its capabilities as a potential ally or enemy remain under evaluation. For now, it continues to operate as a highly advanced robotic entity with an indomitable will to accomplish its objectives.

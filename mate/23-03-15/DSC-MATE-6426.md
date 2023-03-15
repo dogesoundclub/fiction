@@ -1,0 +1,6 @@
+ID # : DSC-MATE-6426
+DSC-MATE-6426, also known as the "Stripe-Faced Banker," is a human male with distinct orange stripes on his face. With his frightened mouth and nerdy glasses, he can easily blend in among the crowds of mundane humans. However, his unique 2 color band on his forehead and cigarette attachment on his hand sets him apart from the rest of the pack.
+
+DSC-MATE-6426's personality is notable for his sensitivity to emotions. He is often found tearing up during touching scenes in movies or TV shows, and he has a passion for music and art that triggers a strong, visceral response in him. This heightened empathy makes him a prime target for those who know how to manipulate emotions to their advantage.
+
+As a banker, DSC-MATE-6426 may be vulnerable to financial manipulation, but his unique abilities could also make him an invaluable asset in situations where a heightened emotional response is required. It is recommended that he be monitored closely and protected from outside influences, as his unique abilities could make him a prime target for those seeking to exploit his emotional vulnerabilities.

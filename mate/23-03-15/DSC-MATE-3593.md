@@ -1,0 +1,6 @@
+ID # : DSC-MATE-3593
+DSC-MATE-3593 is a female human politician with orange stripes adorning her face. Her red clown eyes carry an unnerving whimsy that seems to promise joy, yet a sinister grin tugs at the corners of her smile, telling otherwise. DSC-MATE-3593's head is crowned with blond hair wrapped in a furry ushanka, and she wears a choker, accentuating her neck.
+
+One of the most distinguishable traits of DSC-MATE-3593 is the LED gas mask that she wears, glowing with a flickering green light that pulses rhythmically with her breath. DSC-MATE-3593's personality reflects her tendency to act impulsively, leading to catastrophic situations that she tries to pass off as charming, though it is often a mask for her inherent chaotic nature. 
+
+DSC-MATE-3593's misadventures are often the source of amusement for her peers, despite the havoc she creates. Her lack of foresight has caused her to get embroiled in dangerous situations that she manages to escape from by the sheer force of her persona. DSC-MATE-3593's abilities make her a wildcard that must be observed and monitored thoroughly, for her influence can cause irreparable destruction if left uncontrolled.

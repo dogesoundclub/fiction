@@ -1,0 +1,8 @@
+ID # : DSC-MATE-7513
+DSC-MATE-7513, also known as "The Jester Lawyer", is a male human in his early thirties, with a charming smile and a keen eye for legal affairs. He is often seen sporting a retro cap and gold earring, completing his urban style. His signature nerd glasses give him an air of intelligence and confidence, which is amplified by his use of a sarcastic and witty tone. DSC-MATE-7513 is most commonly seen with a red scarf, which he claims to be his lucky charm during court hearings.
+
+However, the most unusual feature of DSC-MATE-7513 is his use of an LED gas mask. He uses it to protect himself from airborne contaminants during his tenure as a lawyer, but also as a fashion statement. This brings an unusual and somewhat unsettling presence to the courtroom, often leaving those present feeling unnerved.
+
+DSC-MATE-7513's greatest strength lies in his sense of humor, which he uses to his advantage to win the affections of others. He's quick-witted and enjoys making others laugh, even in the bleakest of moments. Although his humorous acts could sometimes lead to a disarming effect, it doesn't necessarily mean that DSC-MATE-7513 is incapable of being serious when needed. In fact, he has a knack for using his sense of humor to lighten the tension during heated legal disputes, creating a more relaxed atmosphere that encourages compromise.
+
+Under no circumstances should DSC-MATE-7513 be underestimated. Although his light-hearted nature may make him appear less threatening than other DSCs, his sharp wit and legal prowess make him a formidable opponent. All personnel should show respect to DSC-MATE-7513, and under no circumstances should anyone attempt to engage him in a battle of wits or humor, as he has proven to be victoriously unbeatable.

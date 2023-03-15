@@ -1,0 +1,8 @@
+ID # : DSC-MATE-9684
+DSC-MATE-9684, also known as "The Politician," is a humanoid entity with distinct features that set them apart from regular human beings. Sporting orange stripes on the sides of their face, DSC-MATE-9684's most notable feature is their permanent smile, held in place by an unknown force. Their red clown eyes are often unsettling to those who meet them, but DSC-MATE-9684 exudes a confident and charismatic aura, drawing people towards them.
+
+The entirety of DSC-MATE-9684's head is coated in metallic blue, with a two-color band across their forehead and a pair of goggles perched atop it. Green cross earrings adorn their pointed ears, while a choker and cigarette dangle from their neck and mouth, respectively.
+
+Despite their eccentric appearance, DSC-MATE-9684 is a master of diplomacy, having risen to a high position in the political world. They place great importance on fostering healthy relationships and keeping the peace, although they are not above lighthearted jests and playful teasing. Their tendency to crack jokes and engage in banter with those around them can be perceived as a source of levity in tense situations. 
+
+Exhibit caution when dealing with DSC-MATE-9684, as their easygoing personality does not necessarily mean they lack ulterior motives. Keep communication strictly professional and remain vigilant for any sign of manipulation or hidden agendas.

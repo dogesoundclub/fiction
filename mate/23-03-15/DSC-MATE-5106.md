@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5106
+Subject 5106, also known as "The Reckless Guard", is a human female employed as a security guard in an urban setting. Her most notable physical features are the spots speckled across her face and the bold purple lip that stands out against her otherwise unremarkable appearance. Additionally, her eyebrows are a vibrant orange color that seems to glow in the right light.
+
+Subject 5106 often wears a bucket hat, which seems to be her trademark accessory. On her forehead, she has a two-color band, possibly a symbol of her allegiance to a particular group or cause. She also wears a choker, which may have special significance, although its purpose is currently unknown.
+
+Personality-wise, Subject 5106 is a bit of a wildcard. She is known for her impulsive behavior, and her tendency to act without thinking things through can sometimes lead to hilarious situations. However, her recklessness can also get her into trouble, and her actions have been the cause of more than a few minor accidents and mishaps.
+
+For those who encounter Subject 5106, it is recommended to exercise caution and keep a safe distance. While she may be good-natured, her impulsivity can sometimes lead to danger. However, if you are in need of a laugh or a bit of excitement, she may be the perfect companion for you. Just be prepared for the unexpected.

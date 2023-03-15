@@ -1,0 +1,6 @@
+ID # : DSC-MATE-4669
+DSC-MATE-4669 is a remarkably whimsical human female, surprisingly amenable to and successful at managing the Theater. Her appearance belies her eccentric demeanor, with small spots adorning her cheekbones and a charming smile that belies her mischievous personality. Her normal glasses provide her with the clear vision needed to manage the theater, while her stunning retro cap, affixed with a gold chain, serves to emphasize her flair for the dramatic.
+
+Her creativity knows no bounds, and she will quickly enter into detailed discussions on the many, varied interests she pursues in her spare time, from writing poetry to collecting rare and unusual objects. Her most striking accessory, however, is her LED gas mask. While many find it disconcerting, DSC-MATE-4669 considers it a vital component of her ensemble, and a reminder of the precariousness of the world around her.
+
+Despite her penchant for the unusual and her foibles, DSC-MATE-4669 manages the Theater with great success and aplomb, providing a needed outlet for many of the highly-strung artists who perform there. Though DSC-MATE-4669 will often be found in the midst of the fray, she remains a consummate professional, always aiming for the best possible experience for both her staff and patrons.

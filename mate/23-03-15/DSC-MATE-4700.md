@@ -1,0 +1,8 @@
+ID # : DSC-MATE-4700
+DSC-MATE-4700 is a humanoid entity designated as a Level 2 anomaly. This individual is employed as a car salesman in [Redacted], showcasing an unprecedented ability to convince individuals into purchasing high-end cars. Despite his impressive sales records, it is important to note that DSC-MATE-4700's persuasive abilities work solely on non-anomalous subjects. 
+
+This subject's appearance is quite peculiar, featuring green hair confined in a purple cap. The individual also sports a 2-color band on his forehead, normal glasses over his eyes, and a gold earring on each ear. DSC-MATE-4700's attire is finished with a gold chain and a candy stick, which the entity often uses to aid him in his negotiations with clients. 
+
+When communicating with DSC-MATE-4700, it is crucial to note that his personality can be described as analytical and logical. The subject enjoys debates and arguments and can often steer conversations towards topics that he finds trivial, leading to amusing situations for those around him. Under no circumstances must any personnel engage in debates unless deemed necessary for testing purposes. 
+
+Currently, DSC-MATE-4700's employment status has been suspended in conjunction with his containment. Level 2 personnel and above are permitted to interact with the entity under supervision, only during approved testing sessions. All staff are reminded that DSC-MATE-4700 is not to be released under any circumstances.

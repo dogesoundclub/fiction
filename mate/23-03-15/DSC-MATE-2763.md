@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2763
+DSC-MATE-2763, also known as the "Clown Banker," is a male human with distinct physical features. DSC-MATE-2763 has a mouth spot and a clown mouth, accompanied by blue clown eyes that remain unnaturally widened at all times. The subject is often seen wearing a hoodie and a red scarf as an accessory.
+
+DSC-MATE-2763 currently maintains a position as a banker in a local branch. The subject's spontaneous nature and love for risks have led to several incidents where he has made impulsive decisions that put others in danger. One particular incident stands out where DSC-MATE-2763 decided to jump off a cliff into a lake without any safety precautions.
+
+Due to DSC-MATE-2763's abnormal appearance and behavior, it is advised to monitor the subject closely and limit contact with civilians. Any unpredictable actions from DSC-MATE-2763 should be immediately addressed to avoid any potential threats to others.

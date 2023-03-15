@@ -1,0 +1,8 @@
+ID # : DSC-MATE-247
+DSC-MATE-247 is a Class-D Train Driver who has been extensively researched due to his unique physical and sociological aspects. His distinctive facial feature being spots is comparable to the markings of a cheetah, which is known for its extraordinary speed, agility, and concentration. His eyes are enhanced with nerd glasses, enhancing his focus, and sharpening his abilities of observation. His piercing green eyes also reflect a determination to succeed at any cost. 
+
+His ears have a singular addition of a jade earring which adds to his mystique, but its hidden meaning remains an enigma. However, it is believed to enhance his hearing abilities and provide him with an edge when it comes to detecting sounds or vibrations. 
+
+His preferred wardrobes are a rich-red scarf that adorns his neck - symbolizing the blood of his enemies, and a candy stick he uses as a tool to amplify his charisma and sense of humor toward his co-workers. His quick wit and passion for a good argument display his intellectual prowess, and his sense of humor provides light in dire situations. 
+
+DSC-MATE-247's joyful spirit and love for engaging in playful arguments surely adds a unique factor to his personality. He has proven himself to be an excellent team player, but his wit can also cause quite the chaos in the blink of an eye. Therefore, DSC-MATE-247 has been advised to be handled with caution and monitored at all times during projects.

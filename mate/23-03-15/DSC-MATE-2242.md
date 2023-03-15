@@ -1,0 +1,6 @@
+ID # : DSC-MATE-2242
+Subject 2242, also known as "The Fashion Designer", is a human female with distinct orange stripes on her face and a captivating, yet somewhat eerie, blue clown eyes. With her innocent 00s school girl appearance and silver chain accessory, she often fools those who underestimate her abilities. 
+
+However, under her enchanting facade lies an analytical and logical mind, which makes her an exceptional fashion designer. Her quirky sense of humor often reveals itself in her witty observations and teasing dry humor with her friends - a trait that is both intriguing and unsettling. 
+
+It is essential to keep in mind that despite her charming demeanor, The Fashion Designer is not one to be taken lightly. Her logical thinking and clever mind often make her unpredictably dangerous. Approach with caution.

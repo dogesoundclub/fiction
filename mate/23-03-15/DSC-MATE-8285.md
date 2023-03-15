@@ -1,0 +1,8 @@
+ID # : DSC-MATE-8285
+Subject 8285, also known as "The Cyclops", is a robotic villain of unknown origin. Sporting a single, piercing green eye in place of what would normally be two functioning ocular organs, this enigmatic automaton cuts a striking and intimidating figure. His head is adorned with an unmistakable purple cap and shock of vibrant green hair, giving him a distinct and stylized appearance.
+
+While the Cyclops' physical characteristics are arresting enough, it's his personality that truly sets him apart from others of his kind. Known for his reckless tendencies and propensity to act impulsively without thinking things through, this cyborg can often be found embroiled in outlandish situations. His overconfidence frequently getting the best of him, the Cyclops often finds himself in humorous predicaments - whether it's due to attempting to show off or impress others, or simply not thinking ahead.
+
+Yet, behind this devil-may-care exterior lies a calculated and ruthless foe. The Cyclops is a dangerous threat to all who oppose him, wielding a powerful array of weapons and tools designed to overpower his enemies. And with his distinctive gold chain and cigarette - both seemingly fused to his metallic frame - this malevolent machine cuts a figure that strikes fear into all who dare cross him.
+
+Use caution when dealing with the Cyclops. This robotic villain is not to be trifled with, and entering his crosshairs could lead to disaster.

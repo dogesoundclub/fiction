@@ -1,0 +1,6 @@
+ID # : DSC-MATE-230
+DSC-MATE-230 is a humanoid entity, biologically classified as a human. However, their appearance is far from typical. The subject's face is adorned with bold, vibrant orange stripes that zigzag across their cheeks and forehead. Their lips are painted in a deep shade of purple, providing a stark contrast to their orange stripes. The eyes of DSC-MATE-230 are replaced with Rainbow LED displays that create a mesmerizing visual effect, leaving an afterimage wherever they move.
+
+Despite their striking appearance, DSC-MATE-230 remains alert to their surroundings as a Security Guard. Their head is a vivid green tone with subtle edge curls that protrude from their hair. The subject sports a Red Cross Earring along with a choker around their neck, adding to their imposing presence.
+
+DSC-MATE-230 possesses a strong sense of independence, making them resistant to authority and rules that they deem unnecessary. This can lead to them performing rebellious behavior such as escaping from the office early or taking time off without formal permission. DSC-MATE-230 is regarded as a dependable Security Guard, but the foundation is keeping an eye on them to prevent any breaches in security.

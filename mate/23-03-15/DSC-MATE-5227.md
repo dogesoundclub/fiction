@@ -1,0 +1,8 @@
+ID # : DSC-MATE-5227
+DSC-MATE-5227, also known as "The Electrician," is a human male with striking VR Jade LED eyes and a purple metal head. He works as an electrician and is often seen wearing a normal gas mask as a precaution when dealing with electrical equipment.
+
+DSC-MATE-5227 is an ambitious and goal-oriented individual who possesses excellent organizational skills and strategic thinking abilities. Although he often takes on more than he can handle, he usually manages to pull it off with ease. DSC-MATE-5227 is a determined and relentless individual who does not back down from a challenge.
+
+Beware of DSC-MATE-5227's unwavering determination and motivation; they are capable of manipulating any situation to their advantage. DSC-MATE-5227's strategic mind and organizational skills make him a valuable asset in any situation, but his ambitious nature can sometimes make him a bit too reckless. His VR Jade LED eyes and purple metal head make him easily recognizable and an intimidating figure to those who cross his path.
+
+Approach DSC-MATE-5227 with caution and only with a clear understanding of his goals and motivations. Working alongside DSC-MATE-5227 can be rewarding, but one must always be aware of his potential to overextend himself and take on more than he can handle.
